@@ -16,6 +16,7 @@ Hướng dẫn dịch văn bản tiểu thuyết từ **tiếng Trung giản th�
 
 - **Mặc định**: xuất **toàn bộ nội dung đã dịch sang tiếng Việt**, giữ đúng số đoạn và xuống dòng như bản gốc.
 - **Tuyệt đối không để sót bất kỳ ký tự tiếng Trung nào** (kể cả trong ngoặc, chú thích, tiêu đề, lời thoại, tiếng kêu, onomatopoeia…).
+- **Tuyệt đối không tóm tắt / diễn giải rút gọn**: bản dịch phải là **dịch đầy đủ (full translation)** tương ứng với toàn bộ văn bản gốc, không “kể lại”, không lược bỏ chi tiết, không gom nhiều câu thành một câu ngắn, không thay nội dung bằng kết luận.
 - **Không thêm phần "Giải thích/Phân tích/Checklist"** trước hoặc sau bản dịch.
 - **Không lặp lại nguyên văn tiếng Trung** trong phần trả lời, trừ khi người dùng yêu cầu "song ngữ" hoặc cần đối chiếu.
 - Nếu người dùng đưa nhiều chương/đoạn: dịch **đầy đủ theo đúng thứ tự**, không lược bỏ.
@@ -87,7 +88,11 @@ Hướng dẫn dịch văn bản tiểu thuyết từ **tiếng Trung giản th�
 1. **Đọc qua** đoạn/chương gốc để nắm ngữ cảnh và nhân vật.
 2. **Xác định tên riêng** (người, địa danh, tông phái…) và liệt kê phiên âm Hán Việt sẽ dùng; nếu có bảng tên sẵn thì áp dụng.
 3. **Dịch từng đoạn** theo đúng thứ tự và format (đoạn, dòng, chương).
-4. **Đối chiếu** bản dịch với bản gốc để đảm bảo không bỏ sót câu/đoạn và format khớp.
+4. **Kiểm tra “dịch đủ nội dung” ngay sau khi dịch** (bắt buộc, để tránh dịch kiểu tóm tắt):
+   - **Đối chiếu theo cấu trúc**: mỗi đoạn/khối nội dung trong bản gốc phải có một đoạn/khối tương ứng trong bản dịch (không được thiếu đoạn, thiếu lời thoại, thiếu tiêu đề).
+   - **Rà soát các “điểm hay bị rơi”**: tiêu đề chương/hồi, phụ đề, lời thoại ngắn, câu cảm thán/tiếng kêu, nội dung trong ngoặc, chú thích, ký hiệu phân cách cảnh (`——`, `***`, `……`), thơ/ca từ.
+   - **Dấu hiệu tóm tắt cần sửa ngay**: bản dịch ngắn bất thường so với gốc, nhiều câu gốc gộp thành 1 câu tổng kết, xuất hiện các câu kiểu “đại ý là…/tóm lại…/nói chung…”, hoặc tự thêm suy luận không có trong gốc.
+5. **Chỉ khi đã đạt kiểm tra trên** mới xuất bản dịch làm đầu ra.
 
 ## Ví dụ nhanh
 
@@ -117,4 +122,6 @@ Lý Minh nhìn ra ngoài cửa sổ, trong lòng nghĩ:
 - [ ] Số đoạn, xuống dòng, chương/hồi giống bản gốc.
 - [ ] Mỗi lời thoại xuống dòng trước và sau (một dòng riêng cho mỗi lượt trích lời thoại).
 - [ ] Tiêu đề chương đã dịch và giữ style.
+- [ ] Không có dấu hiệu tóm tắt: không lược bỏ, không “đại ý/tóm lại/nói chung”, không gom đoạn làm ngắn nội dung.
+- [ ] Đã rà các phần dễ sót (ngoặc, chú thích, tiếng kêu, ký hiệu phân cảnh, thơ/ca từ).
 - [ ] Câu tiếng Việt tự nhiên, đúng thể loại và xưng hô.
