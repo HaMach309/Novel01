@@ -1,6 +1,6 @@
 ---
 name: translate-chinese-novel-to-vietnamese
-description: Translates novels from Simplified Chinese to Vietnamese, preserving character names in Hán Việt (Sino-Vietnamese) romanization and original text format. FULL TRANSLATION ONLY – no summarization, no condensation. Use when translating Chinese web novels, light novels, or fiction to Vietnamese.
+description: Translates novels from Simplified Chinese to Vietnamese, preserving character names in Hán Việt (Sino-Vietnamese) romanization and original text format. FULL TRANSLATION ONLY – no summarization, no condensation. Sau khi dịch, đoạn văn quá dài (>200 từ) phải được tách tự động tại cuối câu. Use when translating Chinese web novels, light novels, or fiction to Vietnamese.
 ---
 
 # Dịch tiểu thuyết Trung–Việt (giữ tên Hán Việt và format gốc)
@@ -36,8 +36,11 @@ Hướng dẫn dịch văn bản tiểu thuyết từ **tiếng Trung giản th�
 
 - **Đoạn văn**:
   - Mỗi đoạn trong bản gốc tương ứng một đoạn trong bản dịch; không gộp hoặc tách tùy tiện.
-  - **Tách đoạn khi quá dài**: nếu đoạn gốc hoặc bản dịch dài bất thường (nhiều câu liền, quá 3–4 dòng), hãy tách thành nhiều đoạn nhỏ hơn sao cho độ dài tương đương với các đoạn khác trong cùng chương; tránh để một đoạn dài lê thê trong khi các đoạn khác ngắn gọn.
-  - Mục tiêu: các đoạn văn có độ dài cân đối, dễ đọc, không có đoạn nào quá dài so với trung bình.
+  - **Tách đoạn khi quá dài (bắt buộc)**: nếu đoạn dịch ra dài hơn **khoảng 200 từ**, phải tách thành nhiều đoạn nhỏ hơn.
+    - **Vị trí tách**: luôn tách **tại cuối câu** (sau dấu chấm, chấm than, chấm hỏi, hai chấm…), không cắt giữa câu.
+    - **Mục tiêu**: mỗi đoạn sau khi tách khoảng 150–200 từ; tránh đoạn dài lê thê > 250 từ.
+    - **Ưu tiên**: tách tại chỗ nghỉ tự nhiên (hết câu kể, hết ý nhỏ) để mạch văn không bị gãy.
+  - Mục tiêu tổng thể: các đoạn văn có độ dài cân đối, dễ đọc, không có đoạn nào quá dài so với trung bình.
 - **Xuống dòng / ngắt dòng**: giữ đúng vị trí (ví dụ: mỗi lời thoại một dòng thì bản dịch cũng một dòng một thoại).
 - **Lời thoại (dialogue)** – bắt buộc, xuống dòng trước và sau:
   - **Trước mỗi lời thoại**: luôn xuống dòng (mỗi lời thoại bắt đầu ở một dòng mới).
@@ -96,7 +99,8 @@ Hướng dẫn dịch văn bản tiểu thuyết từ **tiếng Trung giản th�
    - **Đối chiếu theo cấu trúc**: mỗi đoạn/khối nội dung trong bản gốc phải có một đoạn/khối tương ứng trong bản dịch (không được thiếu đoạn, thiếu lời thoại, thiếu tiêu đề).
    - **Rà soát các “điểm hay bị rơi”**: tiêu đề chương/hồi, phụ đề, lời thoại ngắn, câu cảm thán/tiếng kêu, nội dung trong ngoặc, chú thích, ký hiệu phân cách cảnh (`——`, `***`, `……`), thơ/ca từ.
    - **Dấu hiệu tóm tắt cần sửa ngay**: bản dịch ngắn bất thường so với gốc, nhiều câu gốc gộp thành 1 câu tổng kết, xuất hiện các câu kiểu “đại ý là…/tóm lại…/nói chung…”, hoặc tự thêm suy luận không có trong gốc.
-5. **Chỉ khi đã đạt kiểm tra trên** mới xuất bản dịch làm đầu ra.
+5. **Tách đoạn nếu quá dài** (bắt buộc): rà soát từng đoạn; nếu đoạn > ~200 từ thì tách tại cuối câu thành nhiều đoạn nhỏ hơn (mục 2).
+6. **Chỉ khi đã đạt kiểm tra trên** mới xuất bản dịch làm đầu ra.
 
 ## Ví dụ nhanh
 
@@ -125,6 +129,7 @@ Lý Minh nhìn ra ngoài cửa sổ, trong lòng nghĩ:
 
 - [ ] Mọi tên nhân vật (và địa danh/tông phái nếu áp dụng) đã chuyển sang Hán Việt.
 - [ ] Số đoạn, xuống dòng, chương/hồi giống bản gốc.
+- [ ] Đoạn văn quá dài (>200 từ) đã được tách tại cuối câu thành nhiều đoạn nhỏ hơn.
 - [ ] Mỗi lời thoại xuống dòng trước và sau (một dòng riêng cho mỗi lượt trích lời thoại).
 - [ ] Tiêu đề chương đã dịch và giữ style.
 - [ ] Không có dấu hiệu tóm tắt: không lược bỏ, không “đại ý/tóm lại/nói chung”, không gom đoạn làm ngắn nội dung; độ dài bản dịch tương xứng với bản gốc.
