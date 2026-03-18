@@ -315,77 +315,147 @@ Mặt trong đùi trơn mịn của thiếu nữ vì sợ hãi mà run rẩy. H�
 Giây kế tiếp, thiếu nữ cứng đờ cả người, mắt đẹp trợn tròn, hô hấp ngưng trệ, mật huyệt co rút. Tiếng kêu đau đã dâng lên cổ họng, rốt cuộc bị nàng cứng rắn nuốt ngược trở lại.
 
 Từ lúc nhập huyệt đến khi phá thân, Hạ Hầu Không cho Nghê Nhược một đòn dứt khoát. Toàn bộ quá trình chẳng qua ba giây.
-## Chương 7  Đưa vào huyệt non còn máu xử nữ
-
-Trong phòng điều giáo im như tờ; mấy giây sau Hạ Hầu Không rút ngón và khăn, để lại cửa huyệt vừa phá run rẩy.
-
-— Ha…… ha……
-
-Nghi Nhược khi hắn rút khỏi người mới thả lỏng, thở gấp. Khăn rút từ trong Nghi Nhược có vòng máu loang không đều; vì huyệt nàng quá chặt còn một mảnh màng vỡ dính trên máu. Trinh tiết một mỹ nhân tuổi xuân, trong im lặng ngắn ngủi ấy đã mất. Hạ Hầu Không đặt khăn lại khay, lấy cao trơn bên cạnh đặt lên xe gỗ nhỏ có bánh trượt.
-
-— Xin giáo quan đại nhân bắt đầu phần hai lễ phá thân.
-
-Phượng nương kiểm khăn xong cung kính nói. Hạ Hầu Không liếc đôi nhũ phập phồng theo hơi thở của Nghi Nhược, chỉ tay về cửa phòng. Phượng nương sững nhìn ngón dài của Hạ Hầu Không, quay nhìn cửa, lại nhìn mặt lạnh của Hạ Hầu Không, rồi hiểu: bảo họ ra ngoài đợi. Phúc thân Hạ Hầu Không, Phượng nương dẫn nữ quan ra, đóng cửa, đứng ngoài. Lễ phá thân bộ thường có nữ quan chứng kiến từ đầu đến cuối, nhưng lệnh Hạ Hầu Không không ai dám cãi. Cửa gỗ đỏ đóng lại, trong phòng chỉ còn Hạ Hầu Không và Nghi Nhược. Đại tay trắng dài của Hạ Hầu Không cởi thắt lưng hoa văn, ném lên giường sau lưng, rồi áo ngoài đen, áo trong trắng. Từng lớp cởi, thân hình nam nhân rõ cơ bắp hiện trước Nghi Nhược; giữa hai chân dương vật kiêu ngạo dựng, đầu trơn căng, thân gân xanh lờ mờ, tỏa khí đực rực. Chỉ Hạ Hầu Không biết mình thanh tâm ít dục mấy năm từ lúc nào cứng đến thế. Nghi Nhược từ lúc hắn cởi đồ không dám nhìn, chỉ thẹn nhìn chỗ khác, cũng không giãy vì sau khi phá thân đã nhận mệnh, biết làm gì cũng vô ích. Hạ Hầu Không bôi đầy cao trơn lên dương vật cương, đến trước hoa huyệt Nghi Nhược; cửa huyệt còn rỉ máu xử chưa kịp ngấm; ngón dài quệt một cục cao trơn đẩy vào hoa thẹn của nàng.
-
-— Ừm!…… ư……
-
-Ngón nam nhân xoay trong huyệt xử vừa mất trinh; Nghi Nhược khó chịu rên nhỏ, mông hồng khẽ lay.
-
-— Đúng là nhạy cảm.
-
-Nghe tiếng nũng nịu, Hạ Hầu Không nhạt giọng.
-
-— Ta không có……
-
-Nghi Nhược đỏ mặt cãi, vô ý thấy thân thể săn chắc của Hạ Hầu Không liền quay mắt đi.
-
-— Ở Hồi Xuân Các chỉ cần nói thật.
-
-Dương vật càng bóng cứng sau khi bôi cao trơn chĩa đúng cửa huyệt nhỏ của Nghi Nhược; đầu to theo máu xử tươi và cao trơn đâm thẳng vào —
-
-— A——!
-
-Đau ở chỗ kín khiến Nghi Nhược thảm khiếu, ngửa cổ, eo cong cứng giữa không. Đau quá! Muốn rách —— Phượng nương ngoài cửa nghe tiếng kêu, biết Hạ Hầu Không đã vào huyệt non kia, bắt đầu ước thời gian kết thúc, đồng thời sai nữ quan đến phòng bếp lấy một bát thuốc tránh thai. Nhưng thời gian của Hạ Hầu Không chưa bao giờ ngắn. Trong phòng Hạ Hầu Không thở không đều dừng động tác, nhíu mày anh tuấn, trán rịn mồ hôi mỏng. Hắn định một lần đâm tận cùng, không ngờ chỗ kín Nghi Nhược chặt đến nỗi chỉ vào được hơn nửa đã kẹt, dương vật còn một đoạn dài ngoài. Ngay cả tuyệt sắc nhất Hồi Xuân Các năm đó là Bạch Tử Tuyên cũng không chặt bằng nàng!
 
 ---
 
-## Chương 8  Thực ra hắn sướng không chịu nổi
+## Chương 7  Đưa vào huyệt non còn máu xử nữ
 
-“Hung khí” trong người rút ra rồi lại đâm vào; Nghi Nhược chỉ thấy chỗ kín nóng rát, sợ hỏng không nhịn được cầu xin.
+Phòng điều giáo yên tĩnh đến rợn người. Vài giây sau, Hạ Hầu Không rút ngón tay và miếng vải bông ra cùng lúc, để lại cửa huyệt vừa bị phá thân co thắt không ngừng.
 
-— Giáo…… giáo quan đại nhân——
+— Hà…… hà……
+
+Nghi Nhược cũng thả lỏng thân thể khi hắn rút khỏi trong người, thở dốc từng hơi.
+
+Tấm vải trắng rút từ trong người Nghi Nhược có vòng vết máu hình dạng không đều ở giữa, thậm chí vì huyệt nàng quá chặt, còn có mảnh màng trinh vỡ bị kéo ra, dính trên vết máu.
+
+Thân trinh trắng của tiểu mỹ nhân diệu linh, trong khoảnh khắc tĩnh lặng ấy đã bị phá.
+
+Đặt tấm vải trắng trở lại khay gỗ, Hạ Hầu Không cầm lấy hộp cao bôi trơn bên cạnh, đặt lên chiếc xe gỗ nhỏ có bánh ròng rọc.
+
+— Xin giáo quan đại nhân bắt đầu phần hai lễ phá thân.
+
+Phượng nương kiểm tra xong tấm vải bông, cung kính nói.
+
+Hạ Hầu Không liếc đôi nhũ của Nghi Nhược đang lên xuống vì thở gấp, giơ tay chỉ về phía cửa phòng.
+
+Phượng nương hơi không hiểu nhìn ngón tay dài xương xương của Hạ Hầu Không, quay nhìn cửa, rồi nhìn lại vẻ mặt lạnh nhạt của Hạ Hầu Không, chẳng mấy chốc đã hiểu ý.
+
+Là bảo họ ra ngoài đợi.
+
+Sau khi phủ phục trước Hạ Hầu Không, Phượng nương dẫn nữ quan đi ra, đóng cửa phòng, rồi đứng hầu ngoài cửa.
+
+Lễ phá thân của bộ điều giáo thường do nữ quan chứng kiến từ đầu đến cuối, nhưng mệnh lệnh của Hạ Hầu Không không ai dám trái.
+
+Hắn bảo ngươi đợi ngoài, ngươi đừng hòng tiếp tục ở trong.
+
+Cửa gỗ đỏ thẫm đóng lại, trong phòng chỉ còn Hạ Hầu Không và Nghi Nhược.
+
+Bàn tay trắng dài của Hạ Hầu Không cởi đai lưng hoa văn tinh xảo, ném lên giường phía sau, rồi đến áo ngoài đen, áo trong trắng.
+
+Theo từng lớp áo cởi bỏ, thân hình nam nhân đường nét rõ ràng, săn chắc cường tráng hiện ra trước mắt Nghi Nhược, hung khí giữa hai chân từ lâu đã ngẩng cao, đầu rồng trơn bóng căng cứng, thân trụ gân xanh ẩn hiện, tỏa ra khí dương đầy đủ.
+
+Chỉ có Hạ Hầu Không tự biết, hắn thanh tâm quả dục bao năm, là từ lúc nào đã cứng đến vậy.
+
+Nghi Nhược từ lúc hắn bắt đầu cởi áo đã không dám nhìn, chỉ e lệ nhìn chỗ khác, cũng không giãy giụa, vì sau khi bị phá thân nàng đã cam chịu, biết mình dù làm gì cũng chỉ uổng công.
+
+Hạ Hầu Không bôi đầy cao bôi trơn lên hung khí ngẩng cao, đến trước hoa huyệt Nghi Nhược, cửa huyệt đang rỉ ra máu xử nữ vừa chưa kịp thấm ra, ngón tay dài xúc một miếng lớn cao bôi trơn, đẩy vào trong hoa thẹn của Nghi Nhược.
+
+— Ừm!…… ư……
+
+Ngón tay nam nhân trong huyệt xử nữ vừa mất trinh xoay trộn, Nghi Nhược khó chịu rên nhỏ, mông hồng khẽ nhúc nhích.
+
+— Quả nhiên mẫn cảm.
+
+Nghe tiếng rên của Nghi Nhược, Hạ Hầu Không nhạt nhẽo nói.
+
+— Thiếp không có……
+
+Nghi Nhược đỏ mặt cãi, vô ý thấy thân thể cơ bắp săn chắc của Hạ Hầu Không, lại như bị điện giật chuyển ánh nhìn.
+
+— Ở Hồi Xuân Các, chỉ cần nói thật.
+
+Hung khí nam nhân sau khi bôi cao bôi trơn càng sáng bóng cứng cáp, tìm đúng cửa huyệt nhỏ của Nghi Nhược, đầu rồng to lớn nhờ máu xử nữ tươi và cao bôi trơn trong nháy mắt đâm thẳng vào——
+
+— À——!
+
+Đau đớn từ chỗ kín khiến Nghi Nhược thảm khiếu, ngửa cổ, eo thon cong cứng giữa không.
+
+Đau quá!
+
+Muốn rách rồi——
+
+Phượng nương hầu ngoài cửa nghe tiếng thảm khiếu ấy, biết Hạ Hầu Không đã đâm vào hoa huyệt xử nữ non ấy rồi, bắt đầu ước lượng thời gian kết thúc, đồng thời sai nữ quan đến phòng bếp lấy một bát thuốc tránh thai.
+
+Nhưng thời gian của Hạ Hầu Không chưa bao giờ ngắn.
+
+Trong phòng, Hạ Hầu Không hơi thở không đều dừng động tác, nhíu đôi mày anh tuấn, trán bắt đầu rịn mồ hôi mỏng.
+
+Hắn vốn định một lần đâm tận gốc, không ngờ chỗ kín Nghi Nhược chặt đến vậy, hắn chỉ đâm vào hơn nửa đã bị kẹt, nhục bổng còn một đoạn dài bên ngoài.
+
+Ngay cả tuyệt sắc nhất Hồi Xuân Các năm xưa là Bạch Tử Tuyên cũng không chặt bằng nàng!
+
+---
+
+
+## Chương 8 Kỳ thực, hắn sướng không chịu nổi
+
+Hung khí trong người từ từ rút ra rồi lại đâm vào, Nghi Nhược chỉ thấy chỗ kín nóng rát đau, nỗi sợ bị hỏng khiến nàng nhịn không được cầu xin.
+
+— Giáo, giáo quan đại nhân——
 
 — Cầu ngài…… nhẹ chút……
 
-Hạ Hầu Không nhìn nước mắt không ngừng từ đôi mắt ướt của nàng — như nhỏ giọt lên tim hắn, phiền, cố lạnh giọng:
+Hạ Hầu Không nhìn nước mắt không ngừng rơi từ đôi mắt trong veo của nàng, nước mắt ấy như nhỏ vào lòng hắn, khiến hắn phiền lòng, cố ý lạnh lùng nói:
 
-— Chốc nữa ngươi sẽ không đau nữa.
+— Chẳng mấy chốc ngươi sẽ không đau nữa.
 
-Cao trơn nữ quan chuẩn bị là đặc chế Hồi Xuân Các, trong có thuốc kích dục; chỉ cần chỗ kín nam nữ cọ một lúc, thuốc phát tác, nữ sẽ không còn đau.
+Thứ cao bôi trơn hắn bảo nữ quan chuẩn bị là Hồi Xuân Các đặc chế, bên trong thêm thuốc kích tình, chỉ cần nam nữ chỗ kín cọ xát một lát, thuốc sẽ phát huy, khiến nữ tử không còn đau đớn.
 
-— ư……
+— Ừ……
 
-Hạ Hầu Không đã nói vậy Nghi Nhược không dám nói thêm, cắn răng nhịn. Chỉ thấy hắn kỳ lạ, lúc nãy còn dịu, giờ lại vô tình. Trong phòng chỉ còn hơi thở gấp của hai người và tiếng dương vật thụt huyệt; vì cao trơn nhiều cộng huyệt nhỏ Nghi Nhược dần động tình, thụt trăm nhát, huyệt đã kêu “tí tách” ướt.
+Hạ Hầu Không đã nói vậy, Nghi Nhược cũng không dám nói gì nữa, âm thầm cắn răng chịu đựng. Chỉ thấy hắn kỳ quặc, vừa nãy còn dịu dàng, giờ lại bộ dạng vô tình.
 
-— ừm…… a……
+Phòng yên tĩnh chỉ còn tiếng thở gấp của nam nữ và tiếng đâm huyệt của nhục bổng, do Hạ Hầu Không bôi nhiều cao bôi trơn, thêm nữa tiểu huyệt của Nghi Nhược dưới tác dụng thuốc dần động tình, đâm rút hơn trăm nhát, tiểu huyệt đã bắt đầu phát ra tiếng nước "chít chít rì rì".
 
-Trong huyệt dần không đau, cả người còn hơi lâng lâng; Nghi Nhược dám nhìn thẳng mặt Hạ Hầu Không. Hạ Hầu Không đẹp thật, nàng vốn muốn nhìn thêm nhưng thẹn không dám, giờ không hiểu sao trong người nóng khó nhịn, gan lớn, đôi mắt ướt dám đối mắt Hạ Hầu Không. Mắt đen như mực Hạ Hầu Không nhìn mặt nhỏ ửng hồng của Nghi Nhược, bỗng hỏi:
+— Ừm…… à……
+
+Trong huyệt dần không đau nữa, cả người còn có chút cảm giác lâng lâng, Nghi Nhược bắt đầu dám nhìn thẳng gương mặt Hạ Hầu Không.
+
+Hạ Hầu Không sinh ra thật sự tuấn mỹ, kỳ thực Nghi Nhược rất muốn nhìn thêm vài lần, chỉ là quá xấu hổ nên không dám, nhưng giờ không hiểu vì sao, nhiệt độc trong người khiến nàng khó chịu, gan cũng lớn hơn, đôi mắt trong veo dám đối diện Hạ Hầu Không.
+
+Hạ Hầu Không đôi mắt đen như mực ngắm gương mặt ửng hồng của Nghi Nhược, chợt mở miệng:
 
 — Sướng rồi?
 
-Nghi Nhược lại thẹn cúi mắt, chỉ cắn môi thở, không đáp. Hạ Hầu Không cũng không ép nữa — nhưng thực ra…… hắn sướng không chịu nổi. Thân thể tươi non đẹp của thiếu nữ trước mắt cho hắn ngắm; huyệt nước chặt ngậm dương vật hắn, cảm ướt đàn hồi khiến hắn nghiện; eo càng lúc càng nhanh. Cúi thấy vẫn còn một đoạn dài dương vật ngoài huyệt, hai cánh hoa hồng theo cú địt bám lên thân cột, mong manh mà gợi. Biết Nghi Nhược đã sẵn sàng nhờ cao trơn, Hạ Hầu Không một cú đẩy hông, lưỡi lê dài cắm sâu vào huyệt hoa xử nữ yếu ớt, đụng cửa cung sâu nhất, mở trọn huyệt không chừa khe, ép không còn kẽ.
+Nghi Nhược lại xấu hổ cúi mắt, chỉ cắn môi dưới thở dốc, không trả lời hắn.
 
-— A a!
+Hạ Hầu Không cũng không tiếp tục làm khó nàng, nhưng kỳ thực…… hắn sướng không chịu nổi.
 
-Lần đầu Nghi Nhược bị nam nhân đụng đến cửa tử cung, mày nhíu, nước mắt chua sướng ứa ra. Cửa cung bị đầu rồng cứng của nam nhân ép chua căng; hắn vẫn không giảm lực đụng chỗ ấy, đụng bụng dưới Nghi Nhược đau nhức.
+Thân thể tươi non xinh đẹp của thiếu nữ ngay trước mắt để hắn thưởng thức, tiểu thủy huyệt chật khít siết chặt nhục bổng của hắn, cảm giác đàn hồi mềm mại khiến hắn nghiện, eo khỏe đung đưa càng lúc càng nhanh.
 
-— ừm ừm…… a, giáo quan đại nhân……
+Cúi đầu nhìn nhục bổng vẫn lộ một đoạn lớn ngoài huyệt, hai mảnh hoa môi hồng theo sự tấn công của hắn bám vào thân trụ, mong manh lại quyến rũ.
 
-Nghi Nhược định cầu xong nghĩ lại im, sợ chọc giận Hạ Hầu Không bị phạt, đành để vật thô to trong người xông đâm, mở đường. Nhìn đôi nhũ bị đụng lay động, Hạ Hầu Không nắm lấy, ngón xoa đầu nhũ hồng đến sưng, rồi cúi ngậm, miệng mút mạnh.
+Biết Nghi Nhược dưới tác dụng cao bôi trơn đã sẵn sàng, Hạ Hầu Không dùng sức đẩy eo, lợi nhận thô dài đâm sâu vào huyệt xử nữ non yếu, đập vào cung khẩu sâu nhất, khai phá hoàn toàn hoa huyệt không chừa một tấc, ép chặt không chừa một khe hở.
 
-— Nha a! Đại nhân…… ừm a……
+— À à!
 
-Cảnh mỹ nam tuyệt sắc ngậm đầu nhũ quá kích thích; Nghi Nhược hôm nay chịu quá nhiều kích thích, đầu dần trống, chỉ cảm trong người có thứ sắp trào. Hạ Hầu Không kinh nghiệm đầy, một mắt biết Nghi Nhược sắp lên đỉnh, liền dữ hơn trong huyệt xử chặt, miệng cũng mút mạnh hơn. Nghi Nhược bị nam nhân làm đến không thể cưỡng, mấy cái đã run lên lên đỉnh, huyệt siết chết. Hạ Hầu Không ước thời gian gần đủ, lại đâm sâu mấy nhát, tinh nóng bắn sâu trong huyệt Nghi Nhược……
+Đây là lần đầu Nghi Nhược bị đàn ông đâm tới cung tử cung, nhíu mày, nước mắt chua xót ấm áp trong nháy mắt trào ra.
+
+Cung khẩu bị đầu rồng cứng rắn của đàn ông ép căng tức, nhưng đàn ông vẫn không giảm lực đập vào chỗ ấy, đập đến bụng dưới Nghi Nhược đau chua.
+
+— Ừm ừm…… à, giáo quan đại nhân……
+
+Nghi Nhược muốn cầu xin, chợt nghĩ lại lại im lặng, sợ chọc giận Hạ Hầu Không, quay lại cho nàng trừng phạt gì đó, chỉ có thể để vật thô to ấy trong người mình tung hoành khai thổ.
+
+Nhìn đôi mỹ nhũ bị hắn đâm đập lung lay không ngừng trước mắt, Hạ Hầu Không đưa tay nắm lấy, ngón tay vờn nắn nhũ đầu hồng ấy, đến khi nhũ đầu sưng phồng, hắn lại cúi người ngậm vào, trong miệng dùng sức hút.
+
+— Á à! Đại nhân…… ừm à……
+
+Cảnh tượng bị mỹ nam tuyệt sắc ngậm nhũ đầu quá kích tình, Nghi Nhược hôm nay chịu quá nhiều kích thích, đầu óc dần trống rỗng, chỉ thấy trong người có gì đó sắp tuôn trào.
+
+Hạ Hầu Không kinh nghiệm phong phú, một cái nhìn đã biết Nghi Nhược sắp cao trào, bèn càng hung mãnh phi nước đại trong huyệt xử nữ chật hẹp của Nghi Nhược, trong miệng cũng tăng lực liếm hút.
+
+Nghi Nhược bị đàn ông bày đặt đến không thể dừng, chưa mấy nhát đã run rẩy được đưa lên cao trào, tiểu huyệt siết chặt chí mạng. Hạ Hầu Không ước chừng thời gian vừa đủ, đành đâm sâu thêm vài nhát, tinh dịch nóng bỏng bắn vào sâu trong huyệt Nghi Nhược……
 
 ---
 
@@ -1459,49 +1529,53 @@ Liễu Tinh kêu gào ầm ĩ như vậy, nếu đặt ở thiếu nữ các vi�
 E lệ, kinh hoảng, tuyệt vọng, những thứ ấy trước mặt họ không cần che giấu hay kìm nén. Phản ứng càng lớn, bọn họ càng khoái trá, càng yêu thích.
 ## Chương 30  Màng dày
 
-— Ừ, quả không tệ, tay cảm trơn, lượng đủ; ngươi vò mấy cái, nàng kêu cũng hay!
+— Ừ, quả không tệ, sờ tay trơn mịn, lượng đủ, ngươi vò mấy cái nàng kêu cũng hay!
 
-Trần lão gia “xem” xong còn bình phẩm. Hai nam nhân nhìn nhau cười rộ; hai thiếu nữ càng sợ. Phượng nương cũng lấy khăn lụa che miệng cười, rồi nói:
+Trần lão gia giúp “xem” xong còn bình phẩm một phen, hai nam nhân nhìn nhau rồi cười rộ, tâm đầu ý hợp. Hai thiếu nữ nghe vậy càng run sợ.
+
+Phượng nương bên cạnh cũng lấy khăn lụa che miệng cười thầm:
 
 — Đại nhân hãy kiểm huyệt nàng.
 
-Hai lão gia chơi đủ, cùng tới giữa hai chân Liễu Tinh. Phương đại nhân tách hai miếng thịt, kéo giỡn vài cái, mới bạch miệng huyệt nhìn vào. Thấy màng trinh có hai lỗ tròn, Phương đại nhân đưa một ngón thô vào xoa, hài lòng gật:
+Hai lão gia chơi đã đủ, cùng tới giữa hai chân dang rộng của Liễu Tinh. Phương đại nhân tách hai miếng thịt của nàng ra, kéo giật hai bên vờn nghịch mấy cái, mới bạch miệng huyệt nhỏ ra, nhìn vào trong động.
+
+Thấy lớp màng trinh có hai lỗ tròn, Phương đại nhân đưa một ngón thô vào xoa xát, hài lòng gật đầu:
 
 — Không tệ, đêm nay lại một phen lương tiêu!
 
-Hắn chơi xử nữ vô số; màng có hai lỗ tròn thì lúc bị chọc đau nhất, huyệt siết chặt, tư vị tuyệt diệu.
+Hắn chơi qua, nhìn qua xử nữ không đếm xuể; phàm xử nữ màng có hai lỗ tròn thì lúc bị chọc đau nhất, huyệt siết chặt, tư vị tuyệt diệu không thể tả.
 
-Kế là đến Lưu Uyển Quân. Hai lão gia y cách cũ, thay nhau chà đạp nhũ nàng. Nhũ Lưu Uyển Quân nhỏ hơn, đầu nhũ không đẹp như Liễu Tinh. Phương đại nhân liếc nhũ Liễu Tinh đầy dấu ngón đỏ, thầm mừng mình đặt đúng, nhưng vẫn a dua:
+Tiếp theo đến lượt Lưu Uyển Quân. Hai lão gia y theo cách cũ, thay nhau chà đạp nhũ nàng một phen. Nhũ Lưu Uyển Quân nhỏ hơn, đầu nhũ cũng không đẹp bằng Liễu Tinh. Phương đại nhân liếc nhũ Liễu Tinh đầy vết ngón đỏ, thầm mừng nhũ mình đặt đúng, nhưng vẫn a dua nói:
 
 — Chắc nô của Trần huynh có cái huyệt tốt.
 
 — Ừ!
 
-Trần lão gia trầm một tiếng, tới giữa hai chân Lưu Uyển Quân. Hắn không thiếu nhũ đẹp; nhũ nàng thường cũng được, nhưng vật trong huyệt phải hơn người.
+Trần lão gia trầm một tiếng, tới giữa hai chân Lưu Uyển Quân đang run run. Trong phủ hắn không thiếu nhũ đẹp; Lưu Uyển Quân nhũ thường cũng được, nhưng vật trong huyệt phải hơn người.
 
-Bạch thịt nhìn vào, Trần lão gia cười dần sâu, cả người hưng phấn:
+Đợi bạch động thịt của Lưu Uyển Quân ra, nhìn thấy thứ bên trong, nụ cười trên mặt Trần lão gia dần sâu hơn, cả người hưng phấn:
 
 — Hiền đệ, lại xem.
 
-Phương đại nhân nhìn thấy trong huyệt Lưu Uyển Quân có một lớp màng thịt dày hơn nữ thường rất nhiều; trên mặt đầy nếp nhăn là sự ghen.
+Khi Phương đại nhân nhìn thấy trong động thịt Lưu Uyển Quân có lớp màng thịt dày hơn nữ thường rất nhiều, trên gương mặt đầy nếp nhăn là sự ghen tị không giấu nổi.
 
-Đây là màng trinh thượng phẩm. Hắn chơi xử nữ bao năm, cũng chỉ gặp hai người màng dày, nhưng đều không dày bằng cái này. Nhớ cảnh từng chơi hai nô lệ xử nữ kia, Phương đại nhân đã khô miệng, hỏi:
+Lớp màng trinh này thực là thượng thượng phẩm. Hắn chơi xử nữ bao nhiêu năm, cũng chỉ gặp hai người màng dày, nhưng đều không dày bằng cái trước mắt. Nhớ lại cảnh từng vờn chơi hai nô lệ xử nữ kia, Phương đại nhân đã khô miệng khát cổ, hỏi:
 
-— Trần huynh có ngại Phương mỗ thăm thử cái động này không?
+— Trần huynh có ngại Phương mỗ thăm thử cái động dâm này không?
 
-— Ngươi ta còn khách khí gì, cứ chơi.
+— Ngươi ta còn khách khí gì, cứ chơi là được.
 
-Trần lão gia được cực phẩm, khoái trá hư vinh, phất tay để Phương đại nhân chơi Lưu Uyển Quân.
+Được cực phẩm như vậy, Trần lão gia hư vinh cũng thỏa mãn vô cùng, phất tay áo một cái, để Phương đại nhân chơi Lưu Uyển Quân.
 
-Nghe lời thô, Lưu Uyển Quân vừa giận vừa thẹn: nàng còn hoàn bích, sao gọi là “động dâm”? Lão này mới là lão dâm côn! Nhưng nàng chưa kịp nghĩ, ngón tay thô đã nhét đầy chỗ kín, đầu ngón chọc màng dày, móng tay cào đi cào lại trên đó.
+Nghe lời thô tục của Phương đại nhân, Lưu Uyển Quân vừa giận vừa thẹn: nàng còn là xử nữ hoàn bích, sao gọi là “động dâm”? Chính hắn mới là lão dâm côn! Nhưng chẳng kịp để nàng suy nghĩ, một ngón tay thô ráp của nam nhân đã nhét đầy chỗ kín nàng, đầu ngón chọc thử màng trinh, móng tay cào đi cào lại trên đó.
 
-Chơi một hồi, ngón ấy còn tì màng dày mà đẩy mạnh vào. Màng nàng dẻo dai; nam nhân có kinh nghiệm, đẩy màng lõm vào trong, nhưng nó căng cứng không rách. Lưu Uyển Quân chỉ thấy trong huyệt như bị kéo giật, khó chịu, sợ đến không dám thở mạnh, mặt trắng nhìn trân trân xà nhà. Không biết bao lâu, trò nhục mài mới dừng; ngón tay rút, nàng mới dám thở.
+Vờn chơi một hồi như vậy, ngón tay ấy còn tì vào màng dày của nàng dùng sức đẩy vào trong. Màng nàng cực kỳ dẻo dai, nam nhân lại có kinh nghiệm, đẩy màng lõm vào trong, nhưng nó căng cứng mãi không rách. Lưu Uyển Quân chỉ cảm thấy trong huyệt có thứ gì bị kéo giật qua lại, khó chịu vô cùng, sợ đến mức không dám thở mạnh, mặt tái nhợt nhìn chằm chằm xà nhà cao. Không biết bao lâu, trò nhục nhã mài người ấy mới kết thúc, ngón tay nam nhân rút ra, nàng mới dám thở phào.
 
 — Diệu thay, diệu thay!
 
-Phương đại nhân nhìn huyệt xử đã khép của Lưu Uyển Quân, dư vị chưa tan. Chỉ riêng sờ lớp màng ấy hắn đã tưởng tượng được lúc đâm rách, thiếu nữ vùng vẫy dữ, mặt đau. Khi ấy hắn sẽ cắm vào huyệt non, mỗi lần tì màng đến cực hạn mà không đâm rách, thưởng thức vẻ hoảng và nhẫn; chơi vài ngày đã đời, rồi mới từ từ vào, vừa ngắm thiếu nữ bị côn thô từng chút ép rách màng dày, sâu cắm đến bào cung……
+Phương đại nhân dư vị chưa tan, nhìn huyệt xử nữ đã khép của Lưu Uyển Quân. Chỉ riêng sờ lớp màng thịt ấy hắn đã tưởng tượng được lúc đâm rách nó, thiếu nữ vùng vẫy kịch liệt, gương mặt đau đớn. Khi ấy hắn sẽ cắm vào huyệt non ấy, mỗi lần đẩy màng thịt đến cực hạn mà không đâm rách, thưởng thức vẻ hoảng hốt khó nhịn của thiếu nữ, cứ thế lặp đi lặp lại, chơi thỏa vài ngày, đợi chơi đủ rồi mới từng chút từng chút vào huyệt ấy, vừa ngắm thiếu nữ bị côn thô của hắn từng chút ép rách màng dày, đâm sâu đến bào cung với vẻ mặt tuyệt diệu.
 
-Đáng tiếc, cực phẩm này hắn không hưởng được.
+Chà chà, đáng tiếc thay, cực phẩm lần này hắn vô phúc hưởng dùng!
 
 ---
 
@@ -2217,7 +2291,7 @@ Mọi việc xong xuôi, Hạ Hầu Không trở về án trước. Phượng n�
 Hạ Hầu Không không để ý đến bà ta. Bà ta liền hành lễ, quay sang bảo Vân thả Nghê Nhược xuống:
 
 "Được rồi, đi rửa mặt dùng bữa đi. Vẫn là canh giờ đó, tới phòng truyền nghệ."
-## Chương 41  Nghe giảng “tọa liên”
+## Chương 41  Tận mắt chứng kiến người khác bị điều giáo
 
 Nghi Nhược kẹp mộc thế, bước nhỏ ra khỏi Hạ Hầu viện thì Vân và một cô nương bếp bưng bữa sáng của Hạ Hầu Không vào. So với nàng hôm nay chỉ bánh bao thịt với sữa đậu, bữa của hắn phong phú hơn hẳn: ngoài bánh bao và sữa đậu còn có cháo thịt băm rau, một đĩa sủi cảo hấp không biết nhân gì, kẹo bánh giòn, và một ấm trà.
 
@@ -2854,7 +2928,7 @@ Huyệt mẫn bị cắm mạnh, Nghi Nhược siết, giọng cũng run.
 
 Trụ thịt rút chút, lại xông thẳng vào, đâm trúng cửa cung yếu. Huyệt nước bị hắn đâm “chụt” một tiếng, hắn bắt đầu thụt có nhịp, thịt non lập tức hút quấn.
 
-Ghế điều giáo được Vân chỉnh đúng độ cao hắn dùng, hắn không cần gắng sức cũng có thể đâm sâu. Hạ Hầu Không nhìn mặt nhỏ ửng đỏ, vừa địt vừa hỏi:
+Ghế điều giáo được Vân chỉnh đúng độ cao hắn dùng, hắn không cần gắng sức cũng có thể đâm sâu. Hạ Hầu Không nhìn mặt nhỏ ửng đỏ của nàng, vừa đâm vừa hỏi:
 
 — Còn nhớ hôm qua học gì không?
 
@@ -2868,69 +2942,150 @@ Giọng hắn trầm ra lệnh, không cho nàng lười. Nghi Nhược cắn m�
 
 ---
 
-## Chương 52  Không được thả
+## Chương 52  Đối nàng khác với nữ nô khác
 
-Hạ Hầu Không chậm nhịp thụt hai cái, cảm độ chặt đã đủ, liền nói:
+Hạ Hầu Không chậm tốc độ đâm rút hai nhát, cảm nhận độ chặt của nàng, thấy đạt rồi, bèn nói:
 
-— Cứ siết như vậy. Đừng thả.
+— Cứ vậy nén lực, đừng thả.
 
-— Vâng…… a a!
+— Vâng…… à à!
 
-Nghi Nhược vừa đáp, hắn đã tăng lực đâm dồn dập. Cự long nhát nhát không nương tay xông vào tận cùng, nện cửa cung; huyệt nàng chua ngứa run rẩy, thân rung. Nàng lại không được thả lỏng, chỉ có thể nghiêm túc siết chặt huyệt, cảm rõ hắn phá vách thịt từng lớp.
+Nghi Nhược chưa dứt lời, hắn đã tăng lực đâm nhanh, cự long nhát nhát không nể nang đâm sâu, đập vào cửa cung, địt nàng huyệt nhục chua ngứa, toàn thân run, lại không được thả, chỉ có thể chuyên tâm siết chặt huyệt hẹp, cảm nhận rõ hắn phá từng lớp thịt thành thế nào.
 
-Tiếng nước “chụt chụt” càng vang, Nghi Nhược kêu dài chịu không nổi. Bị cố định trên ghế điều giáo để nam nhân sâu địt, nàng chợt nhớ cảnh Tư Dĩ Dương đè Hà Kiều Kiều địt hôm qua. Dù Hạ Hầu Không không hung như Tư Dĩ Dương, người nằm dạng chân chịu địt rốt cuộc vẫn là nàng.
+— À à…… ừm, ư, à à à……
 
-Hạ Hầu Không thấy Nghi Nhược phân tâm, liền hất eo mấy cái, sâu đâm bào cung nhắc nàng. Động tác này vừa kéo nàng về, vừa kích nàng; nàng kêu gấp hai tiếng rồi co siết hoa huyệt mà tiết. Hạ Hầu Không bất ngờ bị nàng kẹp rên như vậy, suýt kết thúc sớm.
+Hoa bạch trắng non bị Hạ Hầu Không đập đỏ, tiếng nước "tí tách" đáng thẹn dưới sự đâm của hắn càng vang, tiếng kêu của Nghi Nhược càng dài khó chịu.
 
-Nàng khi nào mẫn đến vậy?
+Bị cố định trên ghế điều giáo để nam nhân đâm sâu như vậy, Nghi Nhược không khỏi nhớ hôm qua, cảnh Tư Dĩ Dương cúi người đâm mạnh Hà Kiều Kiều.
 
-Hạ Hầu Không nhìn mặt nàng còn dư triều, hỏi:
+Dù Hạ Hầu Không không đâm mạnh như Tư Dĩ Dương, nhưng người nằm dang chân để địt, rốt cuộc cũng đến lượt nàng.
 
-— Vừa rồi ngươi nghĩ gì?
+Phát hiện Nghi Nhược phân tâm, Hạ Hầu Không eo khỏe đâm mấy nhát, đâm sâu bào cung nhắc nhở, không ngờ động tác ấy vừa gọi lại chú ý nàng vừa kích thích sâu, nàng kêu gấp hai tiếng, rồi siết chặt huyệt hoa mà xuất.
 
-— Không……
+— ……
 
-Nghi Nhược yếu ớt đáp, mắt dán hoa văn tinh xảo trên áo bào đen hắn. Giọng ấy với Hạ Hầu Không lại mềm đến ngứa tim. Hắn lập tức tăng nhịp; lần này càng dữ, đâm nện hoa tâm.
+Hạ Hầu Không không phòng bị, bị nàng kêu mê siết chặt như vậy, suýt kết thúc buổi điều giáo sớm.
 
-— A…… a a——
+Nàng từ lúc nào mẫn cảm đến vậy?
 
-Hắn thấy nàng nói dối nên phạt sao? Huyệt nàng vừa tiết lại bị đâm như vậy, thịt huyệt đều run, nhũ cũng bị đụng lắc. Hạ Hầu Không nhìn dấu đầu nhũ nhô dưới điều giáo phục, đưa tay tháo dây eo, vén điều giáo phục, thân nàng và đôi nhũ đầy lộ ra trước mắt.
+Nhìn gương mặt Nghi Nhược chưa hết sóng tình, Hạ Hầu Không hỏi:
 
-Hắn nắm đôi nhũ mà vò mạnh, xoa đầu nhũ đến đỏ thắm. Nghi Nhược đau rên; hắn mặc kệ, tay vẫn vò nhũ, dưới thân vẫn không ngừng đâm.
+— Ngươi vừa nghĩ gì?
 
-So với dùng sức mài phẳng gợn lòng và trốn tránh, chi bằng cứ đối nàng như hiện tại: chứng minh hắn có thể đối nàng như đối mọi nữ nô khác, không khác gì.
+— Không có……
 
-— Đại nhân…… đau…… nhẹ chút……
+Nghi Nhược trả lời yếu ớt, ánh mắt rơi vào hoa văn tinh xảo trên áo đen của hắn.
 
-Ngoài phòng điều giáo, Vân đứng hầu cũng nghe tiếng thiếu nữ khóc rên đứt quãng, không khỏi bật cười: nha đầu đúng ngây thơ; Bộ điều giáo chưa từng có “nhẹ” như nói là nhẹ.
+Giọng ấy với Hạ Hầu Không nghe mềm vô cùng, trong lòng ngứa, eo mông lại động, lần đâm rút này mãnh liệt hơn lúc nãy, đâm mạnh vào hoa tâm nhỏ.
 
-Đại nhân Hạ Hầu xưa nay đối nha đầu này có chút ôn — dù không rõ, Vân vẫn nhìn ra ở tiểu tiết: hắn đối nàng khác những nữ nô trước. Nhưng hôm nay điều giáo dữ vậy là lần đầu. Như vậy mới “bình thường”; xem ra đại nhân Hạ Hầu dần tìm lại trạng thái điều giáo.
+— À…… à à——
+
+Hắn đây là, phát hiện nàng nói dối nên trừng phạt?
+
+Huyệt hoa vừa cao trào bị địt như vậy, toàn bộ thịt huyệt đều chấn động, đôi nhũ càng bị đập lung lay không ngừng, đầu nhũ cong nhô đẩy điều giáo phục lên.
+
+Hạ Hầu Không nhìn chằm chằm vết in đầu nhũ nhỏ dưới điều giáo phục của Nghi Nhược, đưa tay kéo dây buộc eo nàng, vén điều giáo phục, thân ngọc đẹp đẽ, đôi nhũ tròn đầy của nàng lộ ra trước mắt.
+
+Bàn tay nắm đôi mỹ nhũ dùng lực nắn bóp, đầu nhũ non cũng bị hắn vê tròn bóp dẹt, từ hồng nhạt thành đỏ thắm.
+
+Bỏ qua tiếng rên đau của Nghi Nhược, Hạ Hầu Không tiếp tục nắn đôi nhũ non, hạ thân vẫn không ngừng đung đưa.
+
+Thay vì dùng hết sức để dẹp sóng dậy, để trốn tránh, chi bằng cứ đối nàng như bây giờ, chứng minh hắn có thể đối nàng như đối nữ nô khác, không khác gì.
+
+— Đại nhân…… đau…… nhẹ, nhẹ chút……
+
+— À à à……
+
+Vân hầu ngoài phòng điều giáo đều nghe được tiếng khóc rên đứt quãng của thiếu nữ, không khỏi thấy buồn cười.
+
+Tiểu cô nương thật ngây thơ, bộ điều giáo từ trước đến nay chưa có giáo quan nào nói nhẹ là nhẹ.
+
+Đại nhân Hạ Hầu vốn đối tiểu cô nương này ôn nhu, dù không rõ ràng, nàng vẫn nhìn ra từ chi tiết, hắn đối nàng khác với nữ nô trước đây.
+
+Hôm nay điều giáo kịch liệt như vậy mới là lần đầu.
+
+Đây mới là bình thường, xem ra đại nhân Hạ Hầu dần tìm lại trạng thái điều giáo nữ nô rồi.
 
 Thiếu nữ dần im. Vân dỏng tai; lát sau cửa lớn bật mở, Hạ Hầu Không ôm ngang Nghi Nhược đã ngất bước ra. Nghi Nhược nhắm mắt, toàn thân đỏ, điều giáo phục tuy mặc đủ nhưng nhăn nhúm, đủ thấy chiến cuộc dữ.
 
-Hôm qua Tư giáo quan “mở cung” làm người ngất; hôm nay Hạ Hầu giáo quan cũng địt Nghi Nhược ngất — chẳng lẽ cũng đã mở cửa cung nàng?
+Hôm qua Tư giáo quan "mở cung" làm người ngất; hôm nay Hạ Hầu giáo quan cũng địt Nghi Nhược ngất — chẳng lẽ cũng đã mở cửa cung nàng?
 
 ---
 
-## Chương 53  Ngất vì sướng
 
-Vân phúc Hạ Hầu Không rồi lùi nhường đường. Hắn không dặn gì, chỉ ôm Nghi Nhược đi, hướng không phải Vãn Xuân Các mà là Hạ Hầu viện.
+## Chương 53 Muốn ngửi mùi hương nàng thêm
 
-Vân vào nội thất dọn. Trên đất có nhiều dịch: có trong, có trắng bọt; nhưng không có máu như nàng tưởng khi Hà Kiều Kiều. Ngọc thế nới huyệt dính đầy dịch, bóng như ngọc.
+Hai vị giáo quan này…… chẳng lẽ đang thi đấu mở cung khẩu?
 
-Nhớ lại mặt và thân Nghi Nhược đỏ hồng lúc nãy, xem ra nàng chỉ bị địt ngất mà thôi.
+Vân hướng Hạ Hầu Không phủ thân, lùi vài bước nhường đường, hắn không dặn dò gì, chỉ ôm Nghi Nhược đã ngất đi mà đi, đi về hướng Hạ Hầu viện chứ không phải Vãn Xuân Các.
+
+Vân bước vào nội thất dọn dẹp, dưới đất rơi vãi nhiều nước dâm, có trong suốt, cũng có bị đảo thành bọt trắng, không có máu như Hà Kiều Kiều như nàng dự đoán.
+
+Còn ngọc thế dùng để nong huyệt kia, trên đó càng đầy nước dâm, bọc ngọc thế óng ánh.
+
+Nhớ lại sắc mặt và thân thể ửng hồng của Nghi Nhược vừa rồi, có vẻ nàng chỉ bị địt ngất đi mà thôi.
 
 ……
 
-Hạ Hầu Không ôm Nghi Nhược về phòng Hạ Hầu viện, đặt nàng lên giường. Đây là lần đầu hắn ôm nàng, cũng là lần đầu hắn ôm một nữ nhân. Thân mềm của nàng có hương thanh nhạt khiến hắn muốn hít thêm; nhưng lý trí vẫn khiến hắn đặt xuống ngay.
+Hạ Hầu Không ôm Nghi Nhược về phòng trong Hạ Hầu viện, đặt nàng lên giường.
 
-Đắp chăn che thân thể dụ người, Hạ Hầu Không nhìn mặt nàng còn ửng đỏ. Mày nàng hơi nhíu, mắt nhắm, như vẫn chưa thoát khỏi dư vị cao trào cuối. Hắn nhìn gương mặt nhỏ đã nếm dục, khóe môi bất giác cong một nét cưng chiều.
+Đây là lần đầu hắn ôm nàng như vậy, cũng là lần đầu ôm một người con gái.
 
-Nàng thật chẳng chịu địt.
+Thân mềm mại của nàng tỏa hương thơm nhẹ nhàng, khiến hắn muốn ngửi thêm chút nữa, nhưng lý trí vẫn khiến hắn đặt nàng xuống ngay.
 
-Chỉ bị hắn đâm sâu và lên đỉnh hai lần đã chịu không nổi ngất. Hắn suýt tưởng mình không khống lực mà “mở cung” nàng, nên rút ra, dùng ngón thăm; may chỉ là bị hắn đâm mềm chút, tiểu khẩu vẫn khép.
+Đắp chăn cho Nghi Nhược, che đi thân thể nữ quyến rũ ấy, Hạ Hầu Không nhìn gương mặt vẫn hơi ửng hồng của nàng, nàng nhíu mày, đôi mắt khép chặt, tựa như chưa thoát khỏi sự khó chịu của lần cao trào cuối cùng.
 
-Nhận ra mình đang nhìn nàng mà cười, Hạ Hầu Không sững; ý cười tắt, nét mặt lạnh hơn trước. Một lúc lâu hắn đứng dậy, thân hình dài bước ra ngoài.
+Hạ Hầu Không ngắm gương mặt no đủ dục tình của nàng, khóe môi nổi lên nụ cười chiều chuộng.
+
+Tiểu đồ vật này chẳng chịu địt được bao nhiêu.
+
+Chỉ bị hắn đâm sâu, lại cao trào hai lần, đã chịu không nổi ngất đi, hắn suýt tưởng mình không khống chế được lực độ đã mở cung khẩu nàng, rút khỏi trong người nàng, dùng ngón tay thăm dò hoa tâm, nhưng chỗ ấy chỉ bị hắn đâm mềm chút ít, tiểu khẩu vẫn khép kín.
+
+Phát hiện mình nhìn nàng mà cười, Hạ Hầu Không giật mình, nụ cười trên môi biến mất, thần sắc lạnh lùng hơn trước.
+
+Hồi lâu, hắn đứng dậy, bóng dáng thon dài bước ra ngoài.
+
+*********
+
+Khi Nghi Nhược tỉnh lại thì đã hoàng hôn, trở mình liền cảm thấy thân dưới nhét có một ngọc thế quen thuộc.
+
+Nàng…… ngất đi rồi sao?
+
+Nhớ lại tình hình cuối cùng trước khi mất ý thức, nàng cảm thấy trong người có gì đó sắp phá cửa mà ra, hoa tâm sâu thẳm lại bị hắn đâm đến không thể dừng, cầu hắn nhẹ một chút không được, rồi đầu óc nàng trống rỗng, chuyện sau đó không biết nữa.
+
+Đúng rồi! Nàng nhớ Hạ Hầu Không vén điều giáo phục của nàng, vậy nàng……
+
+Nín thở vén chăn, Nghi Nhược thấy điều giáo phục vẫn mặc chỉnh chu trên người, dây buộc cũng thắt chặt, thở phào nhẹ nhõm.
+
+Nàng còn tưởng Hạ Hầu Không như Tư Dĩ Dương, không màng gì ôm nàng trần truồng đi ngang các viện.
+
+May mà không có!
+
+Phát hiện mình nằm ở mép ngoài giường, Nghi Nhược chợt nghĩ ra, nàng nằm ở vị trí của Hạ Hầu Không, đắp cũng là chăn chiếu của hắn, hơi thở hắn quấn quanh đầu mũi.
+
+Là Hạ Hầu Không đặt nàng ở đây sao?
+
+Nghi Nhược mặt nóng bừng, vội vén chăn đứng dậy. Hạ Hầu Không không lo ánh mắt người khác, nhưng nếu bị Phượng nương hay Vân thấy nàng nằm trong chăn chiếu của hắn, chẳng biết sẽ bị phạt gì!
+
+……
+
+Hạ Hầu Không mãi đến giờ Hợi mới về, bảo Vân chuẩn bị nước nóng tắm rửa.
+
+Tắm xong, hắn ra thấy Nghi Nhược ngồi trước bàn thẫn thờ, liền bảo nàng nằm bên giường dang chân.
+
+Hắn từ tiểu xa gỗ bên đầu giường lấy cao khử âm do Phượng nương để lại, xúc một miếng nhỏ, bôi đều lên hoa bạch mềm mại chứa ngọc thế của Nghi Nhược.
+
+Bôi xong, ngón tay dài có lực của hắn nhờ lớp cao trơn ấy, trên hoa bạch nàng đẩy ép xoa bóp.
+
+Nghi Nhược bị hắn xoa đến đùi tê dại, cuối cùng nhịn không được mở miệng:
+
+— Đại nhân…… Nghi Nhược tự làm được……
+
+Bị hắn chăm chú nhìn chỗ ấy mà xoa bóp, nàng thật sự quá xấu hổ!
+
+Hạ Hầu Không chẳng ngẩng mắt lên:
+
+— Cao này phải đàn ông bóp mới có hiệu.
 
 ---
 
@@ -2958,9 +3113,11 @@ Bị hắn chăm chú nhìn chỗ đó mà xoa, nàng thật sự thẹn quá! H
 
 ---
 
-## Chương 54  Đa tạ ngài
+## Chương 54  Chẳng chịu mở miệng cầu hắn địt
 
-Để nữ nô bị nam giáo quan tự tay đùa nghịch nhiều hơn, dược cao Dưỡng Xuân phòng chế đa phần phải qua da nam nhân mới phát huy. Hôm trước Phượng nương xin hắn bôi cao đi âm cho Nghi Nhược, hắn hỏi “còn như trước” chính là hỏi điểm này.
+Để nữ nô được nam giáo quan tự tay đùa nghịch nhiều hơn, dược cao Dưỡng Xuân phòng chế đa phần phải qua da nam nhân mới phát huy. Sáng hôm trước Phượng nương xin hắn bôi cao khử âm cho Nghi Nhược, hắn hỏi "còn như trước" chính là hỏi điểm này.
+
+— ……
 
 Thì ra còn có cao như vậy! Vậy sau này mỗi lần dùng, đều phải hắn tự xoa huyệt nàng sao?
 
@@ -2980,13 +3137,15 @@ Nàng cố ý ngoan một chút: mong hắn ngày sau vẫn giữ cho nàng như
 
 Nhưng lời tạ cũng chân thành. Vì hắn luôn vô hình giữ cho nàng chút tôn nghiêm hèn mọn; lần này cũng vậy, không để nàng như Hà Kiều Kiều, bị địt ngất rồi tôn nghiêm sạch.
 
+— ……
+
 Hạ Hầu Không không đáp; thân hắn quay lưng cũng không động. Nghi Nhược tưởng hắn ngủ, thì nghe hắn trầm thấp:
 
 — Ngủ đi.
 
 — Vâng!
 
----
+*********
 
 Mấy ngày sau, Tư Dĩ Dương và Hà Kiều Kiều đều không xuất hiện. Nghi Nhược mỗi ngày trong nội thất chịu đủ loại điều giáo; việc nới huyệt bằng khí cụ đa phần Vân phụ trách. Hạ Hầu Không thì mỗi ngày dùng ngón tay trêu chỗ kín: hoặc vặn hạt châu, hoặc thọc ngón vào huyệt, khiến nàng xuân triều cuồn cuộn, rồi bỏ nàng đó, không làm gì.
 
@@ -2996,55 +3155,80 @@ Nghi Nhược da mặt mỏng; dù bị hắn làm ướt tràn, chua ngứa kh�
 
 ---
 
-## Chương 55  Cố tình câu nàng
 
-Gặp kẻ bướng như vậy cũng là khảo nghiệm tay nghề điều giáo của hắn. Vừa hay hắn có thể nghiên cứu cách khiến nàng mở miệng. Vì thế hai ngày này hắn còn bảo Vân dừng cả việc nới huyệt: huyệt nàng ngoài mỗi ngày bị ngón hắn chơi, tuyệt không được ngậm bất kỳ khí cụ nào khác; chua ngứa hắn khơi cũng không được giải.
+## Chương 55 Nàng còn non lắm
 
-Trước đó nàng còn có thể nhờ ngọc thế nới huyệt mà an ủi chút khó chịu; nay thiếu nửa canh giờ mỗi ngày ngậm ngọc thế, quả nhiên nàng càng khó chịu, bắt đầu mong hắn mỗi ngày chơi nàng, mong ngón hắn thọc vào mang khoái, coi việc ấy là đường giải duy nhất.
+Gặp phải kẻ ngoan cố như vậy, cũng là thử thách kỹ thuật điều giáo của hắn. Đúng lúc, hắn có thể nghiên cứu cách khiến nàng mở miệng.
 
-Hạ Hầu Không hiểu tâm tư nhỏ của nàng, nên lại rút ngắn thời gian trêu huyệt. Mỗi lần vừa vào đã đánh thẳng “yếu huyệt”, cho nàng được giải chút xíu rồi lại để trống lớn hơn. Hai ngày vậy, Nghi Nhược bắt đầu thường nghĩ đến giao hợp với hắn, thậm chí suýt mở miệng cầu, chỗ kín lúc nào cũng ẩm.
+Vì vậy hai ngày qua hắn liền cho Vân ngừng cả điều giáo nong huyệt của nàng, khiến hoa huyệt nàng ngoài việc mỗi ngày bị ngón tay hắn nhét vào vờn vẽ ra, không được chứa bất kỳ vật dụng nào khác, sự ngứa ngáy trong huyệt do hắn kích thích cũng không được giải tỏa chút nào.
 
-Nhưng hễ nhịn qua đợt triều khó nhất, nàng lại mím miệng không nói.
+Vốn còn có thể nhân lúc nhét ngọc thế nong huyệt mà xoa dịu chút khó chịu trong huyệt, nhưng giờ trong huyệt thiếu đi ngọc thế mỗi ngày nhét nửa canh giờ ấy, Nghi Nhược quả nhiên càng ngày càng khó chịu, bắt đầu mong đợi sự vờn vẽ mỗi ngày của Hạ Hầu Không, mong hắn đưa ngón tay vào chỗ kín nàng mang lại khoái cảm, coi quá trình kích thích này là con đường giải tỏa duy nhất.
+
+Hắn hiểu tiểu tâm tư của nàng, nên rút ngắn thời gian kích thích huyệt ướt của nàng, mỗi lần đều vừa lên là đánh thẳng "yếu hại", khiến nàng sau khi được giải tỏa chút ít lại đón nhận khoảng trống lớn hơn.
+
+Hai ngày qua như vậy, Nghi Nhược bắt đầu thỉnh thoảng nghĩ đến chuyện giao hợp với hắn, thậm chí suýt mở miệng cầu xin, ngay cả chỗ kín cũng luôn ướt đẫm.
+
+Nhưng hễ nàng chịu qua được đợt sóng tình khó chịu nhất ấy, lại khép chặt miệng không muốn nói nữa.
 
 ……
 
-Sơ nữ mỗi năm ngày phải đến hồ thuốc lớn của bộ, trần thân ngâm một loại thang đặc chế; không ai nói đó là gì. Ngâm nửa canh giờ, da họ mịn hơn, mềm hơn; tự sờ cũng lưu luyến.
+Sơ nữ mỗi năm ngày phải đến hồ nước lớn của Bộ điều giáo, trần truồng ngâm mình trong một loại thuốc sắc đặc chế. Không ai nói cho họ biết thuốc sắc ấy là gì. Sau nửa canh giờ ngâm, da thịt họ trở nên mịn màng mềm mại hơn, ngay cả chính họ sờ vào cũng lưu luyến không rời.
 
-Hôm Hình Lộ đến ngâm, cởi điều giáo phục, đôi nhũ nhỏ như trái tỳ bà đầy dấu ngón đỏ, đầu nhũ càng đỏ thắm. Nghi Nhược thấy, hỏi sao. Hình Lộ ấp úng nói: trước khi đến hồ thuốc bị giáo quan vò. Nghi Nhược nghe mà xót, an ủi; hai người co trong một góc hồ mà trò chuyện.
+Hình Lộ đến hồ thuốc ngâm, cởi bỏ điều giáo phục, đôi nhũ nhỏ cỡ quả tỳ bà đầy vết ngón tay đỏ tươi, nhũ đầu càng đỏ thắm muốn chảy.
 
-Một lúc, Lô Yên Nhiên đến, nhìn xa thấy Điền Tiểu Miêu bèn nói nhỏ “nhìn kìa”. Nghi Nhược và Hình Lộ nhìn: Điền Tiểu Miêu vừa xuống hồ, thân trên đầy dấu vết loang lổ — vết “được nam nhân yêu” để lại.
+Nghi Nhược trông thấy, hỏi Hình Lộ đây là chuyện gì, Hình Lộ ấp a ấp úng nói đây là do giáo quan vò nắn trước khi đến hồ thuốc. Nghi Nhược nghe xong, đau lòng an ủi nàng, hai người co rúm một góc hồ thuốc trò chuyện.
 
-Trước đó Lô Yên Nhiên nói Điền Tiểu Miêu đối điều giáo vừa thuận vừa nịnh. Có lần nàng thấy Điền Tiểu Miêu đi cùng giáo quan, bèn lén theo, nhìn thấy giáo quan ở chỗ vắng kéo vạt áo nàng, từ sau đâm thẳng vào. Điền Tiểu Miêu đau ngửa cổ rõ là chịu không nổi, nhưng miệng vẫn nũng:
+Một lát sau, Lô Diên Nhiên đến, trò chuyện với họ vài câu, thấy Điền Tiểu Miêu ở xa, liền nói nhỏ:
 
-— Đại nhân hùng mãnh, vào tiểu nô đau sướng!
+— Mau xem! Điền Tiểu Miêu.
 
-Hình Lộ nghe lúc đó “phì” cười: phải, “đau” sướng. Lô Yên Nhiên càng khinh Điền Tiểu Miêu, cho rằng nàng ta nô nhược nịnh bợ, còn chủ động cầu nhục chơi lại nịnh. Làm vậy chắc muốn xin khảo hạch thăng giai sớm, bỏ qua Thấp nữ mà vào Sắc nữ!
+Nghi Nhược và Hình Lộ theo ánh mắt nàng nhìn sang, Điền Tiểu Miêu đang bước vào hồ thuốc, thân trên quả nhiên đầy vết tích lốm đốm.
 
-Nghi Nhược vừa kinh vừa hiểu: làm vậy cũng để sống dễ chút thôi.
+Đó là dấu vết "yêu thương" của đàn ông để lại.
 
----
+Lô Diên Nhiên trước đây đã nói với họ, Điền Tiểu Miêu đối với điều giáo không chỉ trăm chiều nghe theo mà còn nịnh nọt chiều ý. Có lần nàng thấy Điền Tiểu Miêu đi cùng giáo quan, liền lén theo, rồi thấy vị giáo quan ấy ở chỗ vắng vẻ không người trong Bộ điều giáo vén điều giáo phục của nàng, từ phía sau trực tiếp đâm vào trong người Điền Tiểu Miêu.
 
-Vài ngày sau, Tư Dĩ Dương rốt cuộc trở lại lên ca. Hắn về trước hết đến thăm Hạ Hầu Không. Hai người ngồi nói ở lương đình, Tư Dĩ Dương liền chuyển sang Nghi Nhược:
+Điền Tiểu Miêu đau đớn ngửa đầu, rõ ràng chịu không nổi kiểu đâm thẳng thô bạo ấy, nhưng miệng lại nói giọng mê hoặc:
 
-— Tiểu cực phẩm Hạ Hầu huynh điều lần này, không biết tiểu đệ có được “mượn” một đêm không?
+— Đại nhân dũng mãnh, vào được tiểu nô thật sướng!
+
+Hình Lộ lúc ấy nghe xong, "phụt" cười phá lên.
+
+Chẳng phải "đau" sướng sao!
+
+Vì vậy Lô Diên Nhiên rất khinh thường Điền Tiểu Miêu, cho rằng Điền Tiểu Miêu là kẻ nô tài nịnh nọt, chủ động cầu nhục còn phải nịnh nọt hầu hạ, hành sự như vậy có vẻ muốn xin sớm khảo hạch giai vị, nhảy qua thấp nữ, tiến lên sắc nữ!
+
+Nghi Nhược quả thật kinh ngạc trước Điền Tiểu Miêu lần đầu vào thụ nghệ phòng còn hoảng hốt bị trừng phạt trước mặt mọi người, giờ lại có thể tích cực chiều theo điều giáo, đồng thời cũng hiểu nàng, làm vậy cũng là để sống dễ chịu hơn ở chốn này.
+
+*********
+
+Vài ngày sau, Tư Dĩ Dương cuối cùng trở lại Bộ điều giáo nhận việc. Hắn về xong liền đến thăm hỏi Hạ Hầu Không trước.
+
+Hai người ngồi trong lương đình trong viện trò chuyện ngắn, Tư Dĩ Dương liền chuyển đề tài sang Nghi Nhược:
+
+— Huynh Hạ Hầu lần này điều giáo tiểu cực phẩm, chẳng biết đệ có thể gặp một lần không?
 
 — Không được.
 
-Hạ Hầu Không đáp không do dự.
+Hạ Hầu Không không chần chừ đáp.
 
 Tư Dĩ Dương nhướng mày:
 
 — Vì sao?
 
-Hạ Hầu Không rót một chén rượu nhỏ, nhạt giọng:
+Trước đây chẳng phải hễ hắn mở miệng, Hạ Hầu huynh vung tay áo là cho phép sao?
 
-— Nàng còn non.
+Rồi hắn có thể cùng những cực phẩm Hồi Xuân Các đó vui vẻ thỏa thích, sao lần này lại không được?
+
+Hạ Hầu Không tự châm một chén rượu nhỏ, giọng không chút dao động:
+
+— Nàng còn non lắm.
 
 ---
 
-## Chương 56  Các Sơ nữ mơ ra phố
+## Chương 56  Cầu đại nhân…… đâm Nghi Nhược
 
-Tư Dĩ Dương ngơ ngác nhìn Hạ Hầu Không rót rượu. Hắn thích nhất là địt nô non: non thì sướng; thân mẫn chạm là run, thọc là kêu, mặt đỏ thẹn, chẳng phải càng “đáng yêu” sao? Nhưng hắn biết điều; Hạ Hầu huynh nói không ắt có lý. Hắn nếu mặt dày hỏi nữa lại lộ sốt ruột.
+Tư Dĩ Dương ngơ ngác nhìn Hạ Hầu Không rót rượu. Hắn thích nhất là nô non khô ráo: huyệt non đâm mới sướng, thân nô non mẫn cảm sờ một cái đã run, thọc một cái đã kêu, mặt đỏ thẹn, chẳng phải càng “đáng yêu” sao? Nhưng hắn biết điều; Hạ Hầu huynh nói không ắt có lý. Hắn nếu mặt dày hỏi nữa lại lộ sốt ruột.
 
 Vậy…… nguyên do hắn sẽ tự tìm.
 
@@ -3074,75 +3258,95 @@ Hạ Hầu Không lau tay nghe giọng nàng do dự:
 
 Hắn ngừng, hơi nghiêng đầu. Nghi Nhược nằm ghế điều giáo; điều giáo phục bị hắn vén còn vắt nơi cổ, đôi nhũ trắng đẹp có vệt đỏ hắn vò vẫn rõ. Nghi Nhược run giọng, mặt quay chỗ khác, thẹn đến cực:
 
-— Cầu đại nhân…… địt Nghi Nhược……
+— Cầu đại nhân…… đâm Nghi Nhược……
 
 Hạ Hầu Không hơi bất ngờ. Hôm nay hắn chỉ đổi cách câu, kéo dài thời gian, nàng đã chịu không nổi? Nhưng nghĩ lại: nàng nhịn được nhiều ngày như vậy cũng không dễ.
 
 ---
 
-## Chương 57  “Xử nữ huyệt”
+## Chương 57 Đâm chỗ nào?
 
-Hạ Hầu Không đến giữa hai chân nàng, đầu ngón trỏ gảy một cái lên hạt châu lồi vì bị hành. Hạ thể Nghi Nhược co mạnh:
+Hạ Hầu Không đến trước đôi chân dang rộng của Nghi Nhược, đầu ngón trỏ gạt nhẹ lên cái tiểu hoa đài bị vùi dập nhô lên, nàng thân dưới co thắt mạnh mẽ.
 
-— Ư……
+— Ự——
 
-— Địt vào đâu?
+— Đâm chỗ nào?
 
-Hắn hỏi đồng thời cởi quần; vật dưới thân đã dựng thẳng. Nghi Nhược liếm môi, đỏ mặt:
+Vừa hỏi nàng, hắn vừa cởi dây lưng, vật cứng dưới thân đã cương trương sẵn sàng.
 
-— Địt…… địt vào…… huyệt…… huyệt của Nghi Nhược……
+— Đâm…… đâm……
 
-Trụ thịt tì miệng huyệt trơn nhầy; đầu tròn cọ mài thịt mẫn, dính dâm dịch, lại cứ không vào.
+Nghi Nhược liếm môi, mặt đỏ bừng nói:
+
+— Đâm…… đâm Nghi Nhược…… cái…… cái huyệt……
+
+Dương vật đặt sát cửa huyệt nhầy nhụa, đầu tròn cọ xát trên thịt non nhạy cảm nơi cửa huyệt, dính đầy nước thơm của nàng, nhưng vẫn không chịu vào.
 
 — Huyệt gì?
 
-Hắn hỏi tiếp.
+Người đàn ông tiếp tục hỏi.
 
-Nghi Nhược ngẩn: huyệt gì? Nàng nghĩ một chút, mặt nóng bừng:
+— ……
+
+Huyệt gì?
+
+Nghi Nhược ngẩn người, nghĩ một chút rồi mặt nóng bừng nói:
 
 — Huyệt xử nữ……
 
-— Nói lại.
+— Nói lại một lần nữa.
 
-Nghi Nhược nhíu mày, cắn môi, mông nhỏ không ngừng nâng muốn hắn nhét đầu nóng vào miệng huyệt chua ngứa. Nếu cứ vậy nàng thật muốn phát điên!
+Nghi Nhược nhíu mày, cắn chặt môi hồng, mông nhỏ không ngừng nâng lên, muốn đầu tròn nóng bỏng của hắn lấp đầy cửa huyệt ngứa ngáy, xoa dịu dục vọng của nàng.
 
-— Xin đại nhân…… địt…… huyệt xử nữ của Nghi Nhược……
+Cứ thế này nữa nàng thật sự phát điên mất!
 
-Vừa dứt, dương vật thô đã chống huyệt non, cắm thẳng đến tận —
+— Xin đại nhân…… đâm…… đâm…… huyệt xử nữ của Nghi Nhược……
 
-— A ha——
+Vừa dứt lời, dương vật thô to của người đàn ông liền xé mở u huyệt non mềm, đâm thẳng xuống đáy——
 
-Nghi Nhược bị đâm đến cứng người; huyệt mềm kẹp chặt cự long, lập tức lên đỉnh đã lâu không được chạm!
+— À ha——
 
-Nàng thở dốc thất thần; Hạ Hầu Không vẫn chôn trong người nàng, đưa tay mở lụa trói cổ chân nàng, nhấc hai chân khỏi bệ ghế, đặt cổ chân lên vai hắn. Như vậy, hai chân nàng gần như dựng thẳng dán lên thân hắn, hoa hộ càng “đón” hạ phúc rắn của hắn.
+Nghi Nhược bị đâm cho toàn thân giật mình, huyệt mềm siết chặt cây thương khổng lồ của hắn, trực tiếp đạt tới đỉnh khoái lạc lâu ngày chưa được thỏa!
 
-Hạ Hầu Không một tay ôm cố định hai chân nàng, eo bụng đẩy mạnh; hung khí tì chết cửa cung, lại ép sâu hơn —
+— Hà…… hà……
 
-— A a!
+Nghi Nhược thở dốc mất hồn, hai hạt nhũ đầu nhỏ nhô lên xinh xắn, Hạ Hầu Không vẫn đâm trong người nàng, đưa tay cởi dải lụa ở mắt cá chân nàng, nâng đôi chân non mềm của nàng lên khỏi bệ chân điều giáo, đặt mắt cá lên vai mình.
 
-Nghi Nhược chịu không nổi, ngửa đầu thét. Nhát này sâu chưa từng có; còn sâu hơn lần nàng tự ngồi mà động. Bụng nàng trướng đầy, nàng hoài nghi bào cung đã bị hắn chọc thủng!
+Như vậy, đôi chân Nghi Nhược gần như dựng thẳng áp sát thân Hạ Hầu Không, hoa hộ thiếu nữ càng hướng thẳng vào hạ thể săn chắc của hắn.
 
-Lưỡi thịt trong huyệt hẹp ra vào thoải mái, nhát nhát gõ cửa cung mong manh.
+Hạ Hầu Không một tay ôm chặt đôi chân nàng, eo bụng dùng sức đâm tới, hung khí đập mạnh vào cung khẩu nàng, đẩy sâu hơn nữa——
 
-— Sâu quá…… a a…… trướng quá, đại nhân……
+— À à!
 
-Nghi Nhược kêu. Tay nàng bị cố định hai bên ghế, chân lại bị hắn ôm, nàng chỉ có thể kêu, nằm ngoan để hắn đâm sâu nện mạnh.
+Nghi Nhược chịu không nổi ngửa đầu kêu lớn, nhát này vào sâu chưa từng có, sâu hơn cả lần nàng tự ngồi lên người hắn động nữa, bụng bị đẩy căng tràn, nàng nghi ngờ cung tử cung đã bị hắn chọc thủng rồi!
+
+Lợi nhận ra vào thoải mái trong u huyệt nhầy nhụa chật hẹp, mỗi nhát đều đâm cực sâu, không chút nể nang gõ vào cung môn mong manh của nàng.
+
+— Quá sâu rồi, à à à…… đầy quá, đại nhân……
+
+Nghi Nhược chịu không nổi kêu lên, muốn đưa tay đẩy hắn ra, nhưng hai tay đều bị cố định hai bên điều giáo, chân cũng bị hắn ôm trước ngực, ngoài động môi ra chỉ còn nằm yên chịu hắn đâm sâu đập mạnh nhanh chóng.
 
 — Còn sâu hơn nữa.
 
-Hạ Hầu Không nói. Hắn gập chân nàng, cúi thân dồn trọng lượng vào hạ thân nàng, dương vật lại vào sâu thêm —
+Hạ Hầu Không nghe vậy, gập đôi chân nàng lại, cúi người dồn trọng lượng xuống thân dưới nàng, dương khí lại vào sâu thêm mấy phần——
 
-Nghi Nhược trợn mắt, cảm giác từ chua trướng biến thành đau: như có thứ bị đội mở. Nàng sợ đến nín thở, cảm giác dồn cả vào nơi bị hắn chôn. Thấy biểu tình nàng là thật bị dọa, Hạ Hầu Không lùi ra chút, nâng chân nàng lại, rồi đâm vào; lần này không sâu như lúc dọa.
+— ……
 
-Hắn kỳ thực muốn nàng sớm chuẩn bị. Lúc sâu nhất vừa rồi, đầu rồng chỉ đội mở được một phần ba cửa cung. Cửa cung siết chết khiến hắn biết chưa tới lúc; muốn khai bào cung nàng triệt để còn phải lâu. Nếu không, nàng sẽ thành Hà Kiều Kiều thứ hai.
+Dương vật trong huyệt sâu đến đáng sợ, đến giờ phút trước vẫn chỉ là cảm giác căng tức, giờ trong bụng dưới đã có đau đớn, thật sự có gì đó sắp bị đẩy mở ra, khiến Nghi Nhược chỉ biết mở mắt, mọi giác quan dồn về chỗ bị hắn đâm sâu kia, không dám thở mạnh.
 
-Thấy Nghi Nhược vẫn chưa hết sợ, Hạ Hầu Không bỗng nói:
+Thấy biểu cảm mất hồn của nàng, thật sự bị dọa đến, Hạ Hầu Không rút lui một chút, lại nâng đôi chân nàng lên, nhục nhận ép lên thịt huyệt co rút lần nữa tiến vào, lần này không vào sâu như lúc dọa nàng.
 
-— Ngươi không cần quá lo. Ta không lỗ mãng như Tư Dĩ Dương.
+Kỳ thực hắn cũng muốn cho nàng chuẩn bị trước, nhân hôm nay huyệt nàng hưng phấn, lúc sâu nhất vừa rồi đầu tròn chỉ mới đẩy mở được một phần ba cung khẩu. Sự siết chặt ngạt thở của cung khẩu báo cho hắn biết, hiện tại chưa phải lúc, muốn khai phá hoàn toàn cung tử cung nàng còn cần thêm thời gian.
 
-Nghi Nhược nhìn gương mặt tuấn mà lạnh, không tiếng gật.
+Bằng không, nàng sẽ là Hà Kiều Kiều thứ hai.
 
-Hạ Hầu Không ôm chân nàng đâm sâu vô số nhát. Lần giao hợp đã lâu mới có kết thúc khi cửa cung mềm của Nghi Nhược bị hắn bắn đầy tinh nóng đặc.
+Thấy Nghi Nhược vẫn chưa hoàn toàn thoát khỏi bóng đen vừa bị dọa, Hạ Hầu Không nhịn không được thêm một câu:
+
+— Ngươi chẳng cần lo lắng quá, ta sẽ không cẩu thả như Tư Dĩ Dương.
+
+Nghi Nhược nhìn gương mặt tuấn dật lại lạnh nhạt của hắn, im lặng gật đầu.
+
+Hạ Hầu Không ôm đôi chân nàng đâm sâu vô số nhát, cuộc giao hợp lâu ngày chưa có này kết thúc sau khi tinh dịch nóng bỏng đậm đặc được bắn vào cung khẩu mềm nhũn của Nghi Nhược.
 
 ---
 
@@ -3449,79 +3653,98 @@ Nghi Nhược chấn động, nhất thời không tiêu hóa nổi. Quả thậ
 
 ---
 
-## Chương 62  “Đừng nói với Hạ Hầu huynh”
+## Chương 62  "Đừng nói với Hạ Hầu huynh"
 
-Nhìn Nghi Nhược, Tư Dĩ Dương đã đoán ra. Hắn không ngờ Hạ Hầu huynh giấu nha đầu này kỹ vậy: mấy tuyệt phẩm trước dù chỉ bị hắn địt qua, thân thể vẫn từng bị giáo quan khác nhìn rõ trong các cuộc tỷ thí. Hắn vò đủ ngực Nghi Nhược, liền bước tới giữa chân nàng.
+Thấy Nghi Nhược như vậy, Tư Dĩ Dương trong lòng đã có số, không ngờ Hạ Hầu huynh quý tiểu cô nương đến vậy. Hạ Hầu huynh trước đây điều giáo cực phẩm tuy chỉ bị hắn là giáo quan không chuyên địt qua, thân thể lại bị các giáo quan khác xem hết trong tỷ thí nữ nô.
+
+Vờn đủ ngực Nghi Nhược, Tư Dĩ Dương bước về phía chân nàng dang rộng.
 
 — Đừng…… đừng!
 
-Thấy hắn đến gần hoa hộ, Nghi Nhược giãy mạnh.
+Thấy hắn đến chỗ hoa hộ riêng tư nhất, Nghi Nhược giãy giụa kịch liệt.
 
-— Tiểu ngoan, đừng động. Động nữa, cây “gậy lớn” trong tiểu động non của ngươi sẽ rơi đấy.
+— Tiểu ngoan ngoãn, đừng động nữa, động nữa cây gậy to trong huyệt non của ngươi sắp rơi đấy.
 
-Tư Dĩ Dương “tử tế” nhắc. Nghi Nhược lập tức yên: nàng cảm được ngọc thế đang nặng dần dưới miệng huyệt, có dấu rơi; nàng vội siết huyệt kẹp chặt.
+Tư Dĩ Dương "thiện ý" nhắc nhở nàng.
 
-Tư Dĩ Dương nhìn bao hoa sạch lông của nàng, vật dưới thân lại căng thêm. Tay hắn đặt lên đầu gối nàng, lần xuống dọc đùi trong trắng mịn, rồi hỏi:
+— ……
+
+Nghi Nhược im lặng, nàng tuy không biết ngọc thế trượt ra bao nhiêu, cũng cảm thấy dưới miệng huyệt càng lúc càng nặng, là dấu hiệu ngọc thế đang rơi xuống, vội lại siết chặt huyệt nhỏ.
+
+Tư Dĩ Dương nhìn chằm chằm hoa bạch sạch không lông của Nghi Nhược, hung khí dưới thân lại phình to thêm, tay đặt lên đầu gối cong của Nghi Nhược từ từ đưa xuống, từng tấc vuốt ve đùi trong mịn màng:
 
 — Tỷ thí kẹp nho ngày kia, ngươi có tham gia không?
 
-Nói thì nói, tay hắn đã xoa ấn lên bao hoa mềm của nàng.
+Nói chuyện, ngón tay hắn đã đến hoa bạch mềm đàn hồi của Nghi Nhược xoa ấn.
 
-— A!
+— À!
 
-Nghi Nhược khẽ kêu, nhịn cảm lạ:
+Nghi Nhược kêu nhỏ, nhịn cảm giác lạ khi bị hắn vờn ve:
 
 — Không tham gia……
 
-Trong đầu nàng chỉ còn Hạ Hầu Không: mong hắn lập tức xuất hiện ngăn Tư Dĩ Dương. Nhưng…… không được! Bộ dạng nàng thế này mà bị Hạ Hầu Không thấy, nàng còn mặt nào? Hắn…… có ghét nàng bẩn không?
+Nàng sợ nam nhân này thật sự làm chuyện quá đà, lúc này đầu óc đầy Hạ Hầu Không, mong hắn xuất hiện ngay, ngăn Tư Dĩ Dương.
+
+…… Không! Không được!
+
+Bộ dạng mình như vậy nếu bị Hạ Hầu Không thấy, trước mặt hắn nàng sợ không còn ngẩng đầu lên được, mà hắn…… sợ sẽ chê nàng dơ thân chăng?
 
 — Hạ Hầu huynh không cho ngươi tham gia?
 
-Tư Dĩ Dương cười, tưởng tượng cảnh lỗ huyệt xinh của nàng sau khi rút ngọc thế vừa khép lại; nếu nhét nho vào, chỗ ấy mở khép ép nuốt, sẽ dâm đến mức nào.
+Hoa bạch trắng cánh hồng, thiếu nữ huyệt đẹp như vậy, hắn đều tưởng tượng được dáng huyệt nhỏ nhổ ngọc thế ra vừa khép lại, nếu trong đó nhét nho, một đóng một mở ép nuốt, chẳng biết là cảnh dâm mỹ thế nào?
 
-— Ta không muốn tham gia……
+— Thiếp không muốn tham gia……
 
-Nghi Nhược co huyệt, hai chân run vì dùng lực quá mạnh:
+Nghi Nhược siết huyệt nhỏ, hai chân vì căng thẳng quá mà run:
 
-— Tư đại nhân, xin ngài đừng làm nữa…… ô ô, đừng làm nữa……
+— Tư đại nhân, xin ngài, đừng nữa…… ư ư, đừng nữa……
 
-Thấy mặt nàng đỏ như muốn nhỏ máu, mắt đầy lệ, Tư Dĩ Dương dừng tay. Nàng không muốn tham gia, Hạ Hầu huynh cũng cho phép nàng cứ vậy bỏ? Trước kia nữ nô của Hạ Hầu huynh lần nào tỷ thí cũng phải dự, nhất là Bạch Tử Tuyên không biết bao lần đoạt đầu. Hạ Hầu huynh đối Nghi Nhược thật quá đặc biệt.
+Nhìn mặt đỏ bừng, mắt đầy nước mắt của Nghi Nhược, Tư Dĩ Dương dừng ngón tay.
 
-Thú vị rồi.
+Nàng không muốn tham gia, Hạ Hầu huynh cũng cho vậy sao? Nữ nô hắn trước đây mỗi tỷ thí đều phải tham gia, nhất là Bạch Tử Tuyên, không biết đoạt mấy lần đầu rồi, Hạ Hầu huynh đối tiểu Nghi Nhược này thật quá đặc biệt!
 
-Tư Dĩ Dương cười nhẹ, rút tay khỏi hoa hộ nàng:
+Xem ra, hắn phát hiện chuyện rất thú vị.
 
-— Không tham gia tốt. Ta mà là giáo quan ngươi, cũng không để ngươi tham gia.
+— Không tham gia tốt, ta mà là giáo quan của ngươi, cũng không cho ngươi tham gia.
 
-Nghi Nhược vẫn phòng bị, nghĩ thầm: Hạ Hầu Không đâu có cấm nàng dự; là nàng tự không muốn. Nam nhân này không chỉ chui chữ, còn nghe không hiểu lời người ta.
+Tư Dĩ Dương cười nhẹ, thu tay đang ấn lên hoa hộ Nghi Nhược.
 
-— Tiểu Nghi Nhược, chuyện hôm nay ngươi không được nói với Hạ Hầu huynh. Nếu nói……
+— ……
+
+Dù hắn buông tay, Nghi Nhược vẫn cảnh giác nhìn hắn, trong lòng nghĩ: lời hắn không đúng, Hạ Hầu Không không có không cho thiếp tham gia, là thiếp tự không muốn, nam nhân này ngoài thích đào bới còn không hiểu lời người.
+
+— Tiểu Nghi Nhược, chuyện hôm nay, ngươi không được nói với Hạ Hầu huynh, nếu nói cho hắn……
 
 Tư Dĩ Dương cố ý kéo dài.
 
-— … Thì sao?
+— …… Thế nào?
 
-Nghi Nhược rốt cuộc nhịn không hỏi, mắt tủi đầy lệ.
+Đợi mãi không nghe câu cuối, Nghi Nhược không nhịn được hỏi, đôi mắt oan ức đầy nước mắt.
 
-— Hắn biết ngươi bị ta nhìn thân, bị ta sờ chỗ kín, hắn sẽ nghĩ thế nào?
+— Hắn mà biết ngươi đã bị ta xem thân thể, còn sờ chỗ kín, sẽ nghĩ sao?
 
-Nghi Nhược cắn môi; nàng đã nghĩ rồi.
+— ……
 
-Tư Dĩ Dương thong thả:
+Nghi Nhược cắn môi, điều này nàng vừa rồi đã nghĩ qua.
 
-— Một khi thân ngươi đã bị nam nhân khác nhìn, vậy càng nhiều nam nhân nhìn cũng chẳng sao. Khi đó hắn sẽ phát ngươi sang tay giáo quan khác; còn người đầu tiên địt ngươi……
+Tư Dĩ Dương thấy nàng không đáp, thong thả nói:
 
-Hắn bỗng nghiến:
+— Đã bị nam nhân khác xem thân thể, nghĩa là bao nhiêu nam nhân xem thân thể ngươi cũng vô sự, lúc đó hắn ắt sẽ đưa ngươi cho giáo quan khác, mà người đầu tiên địt ngươi……
 
 — Là ta!
 
-Nghi Nhược sợ đến co người.
+Tư Dĩ Dương nói dữ dội.
 
-Tư Dĩ Dương kéo vạt áo nàng che lại, che đôi nhũ mê người, rồi đi ra. Trước khi đóng cửa hắn ném một câu:
+— ……
 
-— Nhưng nếu ngươi sốt ruột muốn cùng bản quan ta vui vẻ, cứ đợi Hạ Hầu huynh về rồi đi cáo trạng. Ta chờ ngươi, tiểu Nghi Nhược.
+Nghi Nhược sợ co người.
+
+Hắn vén điều giáo phục đã mở của nàng che lại, che đi đôi nhũ mê người, bước ra nội thất, trước khi đóng cửa ném lại một câu:
+
+— Nhưng, nếu ngươi nóng lòng muốn vui vẻ với bổn quan, hắn về thì cứ tố cáo đi! Ta đợi ngươi, tiểu Nghi Nhược~
 
 ---
+
 
 ## Chương 63  Nghi Nhược “lấy lòng” thất bại
 
@@ -3533,7 +3756,7 @@ Hà Kiều Kiều lần trước bị mở cung thô bạo gần mất nửa m�
 
 — Vãn Xuân Các đã chữa ngươi rồi, đừng giở trò với bản quan!
 
-Giọng Tư Dĩ Dương không vui, cũng chẳng còn hứng nói tục, chỉ một mực địt.
+Giọng Tư Dĩ Dương không vui, cũng chẳng còn hứng nói tục, chỉ một mực đâm.
 
 Nghi Nhược tê dại nghe, trong đầu toàn cảnh vừa bị Tư Dĩ Dương sàm sỡ và nỗi lo ngày sau.
 
@@ -3573,6 +3796,8 @@ Nàng xấu hổ: hắn về muộn thì hẳn đã ăn; nàng giữ bữa làm 
 
 Hạ Hầu Không định nói sáng mai dọn cũng được, nàng đã chạy mất. Hạ Hầu Không đứng nhìn đêm, trầm ngâm: phản ứng nàng giống như “bợ không thành” rồi luống cuống. Chẳng lẽ vì tỷ thí gần, nàng không muốn dự nhưng vẫn muốn lấy lòng hắn để xin ra phố?
 
+Song… hôm nay hắn chưa điều giáo nàng, cũng chưa xuất tinh trong người nàng, sao đến giờ này nàng vẫn còn nhét cây ngọc thế thô dài màu xanh lục ấy? Hạ Hầu Không chợt nhớ ra: lúc nãy nàng chạy ra, từ vạt điều giáo phục bay lên lộ ra giữa hai đùi một đoạn đen đen — đó là thứ gì. Nhét thứ ấy mà đi nhanh thế, bản lĩnh kẹp huyệt của nàng quả có tiến bộ.
+
 ……
 
 Nghi Nhược gọi một cô gái bếp tên Phương Nhi đến dọn. Phương Nhi lòng tốt, không khinh nữ nô như mấy người khác, nên Nghi Nhược thân, mới dám nhờ. Thu đồ vào hộp lớn, Phương Nhi do dự nhìn quanh như tìm gì; cuối cùng liếc án thư Hạ Hầu Không rồi mới đậy nắp.
@@ -3603,7 +3828,11 @@ Nới huyệt chỉ nửa canh giờ, xong phải lấy ra.
 
 Nghi Nhược cúi đầu nói nhỏ.
 
-Hạ Hầu Không hiểu: bị phạt. Vân vốn nghiêm, nên được phái phụ tá hắn. Nhìn Nghi Nhược mệt, hắn chợt không đành.
+Lúc bị Tư Dĩ Dương sàm sỡ, ngọc thế trong huyệt nàng trượt ra một đoạn, nàng không thể tự nhét lại, chỉ biết dùng hết sức kẹp chặt không cho rơi. Nàng vì vậy mồ hôi mỏng đẫm lưng, nhưng khi Vân kiểm tra thấy ngọc thế trượt ra, liền nói huyệt dâm của nàng bị ngọc thế nhét bao ngày vẫn chẳng tiến bộ, nắm ngọc thế đâm mạnh vào mấy chỗ trong huyệt nàng chịu đụng nhất, độ mạnh còn hơn cả lúc Hạ Hầu Không dùng ngọc thế điều giáo nàng. Vò ra thêm nhiều dịch, Vân lại bắt nàng trên ghế điều giáo kẹp thêm nửa canh loại ngọc thế khó kẹp hơn lúc nãy, sai đợi Hạ Hầu đại nhân về rồi do đại nhân lấy ra.
+
+— ……
+
+Hạ Hầu Không hiểu: bị phạt. Vân vốn nghiêm khắc với nữ nô, nên mới được phái tới phụ tá hắn. Nhìn Nghi Nhược mệt mỏi, hắn chợt không đành.
 
 Hắn thọc tay vào giữa chân nàng, nắm đuôi ngọc thế, vừa xoay vừa nhẹ nhàng rút khỏi huyệt chặt.
 
@@ -3647,129 +3876,349 @@ Hắn nhạt, lại cầm sách.
 
 Nghi Nhược vui hẳn, bưng đĩa bánh ra bàn ngoài rồi đi tẩy. Hạ Hầu Không ngẩng nhìn theo, rồi cúi đọc: giọng nàng rốt cuộc có lại chút sinh khí.
 
----
+……
 
-## Chương 64  Đêm mộng mị · Nàng cầu “ôm”
+Hôm sau.
 
-Hôm sau, Nghi Nhược lại mộng thấy Tư Dĩ Dương xông vào nội thất, rút ngọc thế rồi lấy dương vật thay, đâm thẳng vào nàng; nàng kêu thảm. Trong tuyệt vọng, nàng nghe có người gọi tên mình, giọng trầm dịu — như Hạ Hầu Không.
+Nghi Nhược theo lệ, một mình trong nội thất phòng điều giáo kẹp ngọc thế, Tư Dĩ Dương lại xông vào.
+
+— … Đại nhân……
+
+Có kinh nghiệm hôm trước, Nghi Nhược sợ hãi nhìn hắn; hắn hôm nay rõ ràng đến với ý xấu. Nàng xê mông định chống cự.
+
+Tư Dĩ Dương chẳng nói hai lời, một tay rút ngọc thế trong huyệt nàng vứt sang bên, dương vật của hắn thế chỗ.
+
+— Đừng! Đừng! A——
+
+Tiếng thét thảm thiết của thiếu nữ vang khắp nội thất.
+
+Một cú thúc mạnh, thô vật dài thô cắm thẳng vào tận gốc tiểu huyệt non của Nghi Nhược, thô bạo chống nở chỗ kín khiến nàng đau!
+
+Đừng……
 
 — Nghi Nhược, Nghi Nhược?
 
-Nàng giật mình mở mắt: trong phòng tối, trần giường quen. Ngay sau đó màn giường sáng lên: Hạ Hầu Không mang đèn dầu vào. Nghi Nhược nhìn hắn, kinh hồn chưa định, nước mắt lăn xuống; mặt nàng vốn đã đầy vệt lệ vì mộng, nay lại thêm hai dòng mới.
+Trong tuyệt vọng, giọng nam trầm ấm vang bên tai nàng.
 
-Hạ Hầu Không xách đèn nhìn nàng, sững. Mắt nàng ngơ sau khi tỉnh, sâu trong mắt còn sợ hãi; lệ to đầy ủy khuất, dung nhan vô trợ. Nhìn nàng vậy, tim Hạ Hầu Không như bị bóp, khó thở. Một lúc hắn mới khàn hỏi:
+Đây là……
 
-— Mộng mị?
+Giọng Hạ Hầu Không……
 
-Nghi Nhược gật không tiếng, đưa tay lau lệ; lau mấy lần mới sạch.
+Hạ Hầu Không đến cứu nàng sao?
 
-— … Mộng thấy gì?
+…… Không! Không thể để hắn thấy nàng lúc này! Thấy nàng bị đàn ông khác……
 
-Hắn không nhịn hỏi. Nàng sợ đến rơi lệ tỉnh, hẳn mộng rất đáng sợ. Nghi Nhược lắc:
+Không được! Không——
+
+Mắt mở bật ra, phòng điều giáo sáng sủa bỗng tối đen. Nghi Nhược ôm chăn thở gấp, mắt quen dần mới nhìn rõ nóc giường quen thuộc.
+
+Giây sau, cả màn trướng sáng lên; Hạ Hầu Không cầm đèn dầu vào. Nghi Nhược nắm chặt chăn, kinh hồn bạt vía nhìn hắn, hai hàng lệ trong trào ra; gương mặt vốn đã đầy vết nước mắt lúc mộng mị giờ thêm hai vệt mới.
+
+Sự dịu dàng của Hạ Hầu Không
+
+Hạ Hầu Không xách đèn, nhìn thấy tiểu nhân trong giường thì đứng hình. Nghi Nhược mắt còn vẻ mơ màng vừa tỉnh, sâu trong đồng tử còn nỗi sợ mang từ mộng ra; giọt lệ to như hạt đậu chứa đầy uất ức, dung nhan xinh đẹp lộ vẻ vô trợ.
+
+Nhìn Nghi Nhược như vậy, Hạ Hầu Không cảm thấy tim mình như bị người bóp chặt, thở không nổi.
+
+Đợi một lát, hắn mới khó nhọc mở miệng, giọng khàn đặc:
+
+— Có phải mộng yểm không?
+
+Nghi Nhược quay mắt, gật đầu im lặng, đưa tay lau nước mắt, lau mấy lần mới sạch.
+
+— …… Mộng thấy gì?
+
+Hạ Hầu Không không nhịn được hỏi.
+
+Khiến nàng sợ đến mức khóc tỉnh!
+
+Nhớ lại giấc mộng vừa rồi, Nghi Nhược lắc đầu, giọt lệ lại lăn xuống:
 
 — Không có gì……
 
-Hạ Hầu Không thấy nàng né, lòng dịu lại mà cũng bất lực. Nghi Nhược sợ hắn hỏi thêm, quay người vào trong, kéo chăn bọc kín như cách ly. Hạ Hầu Không nhìn cục chăn lâu, đặt đèn cạnh giường, cúi vén chăn nàng; nàng lộ đầu, hắn hạ giọng:
+Sự quan tâm trong đôi mắt sâu thẳm của Hạ Hầu Không, bình thường vốn khiến nàng tim đập như nai; lúc này không chỉ khiến tim đập, còn khiến nàng sợ. Nói xong, nàng hư tâm quay người hướng vào trong giường, lưng về phía hắn, kéo chăn, cả người thu vào trong chăn.
 
-— Vân hôm nay phạt nặng?
+Tự bọc mình tách biệt thế giới, Nghi Nhược bắt đầu bình tĩnh, từ đáy lòng cảm thấy may mắn: may mà vừa rồi chỉ là mộng, nếu thật thì nàng……
 
-Hắn nghĩ nàng không dám nói chỉ có chuyện điều giáo. Hắn không muốn bắt nàng nhớ mộng, nhưng cần biết để an ủi.
+— ……
 
-Nghi Nhược lắc, giọng nghẹn trong chăn:
+Hạ Hầu Không nhìn đống chăn đỏ phồng lên hồi lâu, đặt đèn dầu lên đầu giường, cúi người nghiêng về Nghi Nhược, nhẹ vén chăn nàng; đầu nhỏ nàng từ từ lộ ra. Giọng hắn nhẹ hơn:
 
-— Không phải…… chỉ là mộng mị thường……
+— Có phải Vân hôm nay phạt nặng? Ngươi cứ nói với ta không sao.
 
-Hắn dịu lời như xoa tim nàng, làm “con hươu” trong lòng nhảy loạn. Hạ Hầu Không định vén chăn nữa thì dừng. Chỉ là mộng, nàng không muốn nói, hắn hà tất ép?
+Nghĩ đi nghĩ lại, việc khiến nàng không dám nói với hắn, chỉ có chuyện điều giáo. Từ khi nàng xin ra phố bị từ chối, mấy ngày nay nàng đều có vẻ u uất, thêm hôm nay sơ ý sai lầm bị phạt, ắt đã tích tụ nhiều chuyện không vui trong lòng, nên mới mộng yểm. Hắn không muốn bắt nàng nhớ lại ác mộng, nhưng hắn phải biết nàng mộng gì, vì sao mộng, mới có thể…… an ủi nàng.
 
-— Vậy thì tốt. Ngủ tiếp.
+Suy đi tính lại, chuyện khiến nàng không dám nói với hắn chỉ có liên quan điều giáo. Từ khi xin ra phố bị từ chối, mấy ngày nay nàng đều hơi u uất; thêm hôm nay sơ ý bị phạt, ắt tích tụ nhiều chuyện không vui trong lòng, nên mới mộng yểm.
 
-Giọng hắn lại lạnh như thường. Hắn thổi tắt đèn, nằm về chỗ mình.
+Hắn không muốn khiến nàng nhớ lại ác mộng, nhưng hắn cần biết nàng mộng gì, vì sao mộng, mới có thể……
 
-Nghi Nhược nghe hắn im mới vén chăn. Trong tối, nàng quen mắt thấy hắn. Nàng do dự rồi nhỏ:
+An ủi nàng.
 
-— Đại nhân…… lúc trước khi tỉnh, Nghi Nhược nghe có người gọi tên… là đại nhân sao?
+Nghi Nhược lắc đầu, lại chui sâu hơn vào chăn; trong chăn vang tiếng nàng ù ì:
 
-Hạ Hầu Không đáp khẽ:
+— Không phải…… Nghi Nhược chỉ mộng yểm bình thường……
 
-— Ừ.
+Lời dịu dàng ấy của hắn vuốt qua tâm phòng nàng, con nai trong lòng nàng nhảy nhanh hơn, cảm giác tim sắp tan chảy.
 
-Hắn bị tiếng nàng lẩm bẩm “đừng” đánh thức, biết nàng mộng, bèn gọi nàng.
+— …… Hạ Hầu Không vừa định vén chăn thêm, đầu ngón tay chạm chăn lại đột nhiên dừng.
 
-Nghi Nhược động tình nhìn nghiêng mặt hắn, đưa tay đặt lên bắp tay rắn chắc qua lớp áo trong, chậm rãi vuốt lên. Giây này nàng muốn hắn ôm chặt, muốn bàn tay ấm áp xoa khắp người, xóa cảm giác bị Tư Dĩ Dương chạm. Nàng cũng muốn hắn vào nàng, xóa nỗi sợ bị Tư Dĩ Dương cưỡng trong mộng.
+Nàng nói đúng, chỉ là mộng; nàng đã không muốn nói với hắn, hắn lại…… hà tất ép.
 
-Thấy bàn tay nhỏ như kiến bò trên tay mình, Nghi Nhược cắn răng, bỗng nhào vào lòng hắn ôm chặt thân nam. Nhũ mềm của nàng qua lớp áo mỏng áp ngực hắn; tay nàng quấn eo hắn. Đêm khuya vốn mẫn; giờ bị “ôn hương” chủ động ôm, dương vật hắn gần như lập tức dựng cứng.
+— Vậy thì tốt. Ngủ tiếp đi.
 
-Hạ Hầu Không theo bản năng nắm cổ tay nàng định gỡ.
+Giọng Hạ Hầu Không lại trở về lạnh nhạt như cũ, tắt đèn dầu, nằm về vị trí mình.
 
-— Đại nhân!
-
-Sợ bị từ chối, Nghi Nhược ôm hắn cứng người, vội nói trước:
-
-— Xin đại nhân……
-
-“Muốn ngài” nàng lại nói không ra, bèn đổi lời kín đáo, mềm:
-
-— Ôm Nghi Nhược……
-
-Hơi thở Hạ Hầu Không nặng. Dục hỏa bị nàng khơi bùng. Trong lòng có tiếng bảo đừng động; rồi lại có tiếng khác: nàng cầu an ủi, thì cho đi.
-
-Giây sau, tay đang nắm cổ tay nàng chuyển sang bóp vai nàng, hắn xoay người đè nàng xuống, kéo một cái xé toạc điều giáo phục mỏng. Thân trắng dưới trăng lộ, đôi nhũ đầy rung nhẹ. Hắn nhìn nàng như có lửa; Nghi Nhược bị ép dưới thân vừa sợ vừa mong, thẹn gọi:
+Nghi Nhược nghe bên ngoài không còn động tĩnh, mới vén chăn ra. Bốn phía lại tối đen như lúc nàng vừa tỉnh khỏi mộng yểm.
 
 — Đại nhân……
 
-Hạ Hầu Không cúi ngậm một bầu nhũ, liếm cắn quen. Nghi Nhược rên mềm thỏa.
+Nghi Nhược chậm rãi ngồi dậy, nằm nghiêng về đầu giường; mắt đã quen bóng tối có thể nhìn được nhờ ánh trăng. Nàng nhìn gương mặt hắn đường nét rõ ràng, khẽ hỏi:
 
-Hắn sờ xuống chỗ kín, lại phát hiện huyệt nàng ướt đẫm.
+— Trước khi Nghi Nhược tỉnh, có nghe ai gọi tên Nghi Nhược…… là đại nhân sao?
 
-— Lần đầu ngươi ướt nhanh thế.
+Tiếng gọi thấu sâu vào linh hồn ấy, là hy vọng duy nhất khi nàng đứng trong tuyệt vọng bị Tư Dĩ Dương xâm chiếm.
 
-Nghi Nhược mặt nóng: lúc nàng ôm hắn đã cảm thấy.
+---
 
-Nàng đã sẵn, Hạ Hầu Không cũng không dài dòng. Hắn nâng chân nàng, lộ miệng hoa, trụ thịt thô tì rồi một cú xông vào tận —
+## Chương 64  Đêm mộng mị · Lần đầu ướt nhanh thế
 
-— Ha a a!
+— Ừ.
 
-Huyệt khép bị chẻ đến đáy, nàng rên dài. Hắn bẻ chân nàng rộng hơn, hất eo đâm sâu vài cái; nàng liền run lên tới luôn.
+Hạ Hầu Không đáp một tiếng. Hắn đang ngủ say bị tiếng nàng lẩm bẩm bên tai đánh thức; nàng mơ màng kêu "đừng", giọng mềm vô trợ. Hắn biết nàng mộng mị, bèn gọi nàng tỉnh. Thì ra hắn thật sự có gọi nàng!
 
-Hạ Hầu Không chợt nhớ tránh thai. Hắn rút ra, lấy “cao tránh thai” ở ám ngăn, thọc ngón bôi sâu lên cửa cung, thậm chí ép vào khe cung. Nghi Nhược thở hỏi:
+— Đại nhân……
 
-— Đại nhân… đó là…
+Nghi Nhược cắn môi, động tình nhìn nghiêng mặt hắn, tay nhỏ đặt lên bắp tay rắn chắc qua lớp áo trong, cẩn thận chậm rãi vuốt lên. Lúc này nàng muốn hắn ôm chặt, muốn bàn tay ấm áp xoa khắp người, xóa cảm giác Tư Dĩ Dương để lại trên mình; muốn hắn vào trong nàng, xóa nỗi sợ bị Tư Dĩ Dương cưỡng trong mộng.
 
-— Cao tránh thai, hiệu như thuốc.
+Hạ Hầu Không hơi nghiêng đầu nhìn, bàn tay nhỏ nàng như kiến bò nhẹ trên cánh tay hắn. Hắn chưa đắp chăn, thân trên chỉ mặc áo trong lộ ra. Nghi Nhược đành liều, thân thể lao vào lòng Hạ Hầu Không, tay ôm chặt thân nam dương cương khác hẳn mình. Nhũ mềm nàng qua lớp điều giáo phục mỏng áp sát ngực hắn, cánh tay ngọc thon quấn chặt eo hắn. Đêm khuya vốn là lúc người ta mẫn cảm nhất; giờ bị khối "ôn hương nhuyễn ngọc" chủ động ôm, hạ thân hắn gần như lập tức dựng cứng!
 
-Hắn nói xong nâng một chân nàng, từ bên sườn cắm vào, bắt đầu địt mạnh. Nghi Nhược bị cọ vách bên đến run, lại càng nghiện, chỉ muốn hắn đâm thêm cho lấp từng tấc.
+Hạ Hầu Không theo bản năng giơ tay nắm cổ tay nàng, định gỡ ra.
 
-— Đại nhân… mạnh hơn…
+— Đại nhân!
 
-Hạ Hầu Không dừng, mắt sâu nhìn nàng:
+Sợ bị từ chối, chưa đợi Hạ Hầu Không mở miệng, Nghi Nhược ôm thân cứng đờ của hắn, nói trước:
 
-— Là ngươi nói.
+— Xin đại nhân……
 
-Rồi hắn lạnh trầm:
+"Muốn Nghi Nhược" — nàng nói không ra, vội suy nghĩ một chút rồi đổi lời kín đáo, mềm mỏng:
+
+— Ôm Nghi Nhược……
+
+Hơi thở Hạ Hầu Không nặng lên. Dục hỏa bị nàng khơi bùng, cháy rừng rực trong người. Trong lòng có tiếng bảo đừng động, nhưng tiếng khác lập tức vang lên: nàng cầu an ủi, thì cho đi.
+
+Giây sau, tay đang nắm cổ tay nàng chuyển sang bóp vai mềm, hắn lật người đè nàng xuống giường, hai tay kéo một cái — điều giáo phục mỏng manh bị xé làm đôi. Thân trắng nõn lộ dưới ánh trăng, thêm một nét huyền bí; đôi nhũ đầy rung nhẹ theo động tác xé áo, núm vú như nụ hoa mời gọi hắn hái. Mắt hắn như có lửa thiêu da thịt nàng. Nghi Nhược bị hắn giam chặt dưới thân, vừa căng thẳng vừa mong đợi chuyện sắp xảy ra, thẹn thùng gọi:
+
+— Đại nhân……
+
+Hạ Hầu Không cúi đầu ngậm một bầu nhũ non của nàng, thành thạo liếm cắn.
+
+— Ưm a~
+
+Nhũ nhục bị hắn ngậm đến tê mềm, Nghi Nhược thỏa mãn ngửa đầu rên. Cứ như vậy, vuốt ve nàng, chiếm hữu nàng, khiến nàng quên Tư Dĩ Dương, thân tâm chỉ được hắn lấp đầy!
+
+Nghi Nhược lần đầu kêu đến mức mê hoặc như vậy, Hạ Hầu Không nghe mà dục căn lại căng to thêm, đưa tay sờ chỗ kín nàng — bất ngờ phát hiện tiểu huyệt nàng đã ướt đẫm. Ngón dài vớt một vệt hoa dịch, Hạ Hầu Không giọng khàn:
+
+— Đây là lần đầu ngươi ướt nhanh thế.
+
+— ……
+
+Nghi Nhược mặt nóng bừng: lúc nàng bất chấp ôm hắn đã có cảm giác rồi……
+
+Nàng đã sẵn sàng, Hạ Hầu Không cũng không dài dòng tiền hí. Hắn nâng hai chân nàng, lộ tiểu hoa huyệt, trụ thô tì vào lòng đùi rồi một cú xông vào——
+
+— Ha a a a!
+
+Huyệt thịt khép chặt bị trụ thô chẻ thẳng xuống đáy. Nghi Nhược rên dài một tiếng, thịt non ấm áp siết chặt trụ thịt hắn. Hạ Hầu Không bẻ chân nàng rộng hơn, hất eo đâm sâu vào hoa tâm vài cái — nàng liền run lên tới luôn!
+
+Dịch nóng sâu trong huyệt tưới lên đầu rồng nóng rực. Hạ Hầu Không chợt nhớ việc. Hắn rút ra khỏi thân ướt nhẹp của nàng, từ ngăn kín trong vách giường lấy hộp gỗ nhỏ, múc một miếng cao màu hồng nhạt, bạch miệng huyệt Nghi Nhược, ngón dài đẩy cao sâu vào, bôi lên cửa cung nàng, thậm chí đẩy sâu hơn, ép vào cung khẩu hẹp, bôi cả bên trong cung khẩu.
+
+— Đại nhân, đây là……
+
+Nghi Nhược thở nhẹ hỏi.
+
+— Cao tránh thai, hiệu như thuốc tránh thai.
+
+Đây là cao tránh thai dưỡng xuân các chế, đặt sâu trong cơ thể nữ tử là tránh thai, hiệu quả như thuốc tránh thai, thường dùng khi không có thuốc hoặc khi ra ngoài. Đêm khuya lấy thuốc tránh thai phiền phức, dùng cái này.
+
+Nói xong, Hạ Hầu Không nâng một chân nàng, từ bên sườn cắm vào huyệt nàng, đại đao khoát phủ địt mạnh.
+
+— A a…… ưm…… ư a……
+
+Vách bên mẫn cảm bị đầu tròn góc cạnh cứng rắn cọ mạnh, cảm giác no đầy rõ ràng mỗi nhát đều khiến nàng run, lại càng nghiện, chỉ muốn hắn đâm thêm, vuốt ve từng tấc huyệt nhục.
+
+— Ha a, sướng, a a…… thoải mái…… đại nhân……
+
+Nghi Nhược cũng không biết đêm nay mình sao, lại táo bạo phóng đãng đến thế, chẳng giống mình. Có lẽ nàng quá muốn được Hạ Hầu Không an ủi, chiếm hữu triệt để.
+
+— Đại nhân…… ưm ừ, mạnh hơn——
+
+Mạnh mẽ muốn nàng đi!
+
+— ……
+
+Nam nhân đã địt hung hãn, nàng còn khêu gợi như vậy thật không biết sống chết. Hạ Hầu Không dừng động tác, ánh mắt sâu như muốn xuyên thấu nàng, giọng khàn:
+
+— Đây là ngươi nói.
+
+Tiếp theo giọng trầm như địa ngục vang lên:
 
 — Chịu cho ta.
 
-Hắn địt như địa ngục: mỗi cái đều nặng, vài chục cái đã làm nàng khóc kêu, muốn xin cũng không ra lời, chỉ rên đứt. Trụ thịt thô cứng trăm nhát nện cửa cung; nhát cuối, cả đầu rồng đều ép vào. Nghi Nhược đau khoái cùng lúc, co giật, lệ tuôn, kẹp chết trụ hắn. Nàng mơ hồ hiểu: cửa cung mình đã bị hắn “mở”.
+Giây sau, mông hẹp cơ bắp rắn chắc đối thẳng chỗ kín Nghi Nhược địt tùy ý, mỗi nhát đều dùng lực mạnh nhất, chưa mấy cái đã đâm nàng vặn mình khóc kêu, muốn xin cũng không nói ra được, rên cũng đứt quãng. Trụ thô cứng như sắt đâm hết lực vào cửa cung mỏng manh của nàng hơn trăm nhát; nhát cuối mãnh liệt, cả đầu rồng to cứng đều ép vào!
 
-Hạ Hầu Không thở gấp, hỏi dịu:
+— A a a a——!
+
+Bụng dưới đau dữ, Nghi Nhược gào thét, thân thể giật như bị điện, tiếp theo khoái cảm tột đỉnh nuốt chửng nàng hoàn toàn, nước mắt đam mê trào ra, toàn thân co giật, kẹp chết lưỡi dao sắc Hạ Hầu Không sâu trong mình. Lúc này ý thức Nghi Nhược trống rỗng, nhưng nàng cũng mơ hồ đoán ra: cửa cung của nàng đã bị Hạ Hầu Không đâm mở……
+
+Hạ Hầu Không thở gấp, cúi người chống bên nàng, nhìn đôi mắt nước ý thức phân tán và giọt lệ khóe mắt, không nhịn được hỏi dịu:
 
 — Đau không?
 
-Hắn vốn định vài ngày nữa mới mở, nhưng đêm nay nàng hưng, huyệt ướt, cung lại hơi hé, là cơ hội tốt để bớt khổ.
+Hắn vốn định vài ngày nữa mới mở cung khẩu nàng, nhưng đêm nay nàng hưng phấn, là thời cơ tốt nhất; huyệt ướt trơn, cung khẩu hơi hé, sẽ không chịu khổ nhiều.
 
 — Không đau……
 
-Nghi Nhược lắc, rồi nhăn:
+Ý thức Nghi Nhược dần tỉnh, lắc đầu, rồi khó chịu xoay eo mông, nhăn mặt:
 
 — Nhưng trướng……
 
-Nàng cảm rõ bụng dưới có chỗ hẹp bị vật thô căng, động một cái càng chua. Hạ Hầu Không vỗ:
+Nàng cảm rõ ràng trong bụng dưới có chỗ hẹp nhất bị vật thô to của hắn căng chặt, chua trướng, lại không động được, động một cái là đau vô cùng.
 
-— Đó là thường.
+— Đừng sợ, đó là bình thường.
 
-Hắn rút khỏi cung, đâm trong huyệt vài cái rồi bắn tinh nóng vào cung đã mở.
+Hạ Hầu Không an ủi. Dù cung khẩu nàng chưa khai phá hoàn toàn, hắn biết đây là giới hạn hiện tại của nàng. Lưỡi dao theo dịch hoa ướt trơn rút khỏi cung khẩu gọn gàng, đâm trong huyệt ướt mềm vài cái rồi tinh nóng sôi đổ vào cung khẩu đã mở.
 
-Sau đó Nghi Nhược mệt mà ngủ liền.
+— Ưm……
+
+Nghi Nhược bị tinh nóng Hạ Hầu Không rót vào bụng làm nóng nhẹ rên, eo bị hắn ấn, chỉ biết ngoan ngoãn nhận sự rót sâu của hắn. Thân thể sau cuộc tình dữ dội mềm nhũn vô lực, tinh thần và thể xác đều thỏa mãn, buồn ngủ nhanh chóng ập tới. Cảm giác cuối trước khi mí mắt nặng trĩu khép lại, là khoái cảm khi trụ nam thô nóng của hắn rút ra cọ chặt huyệt nhục.
+
+****
+
+Nghi Nhược mở mắt lần nữa, ngoài cửa đã nhật cao tam trượng. Nàng ngủ trong chăn đỏ của mình, chỗ bên cạnh trống, chăn đệm Hạ Hầu Không gấp gọn trên giường. Nhớ lại đêm qua mình táo bạo phóng đãng, mặt Nghi Nhược nóng bừng — nàng lại chủ động lao vào Hạ Hầu Không, còn nói những lời dâm ngôn dưới thân hắn…… Dù những lời nàng nói so với Hà Kiều Kiều chỉ là tiểu vu đại vu, nhưng chắc do gần đây nghe Hà Kiều Kiều nói nhiều, nàng mới trở nên phóng đãng như vậy!
+
+Nghi Nhược kéo chăn che mặt hồi lâu, bình phục tâm tình, định ngồi dậy mới phát hiện mình trần truồng. Đúng rồi, đêm qua điều giáo phục bị Hạ Hầu Không xé thẳng…… Dùng chăn che ngực từ từ dịch ra mép giường, Nghi Nhược dũng cảm thò đầu nhìn — chỗ án thư Hạ Hầu Không trống không, mới nhớ giờ này hắn thường không ở phòng, thậm chí không ở trong viện. Nghi Nhược vừa thất vọng vừa may mắn: thất vọng vì không gặp Hạ Hầu Không, may vì hắn không có — không thì nàng không biết đối diện hắn thế nào.
+
+……
+
+Trên xe gỗ nhỏ đầu giường đặt một bộ điều giáo phục sơ nữ mới tinh. Nghi Nhược tắm rửa xong thay vào, vội vã đến phòng điều giáo. Đẩy cửa lớn, Nghi Nhược kinh ngạc trước cảnh tượng trước mắt——
+
+Hà Kiều Kiều trần truồng quỳ trên đất, Tư Dĩ Dương quỳ phía sau nàng, địt mạnh tiểu huyệt nàng, bàn tay dày vỗ mạnh lên mông nàng, da trắng nõn lập tức nổi vết đỏ tươi. Hà Kiều Kiều chỉ run người, ừ ừ một tiếng, ngay tiếng ai oán cũng không phát ra — miệng nàng bị giáo quan đứng trước mặt dùng dương vật bịt kín, giáo quan còn nắm tóc dài kéo đầu nàng ép sát hạ thân mình, khiến nàng không thể thoát, chỉ biết há miệng hầu hạ vật ấy, mặt đầy nước mắt vì dị vật đâm sâu họng. Giáo quan này nàng quen — một cao cấp giáo quan trong bộ, đang tuổi tam thập.
+
+— Gặp Phùng, Phùng giáo quan, Tư giáo quan……
+
+Nghi Nhược kinh hãi lập tức quay đầu không dám nhìn cảnh dâm mĩ tột cùng, đặc biệt không dám nhìn Tư Dĩ Dương, chỉ vội vái chào rồi cúi đầu chạy vào nội thất. Tư Dĩ Dương khóe miệng từ từ cong lên nụ cười tà khí, không làm khó Nghi Nhược, chỉ tiếp tục điều giáo Hà Kiều Kiều dưới thân.
+
+……
+
+Nghi Nhược vào nội thất đóng cửa, Vân đã đợi trong đó. Nghi Nhược thấy sắc mặt Vân không vui, vội cúi đầu:
+
+— Nghi Nhược hôm nay dậy muộn, mong Vân cô nương thứ lỗi……
+
+— Hừ.
+
+Vân khinh bỉ hừ một tiếng, lạnh lùng ra lệnh:
+
+— Lên.
+
+— Vâng.
+
+Sợ Vân lại phạt, Nghi Nhược không dám chậm trễ, lập tức trèo lên ghế điều giáo cố định nằm, hai chân tách đặt lên giá chân hai bên, hoa hộ non nớt mở rộng. Vừa tách chân nằm xong, chỗ kín lại chảy ra một sợi dịch ấm. Nghi Nhược biết đó là gì, mặt nóng. Đêm qua Hạ Hầu Không bắn rất sâu, nàng vừa trong tịnh thất ấn bụng lâu mới đẩy tinh thủy hắn ra. Không ngờ vừa ra tịnh thất, trong người lại lần lượt có tinh thủy hắn chảy ra; suốt đường đến phòng điều giáo, sợ người thấy dịch trắng trượt dọc đùi, nàng đều bước nhanh.
+
+— Đêm qua ngươi có uống thuốc tránh thai không?
+
+Vân thấy dịch trắng đang rỉ ra từ chỗ kín Nghi Nhược, biết Hạ Hầu đại nhân đêm qua quả nhiên điều giáo nàng. Sáng nay bà đến Hạ Hầu viện định đánh thức Nghi Nhược, gặp Hạ Hầu đại nhân áo đen bước ra. Hạ Hầu đại nhân hỏi bà hôm qua có phạt Nghi Nhược không; bà thật thà đáp là có, vì Nghi Nhược không kẹp tốt ngọc thế. Hạ Hầu đại nhân nghe xong bảo: từ nay dù Nghi Nhược có lỗi gì, cứ báo hắn, không cần phạt, mọi thứ do hắn quyết. Vì buổi tối hắn cũng điều giáo Nghi Nhược, Nghi Nhược hôm qua bị bà phạt xong mệt mỏi, khiến hiệu quả điều giáo đêm qua không được như ý. Giờ xem ra Hạ Hầu đại nhân quả nhiên điều giáo nàng ban đêm, chứ chẳng phải động lòng thương tiểu đầu này; bà từ nay không phạt tiểu đầu nữa.
+
+— Không, giáo quan đại nhân dùng cao tránh thai……
+
+Nghi Nhược nằm trên ghế điều giáo dang chân, chỉ thấy chỗ kín bị Vân nhìn lạnh buốt, không biết bà sẽ phạt thế nào? Không ngờ Vân không phạt, chỉ dùng ngọc thế đẩy hết dịch trắng chảy ra cửa huyệt về tiểu huyệt nàng, đến khi đầu trụ chạm cửa cung tận trong. Vân vừa buông tay, Nghi Nhược cảm thấy ngọc thế hơi trượt ra, vội siết hạ thân kẹp chặt, ngạc nhiên nhìn Vân. Biết Nghi Nhược nghi hoặc gì, Vân u uất nói:
+
+— Hôm nay ngọc thế nặng ba lạng, nặng hơn cây trước vào ngươi một lạng. Từ nay mỗi một thời gian, khi ngươi bị mở huyệt đều phải nhét ngọc thế nặng hơn.
+
+Ngọc thế nhét càng nặng, nữ nô trong huyệt càng phải dùng lực lớn. Luyện như vậy, bản lĩnh kẹp huyệt càng tinh luyện; sau này bị chủ mua địt, huyệt kẹp lên chẳng phải hai chữ "tiêu hồn" mà nói hết. Nhiều giáo quan trong bộ từng bị yêu nữ kẹp ra dương tinh. Thấy Nghi Nhược có chuyên tâm kẹp ngọc thế ba lạng, Vân còn hài lòng, ném một câu "kẹp cho tốt" rồi đi. Sợ bị phạt lần nữa, Nghi Nhược không dám lơ là, siết hạ thân kẹp chặt ngọc thế lạ. Ngoại thất vọng lại tiếng ho dữ dội của Hà Kiều Kiều, tiếp theo là đoạn đối thoại tục tĩu——
+
+— Cây thịt to địt ngươi sướng không?
+
+— Sướng, ho sướng……
+
+— Sướng cỡ nào?
+
+— Sướng…… sướng chết…… a a——
+
+****
+
+Chiều hôm đó Hạ Hầu Không vẫn không đến điều giáo Nghi Nhược. Nàng hoàn thành nhiệm vụ mở huyệt rồi đi tìm Hình Lộ và nữ nô khác trò chuyện. Thiếu nữ đều bàn về tỷ thí kẹp nho ngày mai. Có người nghe Nghi Nhược không tham gia, dù hiểu nàng mỏng mặt cũng tiếc thay nàng: may ra nàng gặp vận có thể lọt top ba, mà nàng bỏ quyền thẳng thừng, bằng lãng phí cơ hội lên phố. Hình Lộ không thể phá thân nên không tham gia lần này; giáo quan nàng dù sao cũng không hài lòng sự hầu hạ, chưa chuẩn nàng lên phố. Hình Lộ cũng không kỳ vọng lên phố, vì nàng biết mình không thể vứt bỏ sự xấu hổ để dâm đãng hầu hạ giáo quan.
+
+……
+
+Hạ Hầu Không hôm nay về sớm hơn hôm qua nhiều, còn dùng tối. Dùng xong, hắn mở thư từ ngoài bộ mang về đọc; khi đọc, châu mày lạnh lùng. Đọc xong, hắn lạnh mặt đặt thư lên ngọn lửa đèn dầu đốt cháy. Tro giấy rơi xuống đất. Nghi Nhược vốn đứng ngoại sảnh cúi đầu bước vào, hướng tịnh thất — nàng vừa lỡ làm đổ trà, định vào tịnh thất lấy khăn lau. Hạ Hầu Không thấy nàng cúi đầu bước nhanh về tịnh thất, tránh mình như tránh ôn thần, bèn gọi:
+
+— Lại đây.
+
+Nghi Nhược dừng người, chậm rãi bước tới trước mặt hắn, chỉ vội liếc hắn rồi mím môi cúi đầu. Sau chuyện đêm qua, nàng không biết đối diện Hạ Hầu Không thế nào, nhưng nàng biết lúc này tim nàng đập nhanh như trống.
+
+Tự ngồi lên · Dịch dâm ướt áo gấm của hắn
+
+Hạ Hầu Không chê Nghi Nhược đứng xa, cánh tay dài vươn ra ôm eo mềm kéo nàng về phía mình — nàng ngồi phịch lên đùi hắn. Nghi Nhược kêu một tiếng, người bị hắn giam trong lòng, hoa hộ mẫn cảm áp sát áo gấm hắn không chướng ngại. Nàng theo bản năng giơ hai tay chống ngực rắn chắc trước ngực hắn. Hạ Hầu Không liếc đôi tay nhỏ Nghi Nhược đẩy hư trước ngực mình, trong lòng hơi khó chịu, đưa tay nâng cằm nàng bắt nàng ngẩng nhìn thẳng mình, lạnh lùng:
+
+— Đêm qua lấy bản quan làm an ủi, nửa đêm ngủ có ngon không?
+
+Nghi Nhược mặt nóng nhìn gương mặt tuấn tú gần trong tầm mắt, lông mày anh khí của hắn khiến nàng không tự chủ đáp theo lời hắn:
+
+— Ngon.
+
+Vừa nói xong nàng giật mình không ổn, vội sửa:
+
+— Không, không ngon!
+
+— ……
+
+Nam nhân im lặng véo cằm nàng. Nghi Nhược nói xong càng thấy không ổn, muốn khóc không ra nước mắt:
+
+— …… Không, Nghi Nhược không có ý đó……
+
+Câu hỏi này nàng dường như trả lời thế nào cũng không ổn!
+
+— Vậy ngươi sao tránh bản quan?
+
+Hạ Hầu Không nhướng mày.
+
+— Nghi Nhược không có……
+
+Nghi Nhược hư tâm đảo mắt. Mật huyệt từ nãy áp chặt áo gấm hắn khiến nàng ngồi không yên; giờ dịch mật xấu hổ từ trong huyệt chảy ra đã ướt vải áo gấm hắn. Hạ Hầu Không cũng không ép hỏi nữa, mà nắm tay nhỏ nàng đang chống ngực ấn lên háng mình. Chạm vật thô cứng nóng, Nghi Nhược tay run, mặt càng đỏ.
+
+— Tự ngồi lên.
+
+Nam nhân ra lệnh nhạt, buông sự khống chế với nàng. Có kinh nghiệm lần trước, Nghi Nhược tự hiểu ý Hạ Hầu Không. Nàng xuống khỏi người hắn, cúi đầu thấy chỗ nàng vừa ngồi trên áo đen hắn quả nhiên có vệt nước nhỏ. Không dám đoán Hạ Hầu Không có phát hiện vệt nước không, Nghi Nhược giả vờ không thấy, ngồi xổm cởi quần hắn — trụ nam khiến nàng tiên tử dục tử dựng đứng trước mặt. Nghi Nhược ngẩng mắt nhìn Hạ Hầu Không; hắn chỉ ngồi yên xem động tác nàng, nhưng đó cũng là sự thúc giục im lặng. Nghi Nhược từ từ đứng dậy, tách hai chân, tay nhỏ đỡ trụ thô cứng, nín thở để đầu tròn to căng mịn mài trên cửa huyệt hơi ướt. Huyệt nàng chưa đủ ướt, nhưng nàng không dám lơ là, để đầu nóng rực mài vài cái trên mật khẩu rồi mím môi ngồi xuống — đầu to lập tức căng đầy cửa huyệt nhỏ. Hạ Hầu Không đưa tay nắm vải hai bên điều giáo phục nàng kéo vào giữa — hai núm nhũ non mềm mại lộ trước mặt hắn. Hắn đưa ngón xoa véo hai hạt sữa nhỏ, khiến thiếu nữ mẫn cảm run nhẹ. Nghi Nhược nhẫn tê ngực, tiếp tục ngồi xuống — là thân trụ to bằng đầu. Nghi Nhược bị hắn căng không chịu nổi, kêu nhẹ dừng lại.
+
+— ……
+
+Rốt cuộc là tiểu đồ chưa có kinh nghiệm. Hạ Hầu Không thấy nàng lửng lơ, đưa tay đỡ eo nàng, để hai chân nàng rời đất co đặt hai bên ghế.
+
+Nâng đôi nhũ lên · Mở cung khẩu lần nữa
+
+Như vậy Nghi Nhược đã bày tư thế ngồi xổm trên người hắn. Hắn đỡ eo ấn xuống, trường thương dưới thân đâm thẳng vào hoa kinh nàng.
+
+— Ứ——
+
+Sâu quá……
+
+Nghi Nhược ngửa đầu rên, tay nhỏ vô lực đặt lên vai hắn. Hạ Hầu Không nhanh chóng véo eo nàng đung đưa trước sau. Trụ nam to khỏe trong mật huyệt chưa đủ ướt của nàng tùy ý khuấy; Nghi Nhược khó chịu nhíu mày, cảm giác cả đường mật bị hắn đâm nóng rát, nhưng mật đạo nhanh chóng tiết dịch, ma sát nóng rát biến thành bao bọc ấm nhuận. — Ưm…… Khoái cảm dần leo cao, môi hồng bắt đầu rỉ rên. Thấy nàng thích ứng với độ to của hắn, Hạ Hầu Không ôm mông mềm đàn hồi của nàng ném mạnh trên người mình. Trụ thô căng chặt miệng nhỏ, mỗi lần đều đâm cánh hoa ướt trơn ra vào. Nhờ trọng lượng Nghi Nhược, trường kiếm hắn dễ dàng đâm đến chỗ sâu nhất trong nàng. Ôm nàng ném hơn trăm lượt, cửa cung chặt chẽ của nàng bị đập mở, mềm yếu đón sự xâm nhập của hắn.
+
+— Ừm a…… đại nhân……
+
+Nghi Nhược khó chịu vin vai hắn. Bụng dưới bị vào quá sâu, cảm giác chua trướng đáng sợ đêm qua lại ập tới, nàng không khỏi sợ.
+
+— Nâng đôi nhũ của ngươi lên.
+
+Nam nhân thở gấp. Nghi Nhược thẹn nâng đôi nhũ lộ ngoài điều giáo phục, cao độ vừa trước mặt Hạ Hầu Không. Hắn nghiêng người về trước ngậm nhũ non vào miệng, liếm kéo. — …… Đại nhân, a a…… Nghi Nhược…… Núm vú mẫn cảm bị nam nhân ăn không khách khí, bụng dưới bị nam nhân đâm càng sâu — kích thích kép trên dưới khiến Nghi Nhược như ở mây xanh lại như ở địa ngục.
+
+— A a a…… Nghi Nhược, Nghi Nhược không chịu nổi……
+
+— A ha—— a a…… Lưỡi dao trong thân đâm càng sâu, thế muốn đâm xuyên bào cung. Nghi Nhược đã tới giới hạn, ngửa đầu gào một tiếng rồi hoàn toàn mềm nhũn trên người Hạ Hầu Không. Nam nhân nhát cuối đâm sâu, đầu to toàn bộ ép vào cửa cung hẹp của nàng, tinh nóng đổ đầy vào……
+
+*****
+
+Chiều ngày thứ hai là ngày tỷ thí kẹp nho sơ nữ kỳ này. Để cả bộ đến xem, toàn bộ tạm dừng nhiệm vụ điều giáo. Nửa canh trước khi bắt đầu, sai dịch nam khiêng ghế điều giáo ra, xếp thành hàng trong tiền viện rộng lớn. Nữ nô thích náo nhiệt rảnh rỗi đến sớm hơn ghế, ngồi trên bậc đá tiền viện vừa trò chuyện vừa chờ. Nghi Nhược không tham gia, Hạ Hầu Không vốn cũng không hứng xem tỷ thí, một mình ở Hạ Hầu viện. Nghi Nhược dù không tham gia cũng tò mò, bèn dẫn Hình Lộ và mấy nữ nô thân đi xem. Đến nơi, quan phán, nữ quan, nữ nô dự thi đều đã chờ ở chỗ điểm danh; người xem vây ba vòng trong ba vòng ngoài. Họ tốn sức mới tìm được khe hở chen lên hàng đầu. Lần này có hai mươi ba nữ nô dự thi. Họ xếp hàng xác minh thân phận rồi lần lượt nằm lên ghế điều giáo vào vị trí.
 
 ---
 
@@ -3815,47 +4264,129 @@ Phán quan tuyên bố kết thúc, quả nho cuối vừa rơi khỏi miệng h
 
 Kết quả: hạng ba Lưu Thanh Huy, hạng nhì Điền Tiểu Miêu, quán quân Lô Yên Nhiên! Phượng nương tự tay cài cho Lô Yên Nhiên phần thưởng quán: một cây trâm vàng nhỏ.
 
-Nữ nô tụ lại chúc mừng, chuyền nhau xem trâm. Nghi Nhược không ham trâm; nàng chỉ ham ngày mai Lô Yên Nhiên được ra khỏi cổng bộ.
+Số nho các nữ nô kẹp vỡ lần lượt công bố; Lô Yên Nhiên và Điền Tiểu Miêu được chú ý nhất. Số công bố không phụ lòng: Lô Yên Nhiên một trăm ba mươi sáu quả, Điền Tiểu Miêu một trăm ba mươi hai quả. Chỉ chênh bốn quả; trước mặt họ chậu lớn đều chỉ còn vài quả lẻ—đủ thấy thực lực hai người và sự kịch liệt của trận đấu.
 
-Có người còn kể: ngày xưa có tuyệt sắc tên Bạch Tử Tuyên từng đoạt tới mười bốn cây trâm, vào bộ nửa năm đã từ Sơ nữ lên Yêu nữ. Nghi Nhược nghe mà thán: thành tích ấy họ không bì kịp.
+Điền Tiểu Miêu cũng xuống ghế; quán quân bị Lô Yên Nhiên đoạt, nàng hơi không vui. Mọi người đều có hạng, nhưng phút chót chỉ còn hai người tranh; Lô Yên Nhiên đoạt quán lại được trâm vàng, tức là nàng thua Lô Yên Nhiên.
 
-Về Hạ Hầu viện, Hạ Hầu Không hỏi:
+Nữ nô tụ lại chúc mừng, chuyền nhau xem trâm. Lô Yên Nhiên vui lắm, đại phương cho tỷ muội xem trâm. Được trâm này nghĩa là nàng xuất chúng trong bộ; nàng chưa có chủ mua, tương lai ắt được quyền quý thu về, địa vị cao hơn nữ nô khác. Sắc mặt ghen tị của tỷ muội khiến Lô Yên Nhiên thỏa mãn lòng hư vinh; nhưng điều khiến nàng sướng nhất vẫn là hôm nay thắng Điền Tiểu Miêu.
+
+Nghi Nhược xem trâm chỉ thưởng thức tinh xảo rồi chuyền cho Hình Lộ. Nàng không ghen quán quân hay trâm vàng; nàng chỉ ghen ngày mai Lô Yên Nhiên được ra khỏi cổng bộ lên phố kinh thành.
+
+Cuối cùng, một nữ nô xem xong trâm thần bí hỏi:
+
+— Các tỷ muội có biết trong lịch sử Bộ điều giáo, ai là người đoạt nhiều trâm vàng nhất không?
+
+— Không biết.
+
+— Không biết……
+
+Nữ nô ấy nhìn quanh, ghé sát nói nhỏ:
+
+— Tỷ muội nghe một nữ quan của chị Yêu nữ kể, hình như hơn ba năm trước có tuyệt sắc tên Bạch Tử Tuyên, tổng cộng đoạt tới mười bốn cây trâm! Và nàng vào bộ sáu tháng đã từ Sơ nữ thăng Yêu nữ!
+
+— Oa…… thật truyền kỳ!
+
+— Đúng vậy!
+
+— Vậy cuối cùng nàng bị quyền quý nào mua đi?
+
+— Cái đó tỷ muội không biết……
+
+— Tỷ muội nghĩ giáo quan của nàng ắt cũng là nhân vật truyền kỳ!
+
+Một nữ nô nói.
+
+— Đúng lý, chắc giáo quan điều giáo có phương mới có thành tích ấy, không thì…… nàng quả là yêu nữ trời sinh!
+
+— Ha ha ha……
+
+Nghi Nhược bấy giờ mới bừng tỉnh, hiểu vì sao nàng chỉ thấy vài nữ nô cấp cao đeo trâm vàng — đó là phần thưởng đoạt quán trong tỷ thí Bộ điều giáo, còn họ chính là những người thắng các tỷ thí trước! Nàng nghe mà thán: thành tích Bạch Tử Tuyên ấy họ không bì kịp. Nàng từng thấy nhiều nhất cũng chỉ năm cây trâm. Giáo quan của Bạch Tử Tuyên là "thánh nhân" phương nào? Vào bộ đến giờ nàng chưa nghe ai nhắc. Chẳng lẽ…… là Tư Dĩ Dương? Với thủ đoạn tàn nhẫn của hắn, rất có thể. Nàng vào bộ đã hơn hai tháng, có sơ nữ cùng lứa đã sớm qua khảo hạch nghiệm xuân, thăng Thấp nữ; nàng vẫn là Sơ nữ. Không biết Hạ Hầu đại nhân định thế nào với khảo hạch của nàng……
+
+Về Hạ Hầu viện, vào nội thất, tâm tình Nghi Nhược vẫn đắm chìm trong tỷ thí vừa rồi. Hạ Hầu Không từ tịnh thất ra, thấy nàng đứng trước bàn tròn thất thần, bèn hỏi:
 
 — Kết quả thế nào?
 
-Nghi Nhược nghiêm túc báo. Hạ Hầu Không nghe xong, nhạt:
+Nghi Nhược còn hơi mơ màng, nhưng vẫn nhất nhất báo:
+
+— Lô Yên Nhiên đoạt quán, Điền Tiểu Miêu hạng nhì, Lưu Thanh Huy hạng ba.
+
+— ……
+
+Hạ Hầu Không hơi ngẩn vì sự nghiêm túc của nàng, suýt quên mục đích hỏi. Những tên nàng báo hắn một cái cũng không biết; đúng ra, cả Bộ điều giáo trừ nàng ra, tên các nữ nô khác hắn đều không biết, cũng chẳng rảnh để biết.
+
+Thấy Hạ Hầu Không nghe xong không nói, Nghi Nhược không khỏi cúi mắt, thầm tự nhủ: nàng không tham gia tỷ thí, cũng chẳng đoạt quán, lại không được ra phố, hắn hỏi thế chẳng lẽ cố ý chế nhạo nàng?
+
+Chưa kịp nghĩ xong, đã nghe Hạ Hầu Không nhạt nói:
 
 — Ngày mai, ngươi đi ra phố cùng họ.
 
-Nghi Nhược ngây người, tưởng nghe nhầm. Hạ Hầu Không lặp lại. Nghi Nhược mắt sáng như sao:
+— ……
+
+Nghi Nhược ngây người, chậm rãi ngẩng mắt nhìn gương mặt tuấn tú của hắn, há hốc hỏi:
+
+— Cái gì?
+
+Nàng hình như nghe được câu mong đợi bấy lâu, nhưng không dám tin.
+
+— Ngày mai, ngươi có thể cùng họ đi ra phố.
+
+Hạ Hầu Không lặp lại, lần này từng chữ rõ ràng.
+
+Nghi Nhược nghe rõ rồi, đôi mắt vừa còn hơi tối bỗng sáng như sao, khóe miệng từ từ nở, không tin hỏi:
 
 — Thật ạ?!
 
-Hạ Hầu Không ngồi án, đáp:
+Nàng chẳng làm gì cả mà được ra phố? Chẳng lẽ hắn đang trêu nàng?
 
 — Thật.
 
-Nghi Nhược hỏi thăm dò có điều kiện không. Hạ Hầu Không nhíu:
+Hạ Hầu Không đáp, bước tới án ngồi xuống; bước chân hắn không tự giác nhẹ nhàng hơn.
+
+— Vậy…… Nghi Nhược cần làm gì không?
+
+Nghi Nhược lần này để ý hơn, vội bước tới đối diện án, giọng do dự.
+
+Chẳng lẽ hắn nghĩ đến điều kiện khác mới cho nàng ra phố? Ví như…… hầu hạ hắn cho tốt?
+
+— ……
+
+Hạ Hầu Không bị nàng hỏi đến không hiểu, nhìn chằm chằm nàng, giọng trầm:
 
 — Ngươi muốn làm gì?
 
-Rồi hắn nói rõ:
+Hắn cho nàng ra phố không điều kiện, nàng lại đề phòng hắn.
+
+— Ư…… không, không có gì……
+
+Câu hắn nói rõ ràng bình thường, nàng lại nghe ra chút mơ hồ, má đỏ bừng, hư tâm quay mắt.
+
+Hạ Hầu Không hiểu sự nghi ngờ của nàng, không bán quan nữa, nói thẳng:
 
 — Gần đây ngươi biểu hiện không tệ, nên thưởng.
 
-Nghi Nhược chẳng biết mình “tốt” ở đâu, nhưng vui đến nức:
+— Ồ……
+
+Nghi Nhược gật đầu như hiểu như không, thực ra nàng chẳng biết mình “tốt” ở đâu. Trong Bộ điều giáo nàng thấy nhiều nữ nô giỏi hơn, biểu hiện tốt hơn nàng; đặc biệt sau tỷ thí hôm nay, nàng mới ý thức mình may mắn — những nữ nô tham gia tỷ thí ấy ngày thường không biết chịu bao nhiêu điều giáo và sỉ nhục mới có thể phóng đãng như vậy. Cũng vì thế, Nghi Nhược càng vui, vội phúc thân tạ Hạ Hầu Không:
 
 — Nghi Nhược tạ ơn đại nhân!
 
-Nàng chạy đi báo Hình Lộ. Hạ Hầu Không nhìn bóng nàng, mỉm cười nhẹ.
+Nói xong, Nghi Nhược hớn hở lui ra, chạy thẳng ra cửa tìm Hình Lộ báo tin. Hạ Hầu Không nhìn bóng nàng xa dần, nụ cười nhẹ nở trên gương mặt tuấn tú.
 
-Đêm đó Nghi Nhược hưng phấn mất ngủ, lăn qua lăn lại. Hạ Hầu Không bị quấy, lạnh:
+Đêm đó Nghi Nhược hưng phấn mất ngủ, lăn qua lăn lại không sao vào giấc. Nàng thấy nóng, đành vén chăn ra, một chân trắng nõn gác lên chăn.
 
-— Không ngủ thì mai chơi sao tận hứng?
+Vào kinh hơn hai tháng, nàng cuối cùng được bước ra khỏi cổng Hồi Xuân Các, lên phố náo nhiệt kinh thành chơi. Tiếc là không được mang bạc, gặp đồ ưng ý cũng không mua được.
 
-Nghi Nhược cười nghịch, ghé tai hỏi:
+Hạ Hầu Không bị nàng lăn qua lăn lại quấy đến lâu không ngủ được, mở mắt quay đầu, thấy dưới ánh trăng eo thon nhỏ nhắn của nàng lộ ra ngoài; vạt điều giáo phục ngắn vì tư thế nằm nghiêng mà rủ xuống, lộ hai mông tròn mịn; một chân nàng còn gác lên chăn, cảnh giữa đùi gợi tưởng.
 
-— Mai giờ nào ra phố?
+Trong người như có gì cựa quậy, Hạ Hầu Không quay mắt, hít thở sâu, lạnh nhạt:
+
+— Đêm nay không ngủ thì mai chơi sao tận hứng?
+
+Nghi Nhược dừng lại, quay người thấy Hạ Hầu Không nằm đó, mắt lạnh nhìn mình. Nàng chỉ nghĩ chuyện mai ra phố, chẳng thấy gì bất ổn; thấy hắn cũng chưa ngủ, nàng cười nghịch, chống khuỷu ngồi dậy, ghé sát hắn, thầm bên tai:
+
+— Đại nhân, mai giờ nào ra phố?
+
+Đêm tĩnh lặng, ánh mắt thuần khiết mong đợi của thiếu nữ bên gối, thân thể mềm đẹp, mùi thơm nhẹ nhàng—tất cả đều kích thích dây thần kinh nhạy cảm của hắn; ngay cả hơi thở cũng nghẹt lại khi nàng gần.
 
 ---
 
@@ -4127,7 +4658,10 @@ Người đàn ông bật cười bất đắc dĩ:
 "Tiểu nha đầu đáng thương này đúng là bị dọa sợ rồi."
 
 "Đây là cửa tiệm của ta ở Kinh Thành nhị nhai, cô nương cứ yên tâm."
+
 ## Chương 70  Tư Dĩ Dương dùng “tỏa xuân hoàn”
+
+— Cửa tiệm? Nghi Nhược nhìn quanh—Nhưng đây là tửu lâu? Nơi này có bếp, có bàn ăn, hắn lại biết nấu—chẳng lẽ mở tửu lâu? — Không, đây chỉ là nội thất ta xây để tiện nghỉ khi ở tiệm. Nam nhân xếp đũa, chỉ giỏ hương nang góc phòng ăn: — Ta mở tiệm hương liệu. — Thì ra vậy. Nghi Nhược hiểu ra. Ngồi xuống bàn, thấy bát mì thịt rau đủ cả, nàng hỏi giá để trả. Nam nhân ngại—chỉ cơm canh đạm bạc. Nghi Nhược đành thôi, đa tạ. — Cô nương tên Nghi Nhược? Nam nhân tự giới thiệu: Địch Kiêu. Nghi Nhược ăn mì, khen ngon. Địch Kiêu hỏi tuổi; nàng đáp mười sáu. Địch Kiêu trầm ngâm: tuổi xuân đẹp—trời ghen mỹ nhân. — Hương nang của công tử bán thế nào? Nghi Nhược muốn mua. Địch Kiêu chọn hương nang hoa hồng bán chạy, bán rẻ. Nghi Nhược trả tiền xong yên tâm ăn. Địch Kiêu định hỏi thêm thì nghe gõ cửa, ra xem. Nghi Nhược chuyên tâm ăn; giờ đã quá Dậu, nàng phải về. Từ nãy nàng hơi chóng mặt, nóng bức từ bụng lan khắp người. Chẳng bao lâu Địch Kiêu trở lại: — Người tới có vẻ quan sai Hồi Xuân Các, đang tìm cô nương. Tranh vẽ giống cô nương lắm. Hắn giữ bình tĩnh đối đáp, nói không lâu trước thấy Nghi Nhược ở lục nhai—họ vội đi. — Người Hồi Xuân Các tìm Nghi Nhược? Nghi Nhược giật mình: — Vậy Nghi Nhược phải về ngay! — Về? Địch Kiêu ngơ ngác—Cô nương chẳng phải trốn ra sao? — Không, Nghi Nhược được thưởng lên phố chơi một ngày. — Khoan. Địch Kiêu nắm cổ tay nàng: — Sao không tranh thủ trốn? Nghi Nhược ngập ngừng. Nghĩ trốn thì không gặp lại Hạ Hầu Không, lòng trống rỗng; ngoài bộ đâu còn chỗ dung thân? — Ta… phải về… Nàng giãy thoát; trong người bồn chồn, không rảnh giải thích. Địch Kiêu: — Ta đưa cô nương về. Hồi Xuân Các ở nhất nhai. Địch Kiêu đánh xe đưa Nghi Nhược về. Nghi Nhược ôm túi khó chịu dựa cửa xe; giờ đã Tuất. Ý thức mơ màng; đôi nhũ căng đau, nàng lén xoa; chỗ kín chảy xuân dịch, khao khát cây thịt thô của Hạ Hầu Không nhét đầy. Gần góc phố hẹn, Nghi Nhược bảo dừng—nàng tự đi. Địch Kiêu dặn lần sau nhớ tới Vạn Hương Các nhị nhai. Nghi Nhược chạy về góc phố. Đến nơi không thấy Hạ Hầu Không. Đứng đợi không thấy—chẳng lẽ hắn giận? Nàng bất an đi về. Vừa bước qua cổng, thấy Hạ Hầu Không sắc mặt nghiêm nghị bước tới; thấy nàng, sắc đổi. Chưa kịp nàng mở miệng, hắn lạnh hỏi: — Ngươi đi đâu?
 
 Nghi Nhược ôm bọc, bị hắn hỏi, sợ đến lùi một bước, cổ co lại. Tâm nàng vốn đã loạn, lại bị chất vấn, không biết nói sao, càng không thể nói thật. Hạ Hầu Không lúc này khác hẳn sáng sớm: lạnh và áp.
 
@@ -4456,11 +4990,13 @@ Canh tránh thai nàng không uống được. Cuối cùng Hạ Hầu Không l�
 
 ## Chương 73  “Mạo phạm” đại nhân
 
-Sau một đêm hoan ái dữ dội, ánh trăng lẻn vào phòng khiến mọi thứ tĩnh mịch. Nghi Nhược mở mắt, trước mặt là màn đỏ thêu tinh xảo; đầu óc nàng mơ hồ, chỉ thấy mình ngủ rất lâu, như vừa trải qua một giấc mộng dài, nhưng lại chẳng nhớ mộng gì.
+Sau một đêm hoan ái dữ dội như vậy, lúc này tia trăng lọt vào trong phòng, càng thêm tĩnh mịch. Hạ Hầu Không nhìn lần cuối Nghi Nhược đang ngủ say, chuyện nàng ở ngoài bộ hôm nay, sáng mai hắn sẽ hỏi.
 
-Đúng rồi! Nàng vừa vào cổng bộ điều giáo, Hạ Hầu Không mặt nghiêm hỏi nàng đi đâu, rồi……
+Sáng hôm sau khi mở mắt, Nghi Nhược đối diện là màn trướng phía trong giường, đầu óc nàng hơi mơ hồ, nhìn chằm chằm hoa văn tinh xảo trên màn đỏ trước mắt, chỉ thấy mình đã ngủ rất lâu rất lâu, như vừa trải qua một giấc mộng dài, nhưng lại chẳng nhớ mộng thấy gì.
 
-Nàng tưởng sẽ bị phạt, nhưng không. Hắn bế nàng, đi thẳng vào Hạ Hầu viện…… rồi sau đó?
+Đúng rồi! Nàng vừa vào cổng bộ điều giáo, Hạ Hầu Không mặt nghiêm nghị hỏi nàng đi đâu, rồi……
+
+Nàng vốn tưởng sẽ bị hắn trách phạt một trận, nhưng không. Hắn bế nàng lên, đi thẳng vào Hạ Hầu viện…… rồi sau đó nữa?
 
 Nghi Nhược đảo mắt cố nhớ. Đột nhiên nàng cứng người, mắt mở to dần — hôm qua nàng khát đến phát điên, Hạ Hầu Không thọc tay vào chỗ kín nàng quậy lâu, thọc rất sâu, lại làm nàng sướng quá, nên nàng……
 
@@ -4509,6 +5045,8 @@ Nghi Nhược nghiêm túc đáp; mặt càng đỏ:
 — Nghi Nhược có lẽ trúng thuốc kỳ quái nên mới…… mạo phạm đại nhân. Xin đại nhân đừng trách……
 
 Hạ Hầu Không nghe thú vị: lần đầu hắn nghe cô nương dùng chữ “mạo phạm” với hắn. Hắn biết nàng ám chỉ những việc gì. Nhưng nghĩ lại cảnh trong thùng, hắn lại không thấy mình bị “mạo phạm”.
+
+Trứng phục sinh—— Nghi Nhược (thưởng thức): Cảm giác "mạo phạm" đại nhân Hạ Hầu là dục tiên dục tử~~ Hạ Hầu Không (nhướng mày): Nghĩa là còn muốn mạo phạm thêm mấy lần nữa? Nghi Nhược: Không không không (trong lòng: Có!)
 
 ---
 
@@ -5114,7 +5652,7 @@ Nghi Nhược vừa an ủi Hình Lộ, vừa thấy trong lòng ngũ vị tạp
 
 _________________________
 
-彩蛋——
+Trứng phục sinh——
 
 Hạ Hầu Không (nhìn chằm): Người thân nhất?
 
@@ -5128,7 +5666,7 @@ Nghi Nhược: Ta biết rồi! Ta bi… ưm ưm…
 
 _________________________
 
-PS: Việc Hình Lộ bị “phong nhũ” là伏笔 (伏笔) đã cài từ trước! Có lẽ không ít người quên rồi: trong chương “Nàng còn quá non”, lần đầu nhắc tới việc ngâm hồ thuốc, khi ấy trên ngực Hình Lộ đã có vết đỏ do bị xoa, còn ấp úng nữa—lúc đó đã bắt đầu rồi. Qua hơn bốn mươi chương,伏笔 này cuối cùng cũng được đào lên!
+PS: Việc Hình Lộ bị “phong nhũ” là phục bút (cài cốt) đã cài từ trước! Có lẽ không ít người quên rồi: trong chương “Nàng còn quá non”, lần đầu nhắc tới việc ngâm hồ thuốc, khi ấy trên ngực Hình Lộ đã có vết đỏ do bị xoa, còn ấp úng nữa—lúc đó đã bắt đầu rồi. Qua hơn bốn mươi chương, phục bút này cuối cùng cũng được đào lên!
 
 Trói treo · Nghĩ đủ cách làm núm vú nàng to ra
 
@@ -5643,37 +6181,50 @@ Hạ Hầu Không: ...
 Nghê Nhược: Nếu đã vậy, vì sao phải ở trước mặt ngươi - khoan đã... ưm ưm...
 
 ________________________
-## Chương 85  Chuyển sang điều giáo tại Hạ Hầu viện
+## Chương 85  Chuyển sang điều giáo tại Hạ Hầu viện · Thăng khảo quan Nghiêm đại nhân
 
-Sáng hôm sau, Nghi Nhược vừa ăn sáng xong định đến phòng điều giáo, đã được Hạ Hầu Không báo: từ hôm nay ban ngày nàng không cần qua đó nữa; về sau cứ ở ngoại thất căn phòng này mà nhận điều giáo.
+Hôm sau, Nghi Nhược vừa dùng xong bữa sáng, chuẩn bị đi phòng điều giáo, thì được Hạ Hầu Không báo: từ hôm nay, ban ngày nàng không cần đến phòng điều giáo nữa, sau này đều ở ngoại sảnh căn phòng họ tiếp nhận điều giáo.
 
-Hạ Hầu Không vì muốn chặt đứt từ gốc “ô nhiễm” của Tư Dĩ Dương lên Nghi Nhược, liền dùng đặc quyền đặc cấp giáo quan, dời nàng về điều giáo ngay trong viện mình.
+Hạ Hầu Không để từ nguồn cắt đứt sự "ô nhiễm" của Tư Dĩ Dương đối với Nghi Nhược, đã dùng đặc quyền giáo quan đặc cấp, đưa nàng về điều giáo trong phòng mình.
 
-Không bao lâu sau khi bếp phòng thu bữa, Vân dẫn mấy sai dịch nam vào, dọn một khoảng trống ở ngoại thất, khiêng ghế điều giáo và đủ loại dụng cụ tới, dựng một “điểm điều giáo” mới.
+Chẳng bao lâu sau khi tỳ nữ phòng bếp đến thu bát đĩa, Vân dẫn mấy nam sai ra ngoại sảnh dọn một khoảng trống, đem ghế điều giáo và dụng cụ điều giáo khác chuyển đến khoảng trống ấy, tạo nên một điểm điều giáo mới.
 
-Tư Dĩ Dương lên ca nghe tin thì vừa kinh vừa phục tốc độ Hạ Hầu Không, lại thầm mừng: may mà hôm qua hắn đã dạy hết những chiêu có thể “bẻ” Hạ Hầu Không, nếu không về sau không còn cơ hội. Xem ra đêm qua Nghi Nhược đã có chút thành tích nên Hạ Hầu huynh mới cảnh giác. Không sao, hạt đã gieo, hắn chỉ cần chờ gặt.
+Tư Dĩ Dương lúc đến nhận việc biết tin, vừa kinh ngạc Hạ Hầu Không hành động nhanh vậy, vừa thầm mừng: may mà hôm qua hắn đã dạy Nghi Nhược đủ chiêu khống chế Hạ Hầu Không, không thì không còn cơ hội nữa.
+
+Xem ra đêm qua tiểu Nghi Nhược đã có chút thành tựu, không thì Hạ Hầu huynh cũng không cảnh giác phản ứng. Hẳn Hạ Hầu huynh đoán tiến bộ của Nghi Nhược là nhờ hắn, nên mới phòng hắn.
+
+Vô phùng, hạt giống đã gieo rồi, sau này hắn chỉ cần ngồi thu thành quả.
 
 ……
 
-Đổi chỗ điều giáo về Hạ Hầu viện, Nghi Nhược tất nhiên mừng: từ nay không phải nghe tiếng Tư Dĩ Dương cùng các giáo quan khác địt Hà Kiều Kiều, cũng không phải dây dưa với Hà Kiều Kiều hai mặt. Duy chỉ tiếc: e không còn nghe Tư giáo quan truyền “bí quyết” hầu Hạ Hầu Không nữa. Thật ra việc có thể điều khiển dục của Hạ Hầu Không cho nàng cảm giác thành tựu rất lớn; giờ đường ấy bị chặt, nàng cũng tiếc.
+Đổi địa điểm điều giáo sang Hạ Hầu viện, Nghi Nhược trong lòng đương nhiên vui, sau này không phải nghe tiếng Tư Dĩ Dương và các giáo quan khác giao hợp với Hà Kiều Kiều khó nghe, cũng không phải trò chuyện với Hà Kiều Kiều hai mặt ba dao.
 
-Nghi Nhược vẫn thấy lạ: vì sao Hạ Hầu Không đột nhiên dời nàng về điều giáo riêng? Chẳng lẽ vì đêm qua nàng lỡ nói sai?
+Chỉ hơi tiếc là sau này e không còn nghe Tư giáo quan truyền bí quyết hầu hạ Hạ Hầu Không nữa. Thực ra biết khống chế dục tình của Hạ Hầu Không khiến nàng rất có thành tựu, giờ con đường có bí quyết cũng đứt rồi, thật đáng tiếc, nàng còn muốn hiểu thêm nữa!
+
+Nhưng nàng vẫn thấy kỳ lạ, vì sao Hạ Hầu Không đột nhiên đưa nàng về Hạ Hầu viện điều giáo riêng, chẳng lẽ chỉ vì đêm qua nàng nói sai lời?
+
+**************
+
+Mấy đêm sau, Nghi Nhược lại thành công thổi Hạ Hầu Không ra hai lần. Hạ Hầu Không thấy nàng phát huy ổn định, cũng dừng luyện ngọc thế ban ngày của nàng.
+
+Ngoài ra, để tăng độ mẫn cảm khi khảo hạch, hai ngày trước khi khảo hạch chính thức bắt đầu, điều giáo thường nhật của Nghi Nhược cũng bị dừng hết. Ban ngày Vân dùng ngọc bổng nhỏ cào huyệt nhỏ nàng, khiến nàng ban ngày đã tưởng tượng cảnh tối bị Hạ Hầu Không chiếm hữu.
+
+Nhưng đến tối, Hạ Hầu Không cũng không giao hợp với nàng, chỉ trước khi ngủ cởi điều giáo phục của nàng, bàn tay vuốt ve nắn bóp đôi nhũ, môi lưỡi tùy ý mút liếm hai đầu nhũ nhỏ, làm ướt nàng rồi dùng ngón tay thọc vào chỗ kín, quậy một lát rồi rút ra, rửa sạch dâm dịch trên tay rồi ngủ, khiến Nghi Nhược mỗi đêm bị trêu đến mặt đỏ, huyệt nhỏ khó chịu, lại không được giải tỏa, thân thể càng ngày càng mẫn cảm.
+
+Chớp mắt đến sáng ngày khảo hạch chính thức, Hạ Hầu Không chỉ nắn đôi nhũ nàng một cái, nàng đã mẫn cảm hơi ướt.
+
+Khảo hạch bắt đầu lúc Tỵ. Vân sớm một chén trà chuẩn bị hồ sơ Nghi Nhược và dụng cụ khảo hạch cần thiết, bày đủ trên xe gỗ nhỏ, rồi lui ra.
+
+Đây là thói quen nhiều năm của Nghiêm đại nhân — khảo quan khảo hạch thăng giai nữ nô: khi khảo hạch chỉ để giáo quan ở lại, còn lại đều phải lui.
+
+Hạ Hầu Không cho Nghi Nhược nằm lên ghế điều giáo sớm một chén trà để giảm căng thẳng. Nằm trên ghế điều giáo một chén trà, Nghi Nhược quả nhiên thả lỏng thần kinh vốn căng, thậm chí hơi buồn ngủ, nhưng khi khảo quan bước vào, nàng vẫn không tránh khỏi căng thẳng.
+
+Còn chút nữa đến Tỵ, một nữ quan lớn tuổi đẩy cửa bước vào sảnh. Hạ Hầu Không chắp tay chào, bà cũng cúi chào lại, rồi quay sang Nghi Nhược.
+
+Nghi Nhược mới kinh ngạc phát hiện, vị Nghiêm đại nhân này chính là nữ quan trong Tỏa Xuân phòng đã nhét Tỏa Xuân hoàn vào chỗ kín nàng, còn hỏi giáo quan nàng có phải Hạ Hầu Không!
 
 ---
 
-Mấy đêm tiếp theo, Nghi Nhược lại thổi Hạ Hầu Không ra tinh thêm hai lần. Hạ Hầu Không thấy nàng ổn định, liền dừng việc luyện bằng ngọc thế ban ngày.
-
-Không chỉ vậy, để tăng độ mẫn cho ngày khảo, hai ngày trước khảo hạch chính thức, những luyện tập điều giáo thường nhật cũng bị dừng. Ban ngày Vân dùng cây ngọc nhỏ mảnh gãi cào trong huyệt, khiến nàng ban ngày đã tưởng cảnh tối bị Hạ Hầu Không chiếm. Nhưng đến tối, Hạ Hầu Không cũng không giao hợp: chỉ trước khi ngủ cởi điều giáo phục nàng, vò nhũ, mút hai đầu nhũ, làm nàng ướt rồi thọc ngón vào chỗ kín quậy một lúc liền rút; rửa tay xong hắn ngủ. Mỗi đêm Nghi Nhược bị khêu đến đỏ mặt, huyệt chua ngứa mà không được giải, thân càng lúc càng mẫn.
-
-Đến sáng ngày khảo hạch, Hạ Hầu Không chỉ bóp nhũ nàng một cái, nàng đã hơi ướt.
-
-Khảo hạch bắt đầu giờ Tỵ. Trước đó một chén trà, Vân chuẩn bị hồ sơ Nghi Nhược và dụng cụ, rồi lui hết. Đây là thói quen nhiều năm của Nghiệm Xuân quan “Nghiêm đại nhân”: lúc khảo chỉ để giáo quan ở lại, người khác tránh.
-
-Hạ Hầu Không bảo Nghi Nhược nằm ghế điều giáo sớm một chén trà để bớt căng. Nằm lâu quả có thả, thậm chí nàng suýt gà gật; nhưng khi khảo quan vào, nàng vẫn không tránh khỏi hồi hộp.
-
-Gần đến giờ Tỵ, một nữ quan già bước vào. Hạ Hầu Không chắp tay, bà cúi đáp, rồi đi thẳng về phía Nghi Nhược. Nghi Nhược lúc này mới ngạc nhiên nhận ra: “Nghiêm đại nhân” chính là nữ quan hôm trước ở Khóa Xuân phòng nhét tỏa xuân hoàn vào người nàng, còn hỏi giáo quan nàng có phải Hạ Hầu Không không!
-
----
 
 ## Chương 86  Nghiêm đại nhân khảo hạch
 
@@ -6483,7 +7034,7 @@ Hắn không nhận ra chính mình đang ghen. Nghi Nhược khóc giọng:
 
 — Không… không phải…
 
-— Nghi Nhược chỉ bị đại nhân Hạ Hầu địt… chỉ ngậm dương vật đại nhân…
+— Nghi Nhược chỉ bị đại nhân Hạ Hầu đâm qua… chỉ ngậm dương vật đại nhân…
 
 Hạ Hầu Không dừng. Câu trả lời khiến u ám trong lòng hắn tan phân nửa, rồi hắn lại nghi:
 
@@ -6527,13 +7078,25 @@ Hạ Hầu Không đã chuẩn bị sẵn:
 
 — Nàng quá non. Điều giáo thường dễ làm thương.
 
-Nghiêm đại nhân đáp: ai mới vào chẳng non? Nhưng hắn vốn không cần tàn cũng điều được nữ nô nhất phẩm; lần này hắn bỏ nguyên tắc là lần đầu.
+Nghiêm đại nhân như đã đoán trước, tiếp lời:
 
-Nghiêm đại nhân hỏi tiếp:
+— Nàng ấy tuy non hơn nữ tử thường chút, nhưng thiếu nữ mới vào bộ nào chẳng non? Thần biết vương gia trước kia dù không ra tay tàn vẫn điều được nữ nô nhất phẩm, nhưng lần này bỏ nguyên tắc như vậy là lần đầu!
+
+Hạ Hầu Không cúi đôi mắt sâu khiến nữ tử nhìn phải mê, không đáp.
+
+Nghiêm đại nhân lại hỏi:
 
 — Vương gia còn nhớ bài học đầu tiên thần dạy không?
 
-Hạ Hầu Không đáp nhớ: giáo quan không được có tình; nữ nô đến thì dạy, đi thì quên. Họ trước đó không quen, đi rồi cũng không can hệ.
+Nghiêm đại nhân là tổng quản Thánh Xuân phòng trong cung, vào cung đã hơn bốn chục năm, điều giáo phi tần không đếm xiết; nay bà trực tiếp dạy dỗ, điều giáo đều là hoàng hậu cùng quý phi. Hơn mười năm trước triều đình mở Bộ điều giáo, bà giàu kinh nghiệm kiêm chức nghiệm xuân quan và tỏa xuân quan; ngoài khảo hạch từng nữ nô, còn phụ Dưỡng Xuân phòng nghiên cứu đủ thứ vật phòng the, dụng cụ điều giáo. Tất cả vật Dưỡng Xuân phòng chế đều định kỳ cung vào cung.
+
+Hạ Hầu Không mười sáu tuổi phụng chỉ thánh thượng vào Bộ điều giáo, theo Nghiêm đại nhân học thuật phòng the nam nữ. Năm đầu vào bộ, hắn vừa nhận sự dạy dỗ của Nghiêm đại nhân, gần như mỗi ngày quan sát các giáo quan các cấp điều giáo nữ nô, rút kinh nghiệm phương pháp khác nhau cho từng loại nữ tử. Một năm sau, Nghiêm đại nhân chọn một sơ nữ dung sắc trung bình trong đám thiếu nữ mới vào, làm nữ nô đầu tiên Hạ Hầu Không thượng tay điều giáo.
+
+Hạ Hầu Không thiên tư thông minh, ngộ tính cao, gần như không cần Nghiêm đại nhân theo sát, đã điều giáo nữ nô ấy xuất sắc ở mọi hạng mục khảo hạch trừ phần thổi tiêu. Hai nữ nô hắn điều giáo sau đó cũng vậy. Nghiêm đại nhân hiểu sâu: Hạ Hầu Không là người theo cảm giác nội tâm; những nữ nô ấy không thổi được hắn xuất tinh, căn bản là vì chẳng phải người trong lòng hắn, nên bà chỉ phạt cấm ra phố theo quy bộ, còn danh hiệu nữ nô thượng phẩm Hồi Xuân Các, hạng nhất bảng biểu dương của Hạ Hầu Không thì chẳng thiếu.
+
+Sau đó, nữ nô đầu tiên hắn điều giáo chỉ dùng nửa năm đã thăng yêu nữ, qua nghiệm thu. Nàng tuy dung sắc trung bình nhưng kỹ thuật giường chiếu nhất lưu; Tứ vương gia biết tin bèn đòi về, chơi chưa đủ một đêm đã khen ngợi trình độ điều giáo của Hạ Hầu Không, bảo Bộ điều giáo đưa hết nữ nô do Hạ Hầu Không điều giáo về phủ hắn. Từ đó sinh ra quy định không thành văn: nữ nô Hạ Hầu Không điều giáo đều đưa về phủ Tứ vương gia.
+
+Hạ Hầu Không không bận tâm, chỉ theo yêu cầu Tứ vương gia bắt đầu điều giáo nữ nô thứ hai. Lại hơn nửa năm, nữ nô thứ hai quả nhiên không phụ lòng Tứ vương gia; nàng dung sắc còn đẹp hơn người trước, khiến hắn phát dâm, năm ấy bốn lăm tuổi, được nàng yêu nữ xong cứ chơi địt mãi, kết quả dâm dục quá độ, một thời nằm bệnh nửa tháng, thái y khuyên mới thu liễm, uống thuốc điều hòa hai tháng mới dần hồi phục. Nhưng điều đó không ngăn Tứ vương gia ban cho Hạ Hầu Không danh hiệu giáo quan đặc cấp, cho hắn dùng điều kiện tối thượng của bộ để điều giáo nữ nô. Từ đó Hạ Hầu Không trở thành giáo quan đặc cấp duy nhất trong bộ.
 
 Nghiêm đại nhân nhìn thẳng:
 
@@ -6986,7 +7549,7 @@ Có bài học lần trước, lần này Nghi Nhược ở một tửu lâu g�
 
 Về tới Bộ điều giáo, Nghi Nhược gọi Hình Lộ ra, hai người ở một góc vắng ít người cùng ăn bánh đậu đỏ, coi như mừng sơ sinh thần của nàng, rồi nàng lại vội vã chạy về Hạ Hầu viện.
 
-Hạ Hầu Không đang ngồi trước án đọc sách. Thấy Nghi Nhược背 tiểu bố bao đẩy cửa vào, hắn thoáng ngạc nhiên.
+Hạ Hầu Không đang ngồi trước án đọc sách. Thấy Nghi Nhược đeo tiểu bố bao đẩy cửa vào, hắn thoáng ngạc nhiên.
 
 Lần này nàng về sớm hơn hắn dự đoán.
 
@@ -7002,7 +7565,71 @@ Nghi Nhược nhận chìa, lại chần chừ không động. Mãi đến khi H
 
 Nàng không biết lấy thế nào, hơn nữa… cũng thẹn, lại muốn được hắn chạm vào.
 
-“…” Hạ Hầu Không nhìn nàng mấy giây. Nàng mắt như thu thủy, xuân ý lấp lánh, hắn nghi nàng lại phát tác, bèn dứt khoát đặt sách đứng dậy.
+— ……
+
+Hạ Hầu Không nghi mình nghe nhầm, nhìn chằm chằm vẻ xuân ý lấp lánh trên mặt nàng mấy giây — mắt như thu thủy, mặt tựa đào hoa, mười phần chín phần là lại phát tác rồi! Hắn quyết đoán đặt sách xuống, đứng dậy.
+
+Hôm nay có đàn ông nào nhìn ngươi không? · Đâm phạt vào tiểu cung khẩu
+
+Hạ Hầu Không để Nghi Nhược mặt thẹn nằm trên bàn tròn, vén vạt áo lên eo, cởi quần trong, mở trinh tiết đai. Một đóa hoa non trắng nõn rỉ dịch đỏ do vỏ tỏa xuân hoàn tan ra hiện ra trước mắt hắn.
+
+Nghi Nhược ngoan ngoãn nằm trên bàn, dạng chân chờ hắn giúp lấy thuốc. Chẳng bao lâu, ngón tay dài của người đàn ông nàng mong đợi đã bạch miệng huyệt non ướt nhẹp đang khép chặt, chậm rãi mà kiên quyết đâm sâu vào trong người nàng. Nàng sướng rên khẽ, huyệt hoa co rút, siết chặt ngón tay hắn.
+
+Cảm giác bị chống mở no đầy như vậy… là hai ngón tay.
+
+Ngón tay Hạ Hầu Không bị thịt huyệt đàn hồi ấm ướt hút lấy, kẹt nửa đường, phải dùng lực đâm vào, ép mở thịt huyệt thiếu nữ đang siết chặt, chọc Nghi Nhược run lên, mới chạm được tỏa xuân hoàn nơi sâu nhất trong huyệt.
+
+Sờ được tỏa xuân hoàn, Hạ Hầu Không hai ngón cong lại, gọn gàng móc ra. Nhìn kỹ mới thấy vỏ tỏa xuân hoàn chưa tan hết, viên thuốc thật sự có dược tính bên trong chưa lộ ra—nghĩa là nàng chưa phát tác.
+
+Hắn ngẩng đầu nhìn Nghi Nhược mặt thẹn thùng, trong mắt lại giấu tình dục, đã hiểu. Hắn vứt viên thuốc dính đầy dâm dịch sang bên, chậm rãi cởi áo, giọng trầm:
+
+— Thì ra là ngươi muốn rồi.
+
+Thấy thân hình tinh kiện của Hạ Hầu Không từ từ lộ ra, Nghi Nhược thẹn quay mặt:
+
+— Nghi Nhược không có……
+
+Hạ Hầu Không đặt long vật cứng thẳng lên miệng huyệt ướt mềm của nàng:
+
+— Ngươi giờ đã là thấp nữ, sau này phải thành thật hơn.
+
+Nói xong, long vật nóng rực một cú nuốt quá nửa, mạnh mẽ chống mở hoa kính hẹp của nàng, long đầu nghiền qua thịt non mẫn cảm nhất nơi vách huyệt phía trước, chọc nàng ưỡn eo rên nhọn.
+
+Lớn quá——
+
+Đêm nay huyệt nàng còn đủ trơn, nên Hạ Hầu Không chẳng làm tiền hí; cây thịt nhét vào rồi còn giương chân nàng, hất eo buông thả đâm nện, tiếp tục khai phá trong hoa kính hẹp, chưa mấy nhát đã chọc mở cả con đường non, long đầu thẳng tới tiểu hoa tâm.
+
+Phải thừa nhận, giờ hắn càng ngày càng không kháng cự nổi nàng; vừa chạm thân ngọc mềm non xinh đẹp, vừa thấy nét mặt thẹn thùng mong đợi, hắn đã cứng, chỉ muốn đè nàng dưới thân chiếm đoạt!
+
+— A…… ư…… đại nhân…… sướng quá……
+
+Vừa vào đã bị Hạ Hầu Không đâm mạnh, cảm giác được hắn chiếm hữu từng chút lấp đầy tâm phòng Nghi Nhược. Lúc này nàng mới thật sự cảm nhận mình là người phụ nữ của hắn, và hắn cũng chỉ có mình nàng.
+
+Còn lời Địch Kiêu công kích hắn, nàng chỉ muốn quăng lên chín tầng mây, vì đó không phải hắn—ít nhất… không phải hắn mà nàng hiểu!
+
+— Đêm nay dâm thế, có phải cả ngày không bị điều giáo nên nhớ đàn ông rồi?
+
+Hạ Hầu Không thấy nàng hôm nay hứng thú tốt, cố ý nói câu kích nàng, đồng thời giơ tay xé vạt áo nàng. Hôm nay nàng mặc trang phục nữ tử thường, vạt áo bị xé, lộ ra chiếc yếm mỏng; yếm màu đào làm da nàng càng trắng. Không như lúc bình thường cởi điều giáo phục là thấy đôi nhũ mê hồn, lúc này đôi nhũ đầy của nàng vì lực va đập của hắn bị gói trong yếm không ngừng rung, thêm một phần huyền bí.
+
+Hạ Hầu Không nhìn, long vật dưới háng lại căng to thêm, hai tay phủ lên đôi nhũ nàng tùy ý vò nắn, cách yếm bóp dựng hai hạt nhũ nhỏ, nhìn chúng từ từ dựng lên, đẩy lên yếm thành hai vết nhỏ dâm đãng, không nhịn được nghĩ: hôm nay nàng trên phố, nhũ đầu nhỏ có từng dựng như vậy không? Có bị đàn ông khác nhìn thấy không?
+
+— Hôm nay trên phố, có đàn ông nào nhìn chằm chằm ngươi không?
+
+Trong lòng càng nghĩ càng ghen, Hạ Hầu Không vẫn không nhịn được hỏi.
+
+— Không…… ưm ưm…… không biết……
+
+Nghi Nhược chìm trong sóng tình do Hạ Hầu Không tạo ra, nhất thời không hiểu hắn sao đột nhiên hỏi vậy; nhưng nàng chỉ lo tìm đồ lạ, quả nhiên chẳng để ý có đàn ông nào nhìn mình không.
+
+Lời vừa ra, thịt nhận của Hạ Hầu Không đã tìm đúng vị trí, trừng phạt đâm mạnh vào bụng nhỏ nàng, quán thủ đâm vào tiểu cung khẩu một nửa, chọc Nghi Nhược ngửa đầu rên một tiếng, vội đổi lời:
+
+— Không, không có!
+
+— ……
+
+Hạ Hầu Không nửa tin nửa ngờ rút chút, mật huyệt nàng co từng cái siết cây thịt thô; hắn bị nàng hút quá chặt, khó tiếp tục thụt, bèn hất eo đâm sâu hai cái:
+
+— Thả lỏng chút.
 
 ---
 
@@ -7030,7 +7657,7 @@ Hạ Hầu Không cũng không nhận ra giọng mình dịu đến nhường n�
 
 Đêm nay hắn mơ hồ ngửi thấy trên người nàng một tia hương hoa quen mà xa, lại không phải thứ hắn ưa. Hắn vẫn thích mùi u hương vốn có của nàng — thứ hương chỉ khi áp sát thân thể mới ngửi thấy.
 
-Biết bào cung nàng còn không chịu nổi bị địt mạnh, Hạ Hầu Không khống chế lực tung hạ, chỉ đưa nông vào cung, không chọc vào cung bích. Song góc độ ấy lại càng mài đúng hoa đế nơi hoa bao: mỗi lần nàng bị tung xuống, hoa đế bị ép nghiền lên xương mu hắn, kích thích đôi đường (hoa đế và bào cung) làm Nghi Nhược nhanh chóng run rẩy tiết thân, mật thủy ào ra xối rửa lưỡi thịt trong người.
+Biết bào cung nàng còn không chịu nổi bị đâm mạnh, Hạ Hầu Không khống chế lực tung hạ, chỉ đưa nông vào cung, không chọc vào cung bích. Song góc độ ấy lại càng mài đúng hoa đế nơi hoa bao: mỗi lần nàng bị tung xuống, hoa đế bị ép nghiền lên xương mu hắn, kích thích đôi đường (hoa đế và bào cung) làm Nghi Nhược nhanh chóng run rẩy tiết thân, mật thủy ào ra xối rửa lưỡi thịt trong người.
 
 Hạ Hầu Không bị dòng ấm ấy xông đến tê da đầu, nhắm mắt hưởng một lúc rồi nói với Nghi Nhược còn đang run:
 
@@ -7068,15 +7695,15 @@ Hơi kịch liệt là ngất; về sau phải để nàng quen thêm mới đư
 
 Nghi Nhược thay bộ điều giáo phục Thấp nữ màu phấn mới tinh, nhất thời còn chưa quen. Hạ Hầu Không bảo nàng kể lại những điều thấy nghe hôm qua ra phố, nàng bèn kể rõ từng việc, trừ chuyện nói với Địch Kiêu.
 
-Nghi Nhược mở túi vải nhỏ, lấy bạc dư trả Hạ Hầu Không. Hôm qua nàng ăn tửu lâu, mua trái cây, mua hương nang, cũng chỉ dùng chưa tới hai lượng, còn thừa hơn một lượng.
+Nghi Nhược mở túi vải nhỏ đeo hôm qua, lấy túi bạc dư trả Hạ Hầu Không. Hôm qua nàng ăn tửu lâu, mua trái cây, mua hương nang, cũng chỉ dùng chưa tới hai lượng, còn thừa hơn một lượng.
 
-Trả bạc xong, Nghi Nhược lại lấy gói trà quế hoa:
+Trả bạc xong, Nghi Nhược lại lấy gói trà quế hoa mua cho hắn:
 
 — Đại nhân, trà quế hoa này là thượng phẩm, nhưng Nghi Nhược không biết đại nhân có uống quen không nên không dám mua nhiều.
 
-Nàng chưa từng thấy hắn uống hoa trà, song trà này thật là cực phẩm; nàng muốn hắn nếm thử.
+Nàng chưa từng thấy Hạ Hầu Không uống hoa trà, song trà này thật là cực phẩm trong các loại hoa trà; nàng muốn hắn nếm thử. Vốn nàng còn muốn mua thêm thứ khác cho hắn, nhưng không biết hắn thích gì hay thiếu gì. Điều giáo bộ chỉ là chỗ tạm trú của hắn, ngoài y phục, sách vở và đồ dùng cần thiết, trong phòng hắn chẳng có vật gì thường dùng khác. Quan trọng hơn, lần trước nàng mua cây tử hào bút cho hắn, đến giờ vẫn chưa thấy hắn dùng, nguyên vẹn nằm trong hộp, nên Nghi Nhược nghĩ có lẽ mình mua phải thứ vô dụng, lần này không dám tùy tiện mua nữa. Uống trà là việc hắn thường làm, nàng chỉ mua trà quế hoa — thứ thiết thực nhất.
 
-Hạ Hầu Không cụp mắt nhìn gói trà, nhạt:
+Hạ Hầu Không cụp mắt nhìn gói trà đóng gói tinh tế, nhạt:
 
 — Có lòng.
 
@@ -7116,37 +7743,81 @@ Nghi Nhược thất vọng, khàn khàn:
 
 — Vâng… vậy sau này Nghi Nhược không đeo nữa…
 
-Thì ra hắn không thích. Nàng chợt thấy mấy hôm nay mình tự đa tình đến buồn cười.
+Thì ra hắn không thích mùi hương nang. Nàng chợt thấy mấy hôm nay mình tự đa tình đến buồn cười. Nghĩ đến việc mình suốt mấy ngày tỏa mùi hắn không ưa mà còn tự đắc, Nghi Nhược bực mình muốn tìm khe đất chui xuống.
 
 Nói xong, Hạ Hầu Không cho nàng lui. Nửa canh giờ sau mới bắt đầu điều giáo. Nghi Nhược như được đại xá, vơ lấy con hổ vải định tặng Hình Lộ mà chạy khỏi viện.
 
 Hôm ấy đi ngang bảng biểu dương, Nghi Nhược mới chịu tới nhìn. Thấy Tư Dĩ Dương đứng hạng nhất, nàng vừa ngạc nhiên vừa thấy hợp lý. Nhưng nàng nhìn đi nhìn lại vẫn không thấy tên Hạ Hầu Không, không khỏi hoang mang: hắn là đặc cấp giáo quan, sao lại không có tên?
 
-Nghi Nhược đến tìm Hình Lộ, đưa con hổ vải, nói chuyện đôi câu. Hình Lộ muốn nói gì đó lại thôi, chỉ hẹn tối ra trò chuyện.
+Nghi Nhược đầy nghi vấn đi tìm Hình Lộ, đưa con hổ vải đêm qua chưa kịp tặng, hai người nói chuyện đôi câu trong sân. Nghi Nhược ước lượng sắp đến giờ điều giáo, từ biệt Hình Lộ. Hình Lộ nắm con hổ vải trong tay, bỗng gọi:
 
-Sau đó Nghi Nhược đi qua phòng điều giáo cao cấp, nhớ chuyện Tư Dĩ Dương đã giúp nàng, định đến cảm tạ. Người mở cửa lại là Hà Kiều Kiều, đã mặc yêu nữ phục màu tím. Hà Kiều Kiều nói Tư Dĩ Dương không có mặt.
+— Nghi tỷ tỷ…
 
-Trước khi đi, Nghi Nhược hỏi:
+Nghi Nhược quay lại:
+
+— Ừm?
+
+— Em…
+
+Hình Lộ muốn nói lại thôi, siết chặt con hổ vải. Nàng muốn kể với Nghi Nhược chuyện bị châm kim thôi nhũ, sợ mình chưa sinh con đã bị ép ra sữa, nhưng mặt mỏng, thấy chuyện ấy xấu hổ quá, rốt cuộc không nói ra được. Do dự một hồi, cuối cùng chỉ nói:
+
+— Tối nay chúng ta ra ngoài trò chuyện nhé!
+
+Thì ra là chuyện ấy. Nghi Nhược vốn tưởng em gặp chuyện khó, nghe chỉ muốn tối ra trò chuyện, thở phào nhẹ nhõm:
+
+— Được, dùng xong bữa tối tỷ sẽ tìm em!
+
+……
+
+Đi qua phòng điều giáo cao cấp, Nghi Nhược nhớ Tư Dĩ Dương — sáng hôm qua chỉ kịp hành lễ, hắn giúp nàng đại sự lại bị nàng khai ra, vẫn nên đến tạ. Người mở cửa lại là Hà Kiều Kiều mặc yêu nữ phục màu tím.
+
+Đột nhiên thấy Hà Kiều Kiều với đôi nhũ cao ngất bị điều giáo phục bó chặt và đường nhũ sâu lộ rõ, Nghi Nhược giật mình một cái mới hồi thần. Phải rồi, Tư Dĩ Dương đã đứng đầu bảng biểu dương lần này, lại ngày ngày dùng thủ đoạn tàn nhẫn điều giáo, Hà Kiều Kiều không thăng cấp mới lạ.
+
+— Việc gì?
+
+Hà Kiều Kiều lười nhác liếc Nghi Nhược, trong lòng thực ra chất chứa hận ý. Từ khi Nghi Nhược bị điều về viện Hạ Hầu Không, Hà Kiều Kiều không còn gặp nàng. Nàng vốn nghi Hạ Hầu Không đối với Nghi Nhược có ý riêng mới làm vậy, nghe Nghi Nhược bị điều đi nhận điều giáo riêng, trong lòng càng ghen tức phát điên. Nhưng giờ… đứa vô dụng này cũng thăng cấp? Hà Kiều Kiều lại không chắc: Hạ Hầu Không đưa Nghi Nhược về viện điều giáo riêng là để tư túi chiếm đoạt nàng, hay để điều giáo nghiêm khắc hơn.
+
+— Tư giáo quan có trong không?
+
+Nghi Nhược nhìn vào trong phòng.
+
+— Không. Hôm nay không hiểu sao, đến giờ này Tư Dĩ Dương vẫn chưa tới.
+
+— Ồ…
+
+Vậy đợi dịp khác vậy. Nghi Nhược gật đầu, sắp đi bỗng nhớ ra, hỏi:
 
 — Muốn lên bảng biểu dương phải theo điều kiện gì?
 
-Hà Kiều Kiều cười nhạt:
+Hà Kiều Kiều nghe xong cười phá lên, như nghe chuyện cười lớn:
 
-— Đương nhiên là điều giáo ra nữ nô ưu tú.
+— Đương nhiên là điều giáo ra nữ nô ưu tú!
 
-Nghi Nhược nhìn yêu nữ phục của Hà Kiều Kiều, nhớ ánh mắt Nghiêm đại nhân lúc khảo, bỗng hiểu: Hạ Hầu Không không lên bảng là vì nàng kéo chân hắn.
+Nghi Nhược giật mình, ánh mắt rơi vào yêu nữ phục tím lộ nhiều da thịt của Hà Kiều Kiều — đôi nhũ hoa bị đàn ông vặn vẹo quá nhiều mà to ra, lúc nào cũng cương cứng, đẩy điều giáo phục lên thành hai chóp nhọn, đặc biệt bắt mắt.
 
-Nghi Nhược lại hỏi:
+Nữ nô ưu tú…
 
-— Lên bảng có thưởng bạc?
+Ánh mắt không hài lòng của Nghiêm đại nhân lúc khảo vẫn còn in trong mắt. Nàng nghĩ, nàng cuối cùng cũng biết vì sao Hạ Hầu Không không lên bảng — là nàng kéo chân hắn. Điều giáo đứa bùn không đắp nổi tường như nàng, hắn sao lên được bảng biểu dương?
+
+— Em nghe nói… lên bảng có thưởng bạc?
+
+Nghi Nhược mang nỗi bất an hỏi tiếp.
 
 — Hạng nhất, năm mươi lượng.
 
-Nghi Nhược trợn mắt: năm mươi lượng… Nàng cầm ba lượng ra phố chơi một ngày còn chỉ dùng quá nửa. Nếu hắn không vì nàng mà “mất” hạng nhất, chẳng phải…
+Hà Kiều Kiều đắc ý ngẩng cằm. Sự xuất sắc của nàng vừa cho Tư Dĩ Dương thể diện vừa cho hắn bạc. Hôm qua Tư Dĩ Dương hiếm khi không gọi giáo quan khác cùng hành hạ nàng, chỉ nhét ngọc thế thô dài vào hậu huyệt nàng, rồi một mình đâm tiền huyệt nàng hai lượt. Vừa xuất xong đợt tinh đặc thứ hai thì có người tới gọi hắn đi, từ đó không thấy hắn nữa.
 
-Hà Kiều Kiều lại nói:
+— Năm, năm mươi lượng?!
 
-— Từ trước, chỉ cần Hạ Hầu giáo quan tham gia, hạng nhất nhất định là hắn.
+Nghi Nhược trợn mắt. Thì ra lên bảng thưởng nhiều thế. Hạ Hầu Không cho nàng ba lượng, nàng ra phố Kinh Thành chơi một ngày còn chỉ dùng quá nửa. Năm mươi lượng… ở Kinh Thành mua được bao nhiêu thứ!
+
+— Vậy… từ trước hạng nhất thường là những giáo quan nào?
+
+Nghi Nhược chớp mắt đau đầu hỏi tiếp.
+
+Hà Kiều Kiều biết Nghi Nhược muốn hỏi gì, nói thẳng:
+
+— Tư Dĩ Dương và Phùng giáo quan cùng mấy vị giáo quan cao cấp khác đều là khách quen trên bảng. Nhưng chỉ cần Hạ Hầu giáo quan tham gia, hạng nhất nhất định là hắn.
 
 Nghi Nhược nghe xong, càng thấy trong lòng nặng.
 
@@ -8349,6 +9020,7 @@ Không, là từ đêm nay trở đi, nàng đều phải như vậy.
 PS: Chương sau tiếp tục phần thịt.
 
 PPS: Câu hỏi vui, chương này rải đường mấy lần?
+
 ## Chương 104  Quấn Hạ Hầu Không giao hoan · Phu quân
 
 Trong màn đỏ, Nghi Nhược đỡ lấy dương vật nóng rực cứng thẳng của Hạ Hầu Không, mông hồng chậm rãi ngồi xuống từng chút. Tiểu huyệt còn chưa ướt hẳn bị thô vật chống mở, đau như xé rách; nàng cắn răng, nhẫn đau nuốt hắn vào tận gốc.
@@ -8397,9 +9069,9 @@ Nghi Nhược cứng người, nhất thời câm lặng.
 
 Thì ra Hình Lộ biết rồi.
 
-Hình Lộ tiếp:
-
 — Tỷ không muốn đi cũng không sao. Hình Lộ có thể cùng Hà Kiều Kiều rời đi.
+
+Hình Lộ thần sắc u ám. Hà Kiều Kiều là người cả hai đều ghét, nàng chẳng vì nghe vài câu của Hà Kiều Kiều mà dao động tình chị em với Nghi Nhược. Chỉ là Hà Kiều Kiều nói đúng sự thật — nhìn ra được Nghi Nhược vào bộ sau được Hạ Hầu Không che chở sâu đậm, nàng cũng hiểu nàng vì vậy sinh tình mà không muốn rời Hạ Hầu Không. Nhưng điều khiến nàng thất vọng thật sự, là Nghi Nhược rõ ràng biết cách trốn mà không nói cho nàng. Vậy nên Nghi Nhược không muốn trốn cũng không sao, nàng tự trốn là được.
 
 Nghi Nhược cuống lên nắm tay nàng:
 
@@ -8407,13 +9079,17 @@ Nghi Nhược cuống lên nắm tay nàng:
 
 Hình Lộ cắt ngang, giọng khàn đi vì đau khổ:
 
-— Rất nhanh là nhanh cỡ nào? Mấy đêm nay ta lén ra quan sát rồi, lời Hà Kiều Kiều nói không giả, đúng là có thể trốn theo xe nước. Nghi tỷ tỷ… Hình Lộ thật sự chịu không nổi nữa…
+— Rất nhanh là nhanh cỡ nào? Mấy đêm nay ta lén ra quan sát rồi, lời Hà Kiều Kiều nói không giả, đúng là có thể trốn theo xe nước.
+
+Hình Lộ nói, thần sắc lại đau khổ:
+
+— Nghi tỷ tỷ… Hình Lộ thật sự chịu không nổi nữa…
 
 Ban đêm dưỡng xuân phòng không cần sữa, nên mỗi tối trước khi ngủ, Lương giáo quan đều phải hút cạn sữa của nàng; nửa đêm cũng sẽ dậy hút. Có khi sữa nàng căng đau đến lợi hại, hắn lại cố tình không hút, cũng không cho nàng tự vắt. Đến khi nàng đau đến không chịu nổi, buộc phải tự cởi áo, nâng ngực dâng đến bên miệng hắn, còn phải nói những lời dơ bẩn như:
 
 — “Cầu phu quân uống sữa dâm của Hình Lộ…”
 — “Sữa dâm Hình Lộ căng quá, cầu phu quân hút sạch…”
-— “Cầu phu quân vừa uống sữa vừa địt huyệt xử nữ…”
+— “Cầu phu quân vừa uống sữa vừa đâm huyệt xử nữ…”
 
 Hắn thỏa mãn rồi mới thô bạo vắt sữa ra uống.
 
@@ -8434,6 +9110,120 @@ Nàng dừng lại một chút, rồi nói:
 Dứt lời, Hình Lộ quay đầu chạy thẳng về phòng.
 
 Trốn hay không trốn… cũng đều là đường chết. Vậy thì nàng thà buông tay đánh cược một phen.
+
+Rau quả nhét huyệt điều giáo · Xin đại nhân ban tinh vào bào cung Nghi Nhược
+
+Bị điều chỉnh nằm ngửa trên ghế điều giáo, Nghi Nhược dang rộng hai chân. Hạ Hầu Không cầm một quả dưa chuột rửa sạch, từ chỗ riêng tư đang chảy mật dịch của nàng từ từ đẩy vào.
+
+— Lần này là gì?
+
+— Ưm… Thịt huyệt non bị gai trên vỏ dưa chuột cọ xát, Nghi Nhược co huyệt, đáp:
+
+— Dưa chuột…
+
+— Đúng.
+
+Hạ Hầu Không rút dưa chuột ra, nhặt một quả dâu tây tròn nhỏ, đẩy vào trong người nàng.
+
+— Cái… cái này là…
+
+Nghi Nhược nằm ngửa bị cố định trên ghế, hoàn toàn không thấy Hạ Hầu Không nhét gì vào chỗ riêng, chỉ biết trong người bị nhét một quả tròn nhỏ, không chắc nói:
+
+— Táo… tươi…
+
+— Táo gì?
+
+Hạ Hầu Không hỏi. Đoán đúng rồi? Nghi Nhược trong lòng mừng, nói theo:
+
+— Táo tươi to!
+
+— Không đúng, không phải táo.
+
+Hạ Hầu Không dứt khoát. Thế sao hắn vừa nãy hỏi táo gì!
+
+— Nàng còn một lần cơ hội.
+
+Hạ Hầu Không nhắc nhẹ. Nếu lần thứ hai vẫn đoán sai, hôm nay phải kẹp vỡ bốn trăm quả nho. Nghi Nhược nuốt nước bọt, khẽ co thịt huyệt cảm nhận vật trong huyệt, cẩn thận hỏi:
+
+— Vậy… là cà chua bi?
+
+— Bốn trăm quả nho.
+
+Hạ Hầu Không thẳng thừng. Ưm! Nghi Nhược mím môi. Vừa nãy đã đoán sai một lần, bị phạt hai trăm quả nho; giờ thêm hai trăm nữa!
+
+Hạ Hầu Không bảo nàng ép quả dâu trong người ra, nhặt một củ cà rốt đối chuẩn tiểu huyệt cắm vào:
+
+— Tiếp.
+
+Lần này vật nhét vào đầu nhỏ đuôi to, vỏ nhẵn chất hơi thô, Nghi Nhược khẳng định:
+
+— Cà rốt!
+
+— Không tệ.
+
+Hạ Hầu Không rút cà rốt ra, đổi một quả cà tím dài nhỏ đẩy vào người nàng; quả cà tuy trong loại cà tím đã là nhỏ, nhưng kích thước vẫn thô hơn đầu cà rốt nhiều. Đầu tròn to vừa đẩy vào miệng huyệt chật hẹp của Nghi Nhược đã bị kẹt chặt nơi cửa huyệt. Ngày trước Nghi Nhược ắt co huyệt đẩy dị vật ra; nay bị điều giáo mấy tháng, nàng đã biết phải làm sao, không cần Hạ Hầu Không nhắc, tự ngoan ngoãn thả lỏng thịt huyệt, quả cà trơn nhẵn liền thuận lợi chui vào.
+
+— Cà tím.
+
+Nghi Nhược nhanh đoán ra. Nửa canh giờ qua, trong người Nghi Nhược lần lượt qua lõi ngô, nho, thịt quýt, táo đỏ… tiểu huyệt thẹn ướt nhẹp; sau đó nàng lại đoán sai một lần, số nho phải kẹp lên sáu trăm. Nghi Nhược cắn môi, vừa chuẩn bị chiến đấu cả buổi chiều thì nghe Hạ Hầu Không nói:
+
+— Còn cái cuối cùng. Nếu nàng đoán đúng, sáu trăm quả nho đều miễn.
+
+— Tốt… tốt lắm!
+
+Nghi Nhược mắt sáng, không biết là rau quả gì, chắc khó lắm? Nhưng nàng sẽ cố cảm nhận! Chẳng bao lâu, một vật tròn cứng nóng áp lên đùi nàng. Đây là… Trong nháy mắt, vật ấy đẩy mở tiểu huyệt ướt trơn của nàng, đẩy vào với lực kiên quyết.
+
+— Lần này là gì?
+
+Hạ Hầu Không hỏi thấp.
+
+— Là… long căn to của đại nhân!
+
+Hai đám mây hồng nổi lên má Nghi Nhược, nàng mím môi thẹn thùng:
+
+— Xin đại nhân đâm nhiều huyệt Nghi Nhược, ban tinh vào bào cung Nghi Nhược…
+
+Hạ Hầu Không đẩy sâu vào trong huyệt nàng:
+
+— Đây chẳng phải việc ta mỗi lần đều làm sao?
+
+— A a… vậy Nghi Nhược… có thể ôm đại nhân không?
+
+Nghi Nhược tiểu huyệt ngậm cây thịt thô của hắn, mắt như tơ. Hạ Hầu Không hơi ngẩn. Nàng dạo này càng ngày càng ngoan chủ động; vừa nãy những hình phạt vốn nghiêm túc, nhưng cuối cùng hắn không nỡ, bèn cho nàng câu dễ nhất, xóa bỏ hình phạt. Thấy Hạ Hầu Không không ngăn, Nghi Nhược táo bạo đứng dậy ôm eo tinh kiện của hắn, để cây thịt thô đang nhét đầy tiểu huyệt nàng đâm sâu vào bụng:
+
+— Đại nhân… cũng ôm Nghi Nhược đi! A a a……
+
+Trong phòng vang lên tiếng thịt đập thịt, tiếng rên dâm của thiếu nữ không dứt.
+
+Đêm ấy, Nghi Nhược ngủ say, mắt khép, như đóa hoa non nằm trong chăn. Hạ Hầu Không nằm nghiêng, chống khuỷu trên giường, mắt sáng ngắm gương mặt ngủ đẹp của nàng, ý nghĩ dần bay xa. Dẫu hắn chưa từng điều giáo Nghi Nhược đúng chuẩn nô lệ nữ, nàng vẫn từ xử nữ thuần khiết chưa từng biết chuyện ấy trở thành thấp nữ mắt đầy xuân ý đắm đuối giao hoan. Rõ ràng mọi thứ đều đi đúng hướng hắn ban đầu muốn; giờ hắn đã không còn ý định giao nàng cho bất kỳ ai.
+
+Nghi Nhược đều nghe theo đại nhân · Thụ nghệ phòng quần giao
+
+Từ khi Hình Lộ nói rõ ý định, mấy ngày nay nàng cố tránh mặt Nghi Nhược; Nghi Nhược vì vậy mất hồn mất vía, suốt ngày lo chuyện Hình Lộ, nhưng trước mặt Hạ Hầu Không vẫn cố tỏ ra bình thường, điều giáo thì vô cùng ngoan ngoãn, giao hợp thì nồng nhiệt đắm đuối. Hạ Hầu Không vẫn nhạy bén nhận ra nàng có tâm sự, tưởng nàng lại chán trong bộ muốn ra phố, bèn cho nàng ra phố một lần không điều kiện. Nhưng nàng về vẫn u sầu. Đêm ấy Hạ Hầu Không không nhịn được hỏi; nàng ban đầu nói không sao, lát sau lại chủ động hỏi hắn có thể đừng đưa nàng đến phủ Tứ vương gia không.
+
+— Vậy ngươi muốn đi đâu?
+
+Hạ Hầu Không hỏi như vô tình. Nghi Nhược cắn môi:
+
+— Nghi Nhược… đều nghe theo đại nhân…
+
+Hạ Hầu Không trầm ngâm lát, thấp giọng:
+
+— Ngủ đi.
+
+— Vâng.
+
+Nghe lời Nghi Nhược, Hạ Hầu Không trăm mối tơ vò. Ý trong lời nàng rõ ràng là muốn ở bên hắn. Đã vậy thì…
+
+Hôm sau. Lứa nô lệ của Nghi Nhược đã gần hai tháng không lên lớp thụ nghệ, hôm nay bất ngờ được triệu tập đến thụ nghệ phòng, học tiết đầu tiên sau khi thăng thấp nữ. Hình Lộ đến sớm hơn Nghi Nhược, nhưng xung quanh nàng đều đã có người ngồi, chẳng chừa chỗ cho Nghi Nhược. Nghi Nhược đành tìm chỗ trống tùy ý ngồi. Khi Phượng nương dẫn hai giáo quan trần truồng cùng bốn nữ nô vào phòng, hơn bốn chục thấp nữ ngồi dưới đất mới biết hôm nay họ đến để xem kỹ thuật “quần giao”. Trong sáu người ấy, Nghi Nhược quen có Lương giáo quan của Hình Lộ, Hứa giáo quan của Hà Kiều Kiều, Uyển Oánh—nữ nô sữa nhân phụ mới vào hồi trước—và Hà Kiều Kiều. Sắp xem người quen giao hợp, Nghi Nhược trong lòng ngũ vị tạp trần, vừa thẹn vừa kích thích. Chẳng bao lâu, Hà Kiều Kiều và Uyển Oánh đồng thời hầu hạ Hứa giáo quan. Hứa giáo quan nằm trên nhuyễn tháp tạm bợ; Hà Kiều Kiều quỳ bên cạnh, miệng nhỏ từng chút ngậm mút môi nam nhân, mông hồng chổng lên hướng đám đông, tư xử hoàn toàn lộ ra. Nữ nô sữa Uyển Oánh bôi đầy cao bôi trơn lên người, dùng đôi nhũ sáng bóng xoa thân nam nhân từ cổ xuống dưới, rồi đôi nhũ đầu nhỏ như nho đỏ sẫm nịnh nọt cọ vào hai điểm nhô trên ngực hắn. Nam nhân đỡ gáy nàng, cúi đầu ăn miệng đỏ mọng của nàng rồm rộp, hồi lâu mới buông, để Hà Kiều Kiều tiếp tục hôn môi hắn, đồng thời tay hắn thuần thục vò vắt nhũ hoàn Uyển Oánh, sữa trắng ngọt thơm phun ra. Khi mọi người đều nhìn vào đôi nhũ căng sữa của Uyển Oánh, một tiếng rên mê hoặc vang lên—Hứa giáo quan hai ngón tay thẳng cắm vào tiểu huyệt chảy nước của Hà Kiều Kiều. “Ngón tay gia gia thô quá~” Hà Kiều Kiều giọng khó nhịn, mặt mày lại đắm đuối, bắt đầu tình tứ. “Đợi lát còn có cây thịt thô hơn địt ngươi!” Hứa giáo quan hai ngón cong lại, trong huyệt Hà Kiều Kiều mạnh mẽ móc bới; dâm huyệt lập tức nước chảy rì rầm. “Nữ nô sữa xin mạo phạm chủ nhân…” Uyển Oánh xoay người, tiểu huyệt hướng mặt Hứa giáo quan, nằm phủ lên người hắn, đôi nhũ đầy nhỏ giọt sữa kẹp lấy cây thịt dựng đứng của hắn xoa nắn hầu hạ; Hứa giáo quan đưa ngón tay tay kia vào huyệt nàng. “Đẻ con rồi mà còn hút chặt thế, con dâm phụ!” “Ưm a… Uyển Oánh là… là dâm phụ của gia gia…” Một nam nhân được hai nữ nô đồng thời hầu hạ, hai tay lại lần lượt thọc vào huyệt họ thụt đâm, từ đầu đến cuối tự nhiên như không có ai. Các thấp nữ xem mặt đỏ bừng, miệng khô lưỡi khát. Bị chơi một hồi, Hà Kiều Kiều quay lưng về phía Hứa giáo quan, ngồi lên dương vật thô dài của hắn, dâm huyệt từ trên xuống nuốt tận gốc, miệng rên cao; Uyển Oánh đến vị trí Hà Kiều Kiều vừa quỳ, để nam nhân dùng tay thọc vào tiểu huyệt. Nghi Nhược lén nuốt nước bọt. Hà Kiều Kiều thật ra sức—chẳng lẽ nghĩ sắp trốn được nên dâm bao nhiêu cũng không sao? Và nàng vừa nãy dường như một cái đã đưa cây thịt vào bào cung, bụng không đau sao? Chắc cung khẩu bình thường bị đâm thẳng không ít… Cùng lúc, nữ nô thứ ba cũng bôi cao bôi trơn lên người, chổng mông cao, bắt đầu dùng đôi nhũ massage hai chân Hứa giáo quan; Lương giáo quan quỳ phía sau, nâng cây thịt cứng thẳng đối chuẩn tư xử nàng đâm tận gốc. Trong nháy mắt, thụ nghệ phòng vang lên tiếng rên dâm của hai nữ nô. Nữ nô thứ tư cũng quỳ bên Lương giáo quan, dùng đôi nhũ trượt lên xuống massage toàn thân hắn. Ngón tay Lương giáo quan chẳng mấy chốc cũng thọc vào huyệt nàng; massage bên trái xong đổi bên phải thì hắn dùng tay phải vào huyệt nàng—dù nàng ở đâu, tiểu huyệt luôn bị ngón tay hắn móc bới thụt. Thụt đâm mấy trăm nhát, Hứa giáo quan bất ngờ quỳ dậy, đẩy Hà Kiều Kiều ra; Lương giáo quan cũng hiểu ý đẩy nữ nô đang bị hắn địt ra. Hai nam nhân đồng thời kéo nữ nô đang dùng nhũ massage đến trước mặt, sắp tư thế chổng mông chịu địt, cây thịt cứng đối chuẩn thủy huyệt đâm tận gốc. “Ồ——” “A——” Hai nữ nô bị địt vào huyệt đồng thời run người; đợt giao hợp mới chính thức bắt đầu. “Gia gia vào… vào sâu quá, giỏi quá!” Nữ nô bị Lương giáo quan địt bắt đầu rên dâm. “Địt hỏng ngươi, địt hỏng ngươi!” Lương giáo quan ác độc nói, đồng thời vỗ mông non trắng nõn của nàng, “Cho ta kẹp chặt!” Mấy thấp nữ thẹn không chịu nổi cảnh quần giao dâm đãng ấy, quay mặt né tránh. Phượng nương nhịn một hồi, cuối cùng chỉ vào thiếu nữ thẹn nhất, giọng không vui:
+
+— Đem con tiện nô ấy lên đây!
+
+Hai nữ quan phụ trách kỷ luật đứng phía sau, nghe lệnh lập tức bước tới, đỡ thiếu nữ tên Thanh Thanh lên giữa đám đông và các giáo quan nữ nô đang giao hợp. “Không thẹn sao? Không dám nhìn người khác thì để mọi người nhìn ngươi!” Phượng nương dứt lời, ra hiệu cho hai giáo quan; họ lập tức rút cây thịt ra, xông lên khống chế Thanh Thanh. Hứa giáo quan bắt nàng đối diện đám đông, xé rách điều giáo phục; nhũ non trơn mịn của thiếu nữ lộ ra, âm hộ nhẵn nhụi cũng bị mọi người nhìn thấu. “Không… không… tiện nô biết lỗi rồi!” Bị lột trần trước bốn năm chục người, Thanh Thanh thẹn đến cực điểm, muốn dùng tay che thân nhưng bị Lương giáo quan ôm lấy, ngã ngửa ngồi xuống nhuyễn tháp. Hà Kiều Kiều và nữ nô kia hiểu ý, xông lên trái phải tách hai chân nàng ra, để hoa thẹn mở to. Thanh Thanh mặt đỏ như sắp chảy máu, thở gấp, liên tục kêu “không”, nhưng đã muộn. Hứa giáo quan bước tới, bạch miệng thịt non hồng nhạt của nàng ra cho mọi người xem, vừa nói:
+
+— Đây không phải chảy nước rồi sao? Muốn mà còn giả vờ thuần!
+
+Nói xong, hắn thẳng thừng thọc ba ngón tay vào tiểu huyệt nàng, thụt đâm nhanh. “Ư a a——” Trong thụ nghệ phòng ngoài tiếng Thanh Thanh sợ hãi van xin chỉ còn tiếng “chụt chụt” dịch dâm bị đâm ra. Hứa giáo quan cố ý dùng ngón cái mạnh xoa ấn thiếu đới của nàng; nàng lập tức vặn mình dữ dội, nhưng toàn thân bị khống chế chặt chẽ, không thể thoát, chưa mấy nhát đã bị giáo quan giàu kinh nghiệm dùng tay móc bới đến phun. Hứa giáo quan nhanh rút tay ra; dịch trong suốt lập tức phun từ huyệt nàng ra, tưới ướt đệm bên dưới. Thụ nghệ phòng lập tức vang lên tiếng xì xào của mọi người.
 
 ---
 
@@ -8523,7 +9313,11 @@ Hắn… muốn chuộc thân cho Nghi Nhược.
 
 ## Chương 106  Trái tim Nghi Nhược
 
-Hạ Hầu Không ra ngoài một chuyến, trong viện yên tĩnh hiếm có. Nghi Nhược ngồi trong phòng đọc vài trang sách, Vân lại sai nàng lau án thư và kệ sách.
+Hạ Hầu Không ra ngoài một chuyến. Buổi chiều Nghi Nhược không có việc gì, nằm phủ lên bàn ngoại thất đọc 《Phong Thần Diễn Nghĩa》 mình mua. Vân thấy nàng nhàn rỗi, bèn sai nàng lau sạch kệ sách và án thư của Hạ Hầu Không.
+
+Án thư hắn dùng mỗi ngày, lại là người ưa sạch, nên trên án không bụi. Nghi Nhược bắt đầu từ kệ sách có chút bụi. Dù dọn dẹp phòng là việc của Vân, nhưng đây là lau kệ sách cho Hạ Hầu Không, Nghi Nhược chẳng oán; nàng còn muốn nhận luôn việc lau kệ sách án thư cho hắn về sau. Nghĩ đến tương lai, nàng lại u sầu; tay cầm khăn lau chậm dần.
+
+Mấy ngày nay nàng suy nghĩ rất nhiều, đã tưởng tượng đủ hậu quả thành bại của chuyện trốn. Hôm qua ra phố, nàng thử hỏi Địch Kiêu về chuyện tiếp ứng khi trốn. Địch Kiêu tưởng nàng cuối cùng cũng muốn trốn, thậm chí lên kế hoạch chi tiết, còn cam đoan: chỉ cần nàng ra được cổng điều giáo bộ, hắn nhất định hộ tống nàng toàn thân mà lui. Nói vậy thì chuyện trốn mười phần chắc chín. Nhưng nàng không muốn trốn—trước khi có kết quả với Hạ Hầu Không, nàng không nỡ rời đi. Nếu kết quả như nàng mong, nàng chẳng cần trốn; nếu là kết quả đau lòng, nàng cũng phải tận mắt thấy mới cam. Một khi trốn, nàng không thể quay lại kinh thành, với Hạ Hầu Không cũng không còn cơ hội gặp lại.
 
 Nghi Nhược cầm khăn leo lên ghế, lau đến tầng trên cùng, bỗng nhìn thấy một bọc vải thượng hạng được cất ở góc khuất. Bọc vải được buộc rất chặt, hình dáng bên trong phẳng phiu, rõ ràng là một quyển sách.
 
@@ -10001,9 +10795,11 @@ Hơi thở hắn gần trong gang tấc. Gò má Nghê Nhược nóng bừng, n�
 Hạ Hầu Không nghe xong cười trầm thấp, giọng trầm trêu ghẹo:
 
 "Thì ra ngươi sớm đã tính sẵn muốn gả cho ta rồi?"
-## Chương 120  Tỏ tình, rồi “dã chiến”
+## Chương 120  Vườn hoa hoan ái · Ngươi lại chặt
 
-Nghi Nhược đỏ bừng, muốn thoát khỏi hai tay hắn, lại bị giữ. Nụ hôn thứ hai đã mang tình dục: hắn mút hôn, lưỡi xâm nhập, chiếm đoạt.
+— Ta… ta không có!
+
+Nghi Nhược cảm thấy mặt mình nóng bừng, muốn thoát khỏi vòng tay Hạ Hầu Không, lại bị hắn một tay ấn chặt, nụ hôn nóng bỏng lần nữa phủ xuống. Không giống nụ hôn đầu vừa rồi chỉ chạm môi, lần này nụ hôn của Hạ Hầu Không mang theo tình dục, hắn vờn mút đôi môi mềm mại của Nghi Nhược, lưỡi lửa chui vào miệng nhỏ của nàng xâm chiếm lãnh địa.
 
 Nghi Nhược lần đầu bị hôn sâu, chẳng biết đáp, chỉ mặc hắn trêu đùa trong miệng.
 
@@ -10013,21 +10809,25 @@ Hắn buông môi nàng một chút, kề sát nói:
 
 Rồi lại hôn.
 
-Đêm nay không chỉ là nụ hôn đầu của Nghi Nhược, mà cũng là nụ hôn đầu của Hạ Hầu Không. Trước kia hắn chẳng thích tự thân “thượng trận” khi điều giáo, càng không nói tới môi răng chạm nhau. Nhưng hắn tinh thông phòng thuật, kỹ thuật hôn càng không thiếu.
+Đêm nay không chỉ là nụ hôn đầu của Nghi Nhược, mà cũng là nụ hôn đầu của Hạ Hầu Không. Trước kia hắn ngay cả điều giáo nữ nô cũng chẳng thích tự mình lên trận, càng không nói đến môi răng chạm nhau với họ. Nhưng hắn là giáo quan bộ điều giáo, tự nhiên tinh thông phòng thuật, kỹ thuật hôn càng không thiếu. Kỹ thuật hôn học từ nhiều năm trước nay rốt cuộc có chỗ dùng, Nghi Nhược chính là đối tượng thực hành đầu tiên của hắn.
 
-Nghi Nhược nghe lời, vụng về dùng lưỡi quấn lấy hắn. Chưa kịp học gì đã bị hôn đến đầu óc quay cuồng, nhũ căng, bụng dưới chua; tình dục bị kéo ra.
+— Ưm……
 
-Hạ Hầu Không thò tay vào, bắt lấy hai đoàn nhũ mềm, xoa nắn; tìm đầu nhũ dựng, kéo vò vài cái, rồi hỏi:
+Nghi Nhược nghe lời theo lời Hạ Hầu Không nói, lưỡi nhỏ học động tác vờn quấn của hắn đáp lại, cùng lưỡi linh hoạt của hắn quấn quít, nhưng chưa kịp học được kỹ thuật gì đã bị hắn hôn đến đầu óc quay cuồng, đôi nhũ hơi căng, bụng dưới chua tê, tình dục bị kéo ra hoàn toàn. Chỉ bị Hạ Hầu Không hôn mấy cái mà nàng đã không kìm được rồi sao?
+
+Hạ Hầu Không vừa hôn vừa đưa tay từ bên hông nàng thò vào, bắt lấy hai đoàn nhũ mềm, lòng bàn tay xoa nắn mấy cái, đầu ngón tìm hai hạt nhũ đã dựng, hơi dùng lực kéo vò, rồi buông môi nàng hỏi:
 
 — Tự cứng như vậy, muốn rồi?
 
-Nghi Nhược rên khẽ, mặt thẹn mà gật.
+— À ư——
 
-Hạ Hầu Không thăm tay xuống dưới: khe mật đã rịn dịch, song chưa đủ để nạp vật lớn. Hắn tiếp tục kích: ngón cái xoay vò hoa đế, ngón giữa miết dọc khe mật, câu ra thêm mật dịch.
+Đầu nhũ mẫn cảm bị hắn vò vừa đau vừa tê, Nghi Nhược rên khẽ, hơi do dự rồi thẹn thùng gật đầu. Họ vừa mới gỡ hiểu lầm, thông tỏ tình ý, vốn đang lúc tình nồng, giờ lại bị hắn trêu chọc như vậy, nàng quả thực rất muốn hắn, muốn sớm bị hắn chiếm hữu. Phản ứng thẹn thùng mà thành thật của Nghi Nhược khiến Hạ Hầu Không khóe môi cong lên nụ cười hài lòng, trên mặt tình dục càng nặng. Hắn đưa tay xuống chỗ kín nàng thăm dò, khe mật đã rịn ra hoa dịch, nhưng để chứa vật lớn của hắn vẫn chưa đủ. Hạ Hầu Không tiếp tục trêu chọc, ngón cái xoay vòng vò nắn hoa châu ẩn giấu của nàng, ngón giữa trượt dọc khe mật mẫn cảm qua lại xoa xát, câu ra thêm hoa dịch:
 
-— Hôm nay chỉ hôn vài cái đã ướt?
+— Hôm nay chỉ hôn mấy cái đã ướt rồi?
 
-Nghi Nhược cắn môi thẹn. Còn không phải vì hắn hôn quá giỏi khiến nàng muốn đến không chịu nổi.
+— Ư——
+
+Nghi Nhược thẹn thùng cắn môi. Còn chẳng phải vì hắn hôn quá giỏi, hôn nàng đến muốn không chịu nổi, nên mới ướt đó sao?
 
 Dưới tay hắn, hoa dịch càng nhiều, có giọt xuống đất. Hạ Hầu Không biết nàng đã “chuẩn”, bèn thả long vật đã chờ, nâng một chân nàng, dùng đầu to cọ dọc khe mật, tìm miệng huyệt, định đâm vào.
 
@@ -10041,15 +10841,19 @@ Dù đêm khuya ít ai đến, nhưng nếu bị thấy ở hoa viên giao hoan,
 
 Hạ Hầu Không thở nặng, hông đẩy tới, đầu to phá miệng huyệt chui vào.
 
-Nghi Nhược đã nửa tháng không bị hắn cắm; vừa vào đã đau như rách, nàng run kêu:
+Nghi Nhược đã gần nửa tháng không bị hắn đâm huyệt, vừa bị đâm vào huyệt nhỏ đau như bị xé rách, nàng không nhịn nổi run rẩy kêu hai tiếng:
 
-— A… đau…
+— À à…… đau……
 
-Hạ Hầu Không dừng, đợi nàng quen, mới tiếp tục:
+Hạ Hầu Không dừng động tác, đợi nàng hơi thích ứng, côn thô mới tiếp tục đẩy vào huyệt chật:
 
-— Ngươi lại chặt.
+— Ngươi lại chặt rồi.
 
-Trong người nàng vừa chặt vừa nóng, hắn sướng đến tê. Nghi Nhược rên nhẹ, tay túm tay áo hắn, ngoan ngoãn chịu hắn chiếm đoạt.
+Trong người nàng vừa chặt vừa nóng, côn thô bị từng lớp thịt non ép chặt hút lấy, sướng đến hắn toàn thân tê rần.
+
+— Ưm……
+
+Chỗ kín bị vật tính nam nóng bỏng từng tấc từng tấc chống mở, cảm giác no đầy khiến Nghi Nhược thỏa mãn nheo mắt rên khẽ, tay nhỏ túm chặt tay áo Hạ Hầu Không, ngoan ngoãn chịu hắn xâm chiếm.
 
 Vào quá nửa, Hạ Hầu Không ôm mông nàng, bắt đầu thụt. Nghi Nhược bị nện mà run, nhũ trước ngực cách áo mà dập dềnh. Hạ Hầu Không đẩy áo sang một bên, lộ một bên nhũ trắng mềm, bàn tay phủ lên vò nắn.
 
@@ -10067,7 +10871,7 @@ Hắn ôm nàng mà “hất”, long vật ra vào thẳng, làm mật huyệt 
 
 Đêm thu lạnh, điều giáo phục mỏng; Hạ Hầu Không vỗ mông nàng:
 
-— Về phòng địt ngươi.
+— Về phòng đâm ngươi.
 
 Hắn giữ tư thế giao hợp mà bế nàng về, còn tiện tay bưng luôn đĩa bánh đậu đỏ vào.
 
@@ -10083,47 +10887,55 @@ Nghi Nhược hiểu hắn hỏi đêm hành hình, lắc đầu:
 
 So với chua trướng khi bị ngọc thế thọc cung, thứ làm nàng chịu không nổi hơn là dục hỏa bức bách mà không được.
 
-Hạ Hầu Không ôm nàng chặt hơn, giả giận:
+Hạ Hầu Không không nói. Đêm đó hắn sợ Nghi Nhược rơi vào tay người khác sẽ bị hãm hại, thêm nữa việc nàng trốn quả thực là sự thật, trước mắt mọi người hắn đã dùng đặc quyền miễn hình phạt cá sống nhét huyệt cho nàng, nếu không cho chút hình phạt khác e không ổn, nên hắn đành tự tay động thủ. Thế nhưng đêm đó hắn biết mình bị nàng lợi dụng phản bội, còn bị chơi đùa tình cảm, nhất thời giận không kìm được, trong lúc không làm nàng bị thương đã thực sự phạt nàng một phen, nên dù không đau thì sống không bằng chết ắt có, hắn tự tay hành hình mình rõ nhất. Hạ Hầu Không trong mắt lướt qua chút đau lòng, nhưng mọi chuyện đêm đó hậu kích đủ mạnh, giờ hắn nhớ lại vẫn có ảo giác máu toàn thân xông lên đầu. Tay ôm Nghi Nhược chặt hơn, giả vờ giận:
 
-— Sau này còn trốn, ta sẽ—
+— Sau này còn trốn nữa, ta sẽ——
 
 — Không trốn nữa! Không trốn nữa!
 
-Nghi Nhược ôm eo hắn, vội cam đoan:
+Nghi Nhược ôm chặt eo tinh thực của Hạ Hầu Không, vội cam đoan:
 
 — Nghi Nhược vĩnh viễn không rời đại nhân!
 
-Đúng lúc bụng nàng réo. Hạ Hầu Không đưa một miếng bánh tới:
+…… Vậy còn được. Hạ Hầu Không hài lòng cúi mắt.
 
-— Ăn.
+— Cục lục~
 
-Nghi Nhược bảo làm cho hắn, hắn lại nhét thẳng vào miệng nàng:
+Bụng Nghi Nhược đột nhiên kêu hai tiếng. Đúng lúc nàng xấu hổ, Hạ Hầu Không cầm một miếng bánh đậu đỏ đưa đến miệng nàng:
 
-— Ngươi gầy rồi, ăn nhiều.
+— Ăn đi.
 
-Hắn cũng tự nếm một miếng, gật:
+Nghi Nhược ngẩng đầu nhìn hắn:
 
-— Ngon. Ngươi tự làm?
+— Cái này làm cho đại nhân ăn, đại nhân ăn trước đi.
 
-Nghi Nhược mừng:
+Hạ Hầu Không không cãi cọ với nàng, trực tiếp nhét bánh đậu đỏ vào miệng nàng:
 
-— Vâng. Sau bữa tối đợi bếp vắng, Nghi Nhược nhờ Phương Nhi dạy.
+— Ngươi gầy rồi, ăn nhiều vào.
+
+Bánh đậu đỏ chỉ vài miếng nhỏ, dù Nghi Nhược một mình ăn hết cũng chẳng nhiều. Nhét xong bánh đậu đỏ cho nàng, Hạ Hầu Không tự cầm một miếng nếm thử, nhai mấy cái, vị ngọt thơm của bánh đậu đỏ lan tỏa trong miệng. Dưới ánh mắt mong đợi đầy đủ của Nghi Nhược, hắn xác nhận:
+
+— Ngon. Ngươi một mình làm?
+
+Được Hạ Hầu Không khen, Nghi Nhược vui không giấu nổi, nuốt bánh đậu đỏ trong miệng đáp:
+
+— Vâng! Sau bữa tối đợi bếp vắng người, Nghi Nhược nhờ Phương Nhi dạy làm.
+
+Đa số nữ công trong bếp đều khinh thường bọn nữ nô như họ, nàng chỉ có thể đợi mọi người tan ca rời đi mới lén nhờ Phương Nhi dẫn vào. Hai người vừa nói chuyện vừa ăn, một đĩa bánh đậu đỏ đều vào bụng Nghi Nhược. Nhớ lại lúc nãy trong vườn hoa Hạ Hầu Không lần đầu hôn nàng rồi tình sâu ý đậm giữ chân, Nghi Nhược trong lòng không ngừng rung động. Đêm nay đơn giản là khoảnh khắc hạnh phúc nhất mấy tháng qua của nàng, hạnh phúc đến hơi không chân thực, khiến nàng đến giờ vẫn cảm thấy tất cả đều là giấc mộng.
 
 Ăn xong, Nghi Nhược ôm hắn, nghẹn:
 
 — Nghi Nhược… rất thích đại nhân…
 
-Hạ Hầu Không mắt sâu, đè nàng xuống giường, lại cắm vào nàng lần nữa.
+Hạ Hầu Không mắt sâu, đè nàng xuống giường, lại cắm vào nàng lần nữa. Trong màn ấm, tiếng rên mê hoặc của thiếu nữ đứt quãng mãi đến nửa đêm mới yên.
 
-Sáng hôm sau, Vân vào phòng phụ thấy giường Nghi Nhược chỉnh tề tưởng nàng lại trốn; nhưng lẻn xem chính phòng mới thấy hai người ôm nhau ngủ, bèn lặng lẽ lui.
+Sáng hôm sau. Vân cùng Phương Nhi đưa bữa sáng vào phòng phụ, thấy giường Nghi Nhược chỉnh tề, không có dấu động. Vân sợ nàng lại trốn, định đi báo Phượng nương, chưa chạy khỏi Hạ Hầu viện bỗng nghĩ ra điều gì, quay lại lén đẩy cửa chính phòng, vào nội thất thấy hai bóng ôm nhau ngủ, mắt xoay một vòng, lặng lẽ lui ra.
 
-Nghi Nhược ngủ đến nắng cao mới tỉnh, thấy Hạ Hầu Không vẫn ở án đọc, lòng mới thật yên: đêm qua là thật.
+Đêm qua vất vả đến nửa đêm mới ngủ, Nghi Nhược mãi đến giờ Thìn mới tỉnh, không thấy Hạ Hầu Không, xuống giường thấy hắn như thường lệ ngồi trước án thư đọc sách, mới yên lòng. Đêm qua đẹp đẽ đều là thật. Hạ Hầu Không thấy Nghi Nhược tỉnh, bảo nàng đi tắm rửa, rồi sai nha hoàn đem bữa sáng hâm nóng lên, tự mình cũng ngồi bên bàn cơm xem Nghi Nhược ăn. Nghi Nhược ăn ngon miệng, ăn sạch bữa sáng. Một lát sau, Vân bưng một bát thuốc tránh thai vào, rồi lui ra. Nghi Nhược do dự nhìn nước thuốc trong bát, hỏi vòng vo:
 
-Uống bữa sáng xong, Vân mang canh tránh thai vào. Nghi Nhược nhìn bát thuốc, hỏi dè dặt:
+— Nghi Nhược giờ còn phải uống cái này không?
 
-— Nghi Nhược… còn phải uống cái này sao?
-
-Nàng đã là người của hắn; nàng nghĩ sớm muộn cũng sẽ mang cốt nhục của hắn, vậy tránh thai còn cần gì nữa…
+Nàng đã là người của hắn rồi, sớm muộn cũng phải mang thai con hắn, canh tránh thai này chẳng cần uống nữa chứ?
 
 ---
 
@@ -10177,19 +10989,41 @@ Hạ Hầu Không nhạt dặn:
 
 Phượng nương lĩnh mệnh, đuổi theo ra ngoài.
 
-Tính xong sổ Hà Kiều Kiều, Hạ Hầu Không cầm ngân phiếu tới sổ sách chuộc thân cho Nghi Nhược và Hình Lộ, lại sai chuẩn bị xe ngựa, đưa họ về vương phủ.
+Tính xong sổ Hà Kiều Kiều, Hạ Hầu Không cầm ngân phiếu tới sổ sách chuộc thân cho Nghi Nhược và Hình Lộ, sai chuẩn bị xe ngựa đón họ về vương phủ, lại phái tỳ nữ gia đinh vương phủ tới chuyển đồ đạc của hắn ở Hạ Hầu viện về phủ.
 
-Khi Nghi Nhược và Hình Lộ khoác áo choàng dài che thân rời điều giáo bộ, Hà Kiều Kiều đã bị kéo lên đài hình ở tiền viện: bị lột sạch, tát đủ năm trăm, mặt sưng như heo; sau đó bị cố định, mặc cho nữ quan tập luyện xuyên vòng nhũ, vòng âm, rồi cuối cùng bị cá sống nhét huyệt, lại đưa lên mộc lư bị ngọc thế thọc đến chảy máu.
+Khi Nghi Nhược và Hình Lộ khoác áo choàng dài che thân rời điều giáo bộ, Hà Kiều Kiều đã bị kéo lên đài hình ở tiền viện. Điều giáo bộ dựng đài hình riêng để nàng chịu hình trên đó, dù người xem đông cũng không sợ không thấy. Hà Kiều Kiều bị lột sạch, hai tay trói ngược, quỳ trên đài hình, bị hai nữ quan tát miệng "đập đập" vang. Đủ năm trăm cái tát xong, mặt nàng đã sưng hồng, đầu choáng mắt hoa. Gần như toàn viện giáo quan nữ nô đều tụ tiền viện xem, quanh đài hình vây ba lớp ngoài ba lớp. Nghi Nhược và Hình Lộ đứng hành lang không xa, thấy vậy cũng dừng chân xem.
 
-Nghi Nhược nhìn mà trong lòng ngổn ngang. Cùng phạm bộ quy, nàng là kẻ may: Hạ Hầu Không vì có tình mà đêm ấy đã kêu dừng, nếu không nàng đã là Hà Kiều Kiều hôm nay.
+Năm trăm cái tát xong, Hà Kiều Kiều bị chuyển lên ghế điều giáo cố định, hoa hộ mở rộng, người đứng chính diện thậm chí nhìn rõ động dâm của nàng. Tiếp theo hai nữ quan tiến lên xuyên nhũ hoàn và âm hoàn cho nàng. Hình phạt này do Phượng nương thêm; bộ cần đào tạo thêm nữ quan quen kỹ thuật xuyên hoàn, nhân cơ hội lấy thân Hà Kiều Kiều tập tay. Nữ quan phụ trách xuyên nhũ hoàn hôm nay lần đầu động thủ, cầm kim bạc nhỏ trên nhũ hoàn đâm vào một bên đầu nhũ Hà Kiều Kiều. Do thiếu kinh nghiệm, một lần chưa xuyên thủng, cầm kim dùng lực tùy ý đâm thêm mới xuyên qua đầu nhũ, nhũ hoàn khắc chữ "tiện nô" đeo thành công lên đầu nhũ đã bắt đầu đỏ. "A!" Qua phen ấy Hà Kiều Kiều đau đến kêu thét không thôi, nhưng trong miệng nàng đã bị nhét khối gỗ hình chữ nhật, không thể nói, chỉ biết há miệng kêu đau. Phượng nương dặn mỗi đầu nhũ Hà Kiều Kiều phải xuyên hai hoàn, nên nữ quan tiếp tục dùng kim đâm đầu nhũ Hà Kiều Kiều. Cùng lúc, nữ quan phụ trách xuyên âm hoàn đang tát tư xử Hà Kiều Kiều, vừa chửi nàng là tiện nô vừa đánh hoa hộ nàng đỏ rực, âm đế âm thần sung huyết sưng phồng. Đợi hai đầu nhũ Hà Kiều Kiều đều xuyên hai nhũ hoàn xong, nữ quan bắt đầu xuyên âm hoàn. Hai nữ quan trái phải kéo hai môi âm bị đánh sưng của nàng, từ trên xuống dưới, mỗi môi âm xuyên năm chiếc tiểu ngân hoàn nhỏ. Xuyên âm hoàn tuy không đau bằng nhũ hoàn, nhưng nhiều hoàn cùng lúc xuyên, Hà Kiều Kiều vẫn run hai đùi không thôi, khiến âm hoàn lắc lư như hai nhánh liễu lay. Xuyên xong tiểu hoàn âm thần, nữ quan lấy chiếc hoàn hơi lớn hơn cuối cùng, nắm âm đế sưng đỏ lồi của Hà Kiều Kiều, mũi kim nhắm hạt non yếu ấy đâm qua — "A a a —" Hà Kiều Kiều cong người gào thét, tư xử phun ra chất lỏng vàng — nàng bị đâm đến mất kiểm soát. "Oa —" "Í —" Đám người xem thấy nàng phun nước tiểu, vừa hùa vừa tránh xa. Hà Kiều Kiều hổ thẹn phẫn uất, nhục nhã và đau đớn khiến hạ thể nàng không ngừng co thắt. Lúc ấy nữ quan bắt con cá trê đen nhẻm cho Hà Kiều Kiều xem, cá sống trước mặt nàng không ngừng vẫy đuôi, nước tanh bắn đầy mặt. Nàng ban đầu không hiểu ý gì, khi nữ quan cầm cá đưa vào giữa hai chân nàng dang rộng, nỗi sợ mới từ đáy lòng trào lên. Nàng điên cuồng vặn mông muốn tránh, nhưng bị nữ quan khác ngồi lên bụng, áp chặt hạ thể. Tiếp đó, vật thô to lạnh cứng trơn nhẫy ấy ép vào huyệt nàng. Hà Kiều Kiều buồn nôn tuyệt vọng, muốn nôn mà không nôn ra gì, chỉ phát ra tiếng ọe khan. Cá trê vào chỗ chật hẹp ấy, khó chịu muốn thoát, thân cá giãy dữ dội, chui khiến Hà Kiều Kiều buồn nôn không thôi, thở gấp, cuối cùng rơi nước mắt không biết là sợ hay hận. Nữ quan một tay đỡ ngoài huyệt Hà Kiều Kiều ngăn thân cá trượt ra, tay kia bóp âm đế đã xuyên hoàn của nàng. Hà Kiều Kiều đau co âm huyệt chặt hơn, cá trê càng khó chịu, giãy mạnh hơn, một mạch chui vào bụng nàng, chui khiến bụng dưới nàng phồng lên trũng xuống.
 
-Hạ Hầu Không thấy sắc nàng không tốt, hỏi:
+Nghi Nhược lặng nhìn Hà Kiều Kiều bị cá sống nhét huyệt, trong lòng ngổn ngang. Cùng phạm bộ quy, nàng là kẻ may: Hạ Hầu Không vì có tình mà đêm ấy dù trong cơn thịnh nộ vẫn kêu dừng, nếu không nàng đã là Hà Kiều Kiều hôm nay.
+
+Hạ Hầu Không thấy sắc nàng không tốt, nghĩ nàng xem cảnh tàn nhẫn ấy khó chịu, mở miệng chuyển sự chú ý:
 
 — Còn xem nữa không?
 
 Nghi Nhược lắc đầu, gượng cười:
 
 — Đi thôi.
+
+Đã xác nhận Hà Kiều Kiều chịu phạt, phần còn lại cũng chẳng có gì đáng xem.
+
+Sau khi ba người ra bộ lên xe ngựa rời đi, cá trê trong huyệt Hà Kiều Kiều cũng mệt ngừng động, được lấy ra từ huyệt thịt tanh tưởi của nàng. Hà Kiều Kiều cũng bị hành đến toàn thân vô lực, nước mắt nước dãi chảy ngang. Rất nhanh nàng bị đặt xuống ghế điều giáo, hai tay trói sau lưng, cổ quấn dây gấm, người bị đưa lên mộc lư cơ quan có ngọc thế số bảy. Hạ thể bị cá trê làm đầy mùi tanh đối chuẩn ngọc thế, thân thể bị ấn mạnh xuống, ngọc thế từ miệng huyệt đâm thẳng vào tử cung. "A a a a —" Tiếng ai oán thảm thiết của Hà Kiều Kiều vang khắp tiền viện. Thân thể nàng vì đau dữ dội mà cứng đờ. Lúc ấy mộc lư cơ quan được khởi động, rất nhanh dao động dữ dội trước sau. Ngọc thế thô cứng trong huyệt nàng đâm qua đâm lại không thương tiếc. Rất nhanh có máu chảy theo tư xử nàng, từ lưng mộc lư chảy xuống. "Phượng nương, lần này có quá kịch liệt không? Bụng nàng e hỏng mất…" Một nữ quan ghé tai Phượng nương nhắc nhỏ. "Nàng sang doanh trại cũng bị đàn ông địt, bụng hỏng mới tốt! Đỡ vào doanh trại chưa bao lâu đã bị địt có thai, đến lúc bị địt sảy thai lại mấy ngày không hầu được quân gia!" Phượng nương uống ngụm trà, với đám nữ nô xem, đặc biệt là sơ nữ mới tới, răn dạy: "Nhìn kỹ, vi phạm bộ quy là kết cục này!"
+
+Bên ngoài Cảnh An vương phủ, Hạ Hầu Không, Nghi Nhược và Hình Lộ xuống xe. Nghi Nhược ngẩng đầu nhìn biển phủ cao, cảm thấy áp lực chưa từng có. Nghi Nhược dừng chân, kéo áo Hạ Hầu Không:
+
+— Đại nhân…
+
+Hoàng thái phi mẫu thân Hạ Hầu Không ở trong phủ chứ? Nàng chưa chuẩn bị đối diện hoàng thái phi. Nếu hoàng thái phi chê xuất thân nàng, không thích nàng thì sao?
+
+Hạ Hầu Không định hỏi Nghi Nhược sao, bên cạnh Hình Lộ đột nhiên quỳ trước hai người, cúi đầu:
+
+— Dân nữ Hình Lộ cảm tạ vương gia và tỷ Nghi ân tái tạo. Hình Lộ nguyện làm tỳ nữ trong vương phủ, làm trâu làm ngựa, báo đáp đại ân đại đức vương gia và tỷ Nghi!
+
+Hạ Hầu Không và Nghi Nhược một người chuộc thân cho nàng, một người đối đãi nàng như muội thân. Nàng không chỉ một lần cảm thán: trên đường bị bán tới điều giáo bộ nếu không gặp Nghi Nhược, đời nàng đã hỏng. Nghi Nhược vội cúi xuống kéo Hình Lộ, thấy mặt non nớt của nàng đã đầy vết nước mắt, nàng cũng không nhịn được rơi lệ:
+
+— Chúng ta sao nỡ để ngươi làm tỳ nữ?
+
+Nàng không có em trai em gái. Hình Lộ nhỏ hơn nàng ba tuổi, lại ngoan ngoãn thuần khiết, sinh đẹp đáng yêu, nên nàng luôn coi Hình Lộ như muội thân. Họ đã nương tựa nhau trong những ngày bị đưa nghìn dặm tới điều giáo bộ, vào bộ lại càng nâng đỡ nhau. Nếu không có Hình Lộ, nàng e chẳng có ai nói chuyện thầm kín. Nay cùng khổ xong, sao nỡ để nàng làm tỳ nữ?
 
 ---
 
@@ -10458,9 +11292,11 @@ Hạ Hầu Không rút những ngón tay bị tiểu huyệt nàng hút chặt r
 Nghê Nhược thở dốc nhìn màn đỏ trên đỉnh giường, thất thần nghĩ: bị Hạ Hầu Không chỉ dùng ngón tay mà làm đến xuất thân, đây là lần đầu của nàng.
 
 Rất nhanh, hai đầu gối nàng bị hắn tách nâng lên. Côn thịt nóng cứng của hắn phá mở cửa huyệt non hẹp ướt át, đâm thẳng vào.
-## Chương 123  Hạ Hầu Không kể thân thế
+## Chương 123  Tuyệt sắc bị địt chết
 
-Nghi Nhược do dự mới đáp:
+Đêm qua hai người mải mây mưa, hắn chỉ hỏi qua kế hoạch sau khi nàng trốn, biết có người ở ngoài tiếp ứng, chi tiết chưa hỏi kỹ.
+
+Nghi Nhược do dự một hồi mới nói:
 
 — Là chủ nhân Vạn Hương Các…
 
@@ -10502,7 +11338,7 @@ Mười sáu tuổi, hoàng đế phái hắn đến điều giáo bộ làm vi�
 
 Hạ Hầu Không biết kẻ thật sự bày mưu hại mẹ con hắn là Tứ vương gia. Tứ vương gia háo sắc nổi danh, thê thiếp đầy nhà vẫn không thỏa; từng vì phóng túng quá độ mà hỏng thân. Hạ Hầu Không từng muốn dùng “nữ nô” làm lợi khí giết hắn, nhưng đường ấy hy vọng quá mong manh.
 
-Hạ Hầu Không còn kể chuyện Bạch Tử Tuyên: nàng vào phủ Tứ vương gia, quả nhiên khiến hắn tái phát dâm tính, cuối cùng Bạch Tử Tuyên bị địt chết; Tứ vương gia cũng suýt tinh tận nhân vong. Chỉ thiếu một chút… nhưng nàng chết, cơ hội cũng tắt.
+Hạ Hầu Không còn kể chuyện Bạch Tử Tuyên: trước khi đưa nàng ra bộ, tại Hạ Hầu viện nàng phong tình vạn chủng ôm cổ hắn, đôi bầu ngực căng đầy cọ vào ngực hắn, thở hương lan bên tai, nhẹ vuốt vật dưới háng hắn, giọng quyến rũ nói muốn hắn một lần nữa trước khi đi. Hạ Hầu Không mặt không đổi sắc, gạt tay nàng, từ chối: chốc nữa vào phủ Tứ vương gia phải nghiệm thân. Nàng biết điều rời khỏi người hắn. Nghiệm thân chỉ là cớ; nếu hắn muốn, có đủ cách xử lý. Nàng là tuyệt thế tuyệt sắc khiến thiên hạ nam nhân không thể kháng cự, nhưng "thiên hạ nam nhân" ấy không bao gồm Hạ Hầu Không. Bạch Tử Tuyên vào phủ Tứ vương gia quả nhiên lại khơi dậy sắc tâm hắn. Nghe nói đêm đêm đè nàng lên giường đại thao đặc thao, không nghe lời thầy thuốc, còn muốn nạp nàng làm thiếp. Thân thể Tứ vương gia không bằng xưa, nhưng không cam để thiếu nữ tươi non ấy coi thường. Đêm nạp thiếp, hắn uống hai viên xuân đan rồi hành phòng sự. Kết quả Bạch Tử Tuyên không chịu nổi bạo thao dâm ngoạn hung mãnh lâu dài, bị hắn địt chết ngất đi. Chỉ thiếu một chút, Tứ vương gia đã bạo tử trên giường. Khi Bạch Tử Tuyên chết, Tứ vương gia tưởng nàng ngất, thêm hắn dâm tính bộc phát không dừng được, bèn bóp nhũ, giày vò ngọc thể, côn cứng đâm mạnh huyệt non, đến tinh quan mở, gào phun đầy bụng mỹ nhân rồi chính hắn cũng ngã. Tùy tùng vào xem, thấy đại sự bất diệu, vội mời thầy thuốc. Bạch Tử Tuyên lòng trắng mắt lật, hơi thở không còn, ngọc thể vết bầm, bụng phồng, huyệt hoa chảy tinh đặc, toàn thân bọc vải trắng khiêng đi. Tứ vương gia dương khí tổn hại, suýt tinh tận nhân vong, được thầy thuốc cứu về, nằm điều lý hai ba tháng mới khỏi. Bài học quá thảm liệt, Tứ vương gia e ngại, thu liễm nhiều, không nạp thiếp mới, chỉ thỉnh thoảng mua trinh tiết xử nữ khai bào chơi. Thật sự chỉ thiếu chừng ấy. Nếu Bạch Tử Tuyên còn sống có lẽ còn cơ hội; nàng chết rồi, sau này khiến Tứ vương gia dâm tính bộc phát như vậy e không còn ai.
 
 Từ đó Hạ Hầu Không thoái ẩn, chuyển sang tụ thế, thu thập chứng cứ. Rốt cuộc hắn nắm được “lợi khí” có thể một đòn giết Tứ vương gia: dã tâm soán vị. Hắn bày cục, chờ Tứ vương gia tự nhảy vào.
 
@@ -10566,13 +11402,27 @@ Huyệt nàng co siết. Hạ Hầu Không hài lòng, liền cắm vào nàng, 
 
 Mấy ngày sau, cuộc sống ở phủ yên ổn. Hạ Hầu Không lấy thuốc tẩy ấn chương ở lưng, xóa dấu “Hồi Xuân Các” của hai nàng, từ nay thật sự cắt đứt.
 
-Nhưng Hình Lộ vẫn tiết sữa không dứt. Không có giải dược; muốn dứt cũng không được, đành chờ ba năm thuốc tự tan.
+Hình Lộ tuy đã tẩy ấn chương, nhưng sữa thơm vẫn mỗi ngày không ngừng tiết ra. Nghi Nhược nghe nói kiên trì không vắt sữa một thời gian có thể ngừng sữa. Nhưng sữa của Hình Lộ không phải có sau khi sinh con bình thường, mà là dùng thuốc thúc ra, khác với phụ nhân sinh con. Hơn nữa nàng mới một buổi sáng không vắt, đôi nhũ đã căng đau khó chịu. Hình Lộ mồ hôi lạnh chảy đầm đìa nhịn suốt nửa ngày, khó chịu trên giường trở mình qua lại, rốt cuộc không chịu nổi đau căng đôi nhũ, vắt đủ ba bát lớn sữa, vắt trống hai nhũ căng mới thoải mái. Thuận theo tự nhiên không thể ngừng sữa. Nghi Nhược bèn nhờ Hạ Hầu Không giúp từ Dưỡng Xuân Các lấy thuốc ngừng sữa, giải tính Hương Nhũ Thang. Ai ngờ Hạ Hầu Không chỉ một câu khiến họ thất vọng: Hương Nhũ Thang không có giải dược, vì chưa từng có chủ mua nô sữa nào chán sữa của họ. Vì vậy Hình Lộ đành bỏ ý định ép ngừng sữa, chọn đợi ba năm sau để tính Hương Nhũ Thang tự tiêu tan. Không ngừng được sữa, Nghi Nhược lại hỏi Hình Lộ chuyện tháo nhũ hoàn. Hình Lộ nói lỗ xuyên hoàn chưa lành, chạm vào là đau, nhất quyết không dám tháo, đành để sau này.
 
-Một đêm, Hạ Hầu Không dẫn tùy tùng ra ngoại ô, vào miếu hoang bắt gặp Địch Kiêu cùng đám người đang kiểm vũ khí. Hắn cười lạnh: chủ Vạn Hương Các hóa ra buôn vũ khí.
+Một đêm, Hạ Hầu Không như thường cùng Nghi Nhược mây mưa một phen. Nghi Nhược ngủ rồi, hắn mặc áo ngoài, dẫn hơn mười tùy tùng võ lực cao cường ra phủ. Trong miếu hoang ngoại ô kinh thành, Địch Kiêu đang cùng mấy huynh đệ kiểm điểm binh khí. Cửa miếu đột nhiên bị đạp mở. Họ giật mình, thấy người tới cầm đao kiếm, họ cũng lập tức cầm binh khí đối trì. Cửa miếu đạp mở, mấy tùy tùng nhường một lối. Hạ Hầu Không mặc áo choàng đen bước vào miếu, một cái nhìn đã nhận ra Địch Kiêu đứng đầu. Hắn cúi mắt nhìn quanh binh khí họ đang kiểm điểm, châm chọc:
 
-Hạ Hầu Không nói thẳng: buôn vũ khí là tội chết, nhưng nếu Địch Kiêu hợp tác, hắn có thể bỏ qua, bảo Địch Kiêu vô sự. Hắn cần người và binh khí cho ván cờ sắp tới.
+— Hóa ra chủ Vạn Hương Các còn làm nghề buôn lậu binh khí.
 
-Địch Kiêu cầm kiếm, cân nhắc: hắn không gật cũng không được.
+Trong lúc Hạ Hầu Không nói, hai tay hạ của Địch Kiêu canh gió ngoài miếu hoang cũng bị bắt giải vào.
+
+— Công tử có việc gì?
+
+Địch Kiêu ánh mắt không thiện nhìn Hạ Hầu Không và tùy tùng hắn mang theo.
+
+Đối phương rõ ràng có chuẩn bị, từ dáng người nhìn đều là cao thủ võ công. Họ ít chống nhiều, nếu mạo muội chống lại e không có phần thắng.
+
+— Buôn lậu binh khí là tội chết. Nếu ngươi nguyện hợp tác với ta, ta có thể bỏ qua trước, bảo ngươi vô sự.
+
+Hạ Hầu Không không trả lời câu hỏi, mà trực tiếp đưa điều kiện.
+
+Từ khi biết chủ Vạn Hương Các sẵn sàng giúp Nghi Nhược trốn, hắn đã nghi ngờ thân phận. Thiên hạ đều biết điều giáo bộ là cơ quan triều đình. Dám dính vào vũng bùn ấy không phải ngốc thì là có bối cảnh khác. Nhưng sau khi điều tra, hắn phát hiện Địch Kiêu thuộc loại sau. Địch Kiêu là người Hồ, ở kinh thành lấy tiệm hương làm che đậy, bí mật làm nghề buôn lậu binh khí. Miếu hoang ngoại ô âm u, quanh năm không ai dám vào, bị hắn dùng làm kho cất binh khí, dùng đống rơm dày che phủ. Đúng lúc hắn đang vận mưu chuyện cần dùng nhiều nhân thủ và binh khí. Nếu Địch Kiêu chịu hợp tác, họ sẽ mỗi bên lấy cần.
+
+Nghe vậy Địch Kiêu nhíu mày, nắm chặt chuôi kiếm, chìm vào trầm tư. Thật ra khi Nghi Nhược lần đầu ra phố bị đại hán bắt đến miếu hoang này, đúng là ngày hắn giao hàng. Hắn phát hiện trong miếu có người, bèn để huynh đệ lui ẩn hai bên. Khi hắn cứu Nghi Nhược đánh xe về phố kinh thành, huynh đệ mới vào miếu chuyển binh khí đi. Dù không biết căn cứ này lộ từ khi nào, nhưng xét tình hình hiện tại, hắn không gật cũng không được.
 
 ---
 
@@ -10923,24 +11773,6 @@ Thấy nàng chịu thuận, Hạ Hầu Không siết nàng chặt hơn, trầm 
 
 ## Chương 126  Hoàng thành biến đổi · Hai tháng sau
 
----
-
-彩蛋—
-
-Hạ Hầu Không: Ngươi là kẻ lừa gạt, lại gạt ta!
-
-Nghi Nhược: Câu này phải để thiếp nói mới đúng!
-
-Phấn phấn: Thôi thôi đừng cãi nữa, hai người đều là kẻ lừa gạt, được chưa?
-
-Không–Nhược: …
-
----
-
-PS: Chương sau chính là kết cục thượng thiên—Đại hôn (thượng) rồi~
-
-PPS: Gửi tới những độc giả mỗi ngày xem weibo cập nhật của ta mà lại tìm không ra chương mới, hoặc ở chỗ “po18” nào đó cũng tìm không thấy cập nhật: PO18 có vô số website lậu trông cực kỳ giống nhau; chỉ cần weibo đã lên chương mà nơi các ngươi đọc chưa lên, tức là lậu. Đừng hỏi nữa vì sao thiếu mấy chục chương; xem link chính bản và hướng dẫn đăng PO ở bài ghim của ta.
-
 Hôm nay Hạ Hầu Không sáng luyện kiếm xong bèn về phủ mình một chuyến, xử lý vài việc vặt, mãi đến sau bữa tối mới quay lại Hạ Hầu viện.
 
 Đẩy cửa vào, một trận hương cơm canh xộc thẳng lên. Nghi Nhược ngồi ở ngoại thất—chính là bàn ăn của nàng—trước mặt bày một quyển 《Sơn Hải Kinh》 đang mở; nhưng nàng chẳng đọc, chỉ chống cằm ngẩn người.
@@ -10989,25 +11821,33 @@ Hắn đứng tại chỗ, nhìn màn đêm ngoài cửa, trầm ngâm.
 
 Phản ứng vừa rồi của nàng giống như “lấy lòng không thành” rồi luống cuống tay chân. Chẳng lẽ vì ngày thi đấu sắp tới, nàng tuy không muốn tham dự, nhưng vẫn muốn lấy lòng hắn để giành được cơ hội ra phố?
 
-Đêm đó, Nghi Nhược gặp ác mộng, khóc tỉnh. Hạ Hầu Không xách đèn dầu vào, thấy nàng vừa sợ vừa tủi, tim như bị người bóp chặt.
+Đêm đó, Nghi Nhược gặp ác mộng, khóc tỉnh. Hạ Hầu Không xách đèn dầu vào, thấy tiểu nhân trong giường thì sững lại. Nghi Nhược trong mắt có vẻ mơ màng vừa tỉnh, sâu trong đồng tử còn mang theo nỗi sợ từ trong mộng ra, giọt lệ to như hạt đậu chứa đầy tủi thân, vẻ mặt xinh đẹp lộ rõ bất lực. Nhìn Nghi Nhược như vậy, Hạ Hầu Không cảm thấy tim mình như bị người bóp chặt, không thở nổi.
 
-Hắn hỏi:
+Hắn chậm rãi mở miệng, giọng khàn đặc:
 
 — Mộng yểm sao?
 
-Nghi Nhược lặng lẽ gật, lau nước mắt, lại lắc đầu nói:
+Nghi Nhược lảng tránh ánh mắt, im lặng gật đầu, đưa tay lau nước mắt trên mặt, lau mấy lần mới lau sạch.
 
-— Không có gì… chỉ là mộng yểm bình thường…
+— …… Mộng thấy gì?
+
+Hạ Hầu Không không nhịn được hỏi. Nào khiến nàng sợ đến vậy, khóc tỉnh giấc! Nhớ lại giấc mộng vừa rồi, Nghi Nhược lắc đầu, giọt lệ lại lăn xuống:
+
+— Không có gì……
+
+Hạ Hầu Không trong mắt sâu thẳm quan tâm, bình thường hẳn khiến nàng tim đập rộn, nhưng lúc này không chỉ khiến tim đập mà còn khiến nàng sợ hãi. Nàng nói xong liền hơi hối hận quay người về phía trong giường, lưng quay hắn, kéo chăn, cả người co vào trong chăn. Tự bọc mình tách khỏi thế gian, Nghi Nhược dần bình tĩnh, từ đáy lòng cảm thấy may mắn, may mà vừa rồi chỉ là mộng, nếu là thật thì nàng……
+
+— ……
 
 Hạ Hầu Không nhìn chằm chằm cục chăn đỏ phồng lên hồi lâu, cuối cùng không cưỡng ép, chỉ lạnh nhạt nói:
 
 — Vậy thì tốt. Ngủ tiếp đi.
 
-Nghi Nhược nghe bên ngoài không còn động tĩnh, mới vén chăn ra. Bốn phía lại tối đen. Nàng dựa về phía hắn, nhỏ giọng hỏi:
+Nghi Nhược nghe bên ngoài không còn động tĩnh, mới vén chăn ra. Bốn phía lại tối đen như lúc vừa tỉnh khỏi mộng yểm. Nàng chậm rãi ngồi thẳng, nghiêng về phía đầu giường, mắt đã quen bóng tối có thể nhìn thấy trong ánh trăng, nhìn gương mặt đường nét rõ ràng của hắn, nhỏ giọng hỏi:
 
-— Trước khi thiếp tỉnh, như nghe có người gọi tên thiếp… là đại nhân sao?
+— Đại nhân…… Trước khi Nghi Nhược tỉnh, như nghe có người gọi tên Nghi Nhược…… là đại nhân sao?
 
-Tiếng gọi ấy như cứu rỗi trong tuyệt vọng, khiến nàng đến giờ vẫn không quên.
+Tiếng gọi ấy như cứu rỗi trong tuyệt vọng, khi nàng ở trong tuyệt vọng bị Tư Dĩ Dương xâm chiếm, là hy vọng duy nhất.
 
 Hai tháng sau, Hạ Hầu Không quả nhiên đón nàng về kinh. Trong thời gian ấy, hoàng thành biến đổi, triều cục xoay chuyển: hắn thắng ván cờ, thế lực được củng cố; Tứ vương gia bị trấn áp, đại cục đã định.
 
@@ -11281,7 +12121,7 @@ Hỉ yến dần tàn, khách khứa lục tục ra về. Hạ Hầu Không rờ
 
 Trong phòng, Nghi Nhược đội phượng quan, khoác hỉ phục, đầu phủ khăn đỏ, ngồi ngay ngắn trên hỉ sàng. Chỉ một cái nhìn, ánh mắt hắn đã mềm đi.
 
-Hắn khép cửa, bước tới bên nàng, cầm hỉ xứng khẽ挑, vén khăn đỏ lên. Gương mặt trang điểm tinh tế hiện ra, nàng cúi mắt thẹn thùng, mi cong rung nhẹ.
+Hắn khép cửa, bước tới bên nàng, cầm hỉ xứng khẽ nhấc, vén khăn đỏ lên. Gương mặt trang điểm tinh tế hiện ra, nàng cúi mắt thẹn thùng, mi cong rung nhẹ.
 
 Hô hấp Hạ Hầu Không sâu hẳn.
 
@@ -11305,81 +12145,99 @@ Hạ Hầu Không kéo bỏ lớp áo trong và yếm để nhìn cho rõ. Quả
 
 ---
 
-## Chương 129  Hữu hỉ
+## Chương 129 【Kết cục hạ thiên】Ngươi có thai?·Trọn làm một thể, cùng đi tuổi xuân
 
-Nghi Nhược mặt đỏ bừng từ nãy, lúc này rốt cuộc cũng nói ra chân tướng:
+Gương mặt Nghi Nhược từ nãy giờ vẫn đỏ bừng, giờ mới nói ra sự thật:
 
-— Thiếp… có hỉ rồi…
+— Nghi Nhược…… có hỉ rồi……
 
-Khoảng hai tháng trước, bộ ngực nàng đã bắt đầu căng tức.
+Khoảng hai tháng trước, nhũ phòng nàng đã bắt đầu căng tức.
 
-— Có hỉ…
+— Có hỉ——
 
-Hạ Hầu Không còn đang bị đôi nhũ kia câu hồn, lặp lại một câu, rồi mới kịp phản ứng, kinh ngạc ngẩng lên:
+Hạ Hầu Không chú ý vẫn đặt ở đôi nhũ mê hồn của nàng, lặp lại một lần mới phản ứng, kinh ngạc ngẩng mắt:
 
-— Nàng có thai?!
+— Ngươi có thai?!
 
-Nghi Nhược thẹn thùng gật đầu.
+Nghi Nhược xấu hổ gật đầu.
 
-— Sao lại…
+— Sao lại——
 
-Hạ Hầu Không đưa tay sờ bụng nàng. Cái bụng vốn luôn phẳng kia quả nhiên hơi nhô lên. Hắn không sao tin nổi: canh tránh thai, hắn chưa từng để nàng thiếu một lần. Chẳng lẽ canh tránh thai mất tác dụng?
+Hạ Hầu Không đưa tay sờ bụng nàng, bụng vốn bằng phẳng của nàng quả nhiên hơi nhô lên, hắn mặt mày không thể tin.
 
-Nghi Nhược chột dạ cắn môi, đành thật thà khai:
+Thuốc tránh thai hắn lần nào cũng bắt nàng uống, rốt cuộc là lúc nào có thai?
 
-— Nay đã bốn tháng rồi… chắc là có từ đêm cuối cùng. Sáng hôm sau bát canh tránh thai… thiếp… đổ đi…
+Thuốc tránh thai mất hiệu rồi?
 
-Khi ấy nàng chỉ thấy đường trước mờ mịt. Nếu hắn có mệnh hệ nào, nàng dù sao cũng muốn để lại cốt nhục cho hắn. Lại nghe đại phu nói ba tháng đầu tối kỵ hành phòng, cũng không nên truyền ra kẻo động thai khí; thêm nữa nàng muốn cho hắn một bất ngờ, nên cứ giấu đến hôm nay.
+— Nay đã bốn tháng rồi, có lẽ là đêm cuối cùng ấy có thai……
 
-Hạ Hầu Không trong lòng ngũ vị tạp trần, nhất thời không nói nổi lời gì, một lúc sau mới thở dài:
+Nghi Nhược hơi hối hận cắn môi, thành thật thú nhận:
 
-— Ngươi sao ngốc thế…
+— Sáng hôm sau đêm ấy thuốc tránh thai…… thiếp…… đổ đi rồi……
 
-May mà hắn đã bình an trở về. Nếu không, nàng sẽ thành góa phụ vô danh, con lại chịu lời ác, mẫu tử hai người không biết phải đối mặt bao nhiêu miệng lưỡi.
+Lúc ấy nàng chỉ thấy đường trước mịt mờ, nếu Hạ Hầu Không có chuyện gì, nàng ít nhất cũng phải để lại hậu duệ cho hắn, nên tìm cớ đuổi tỳ nữ đi, rồi đổ thuốc tránh thai xuống đất trong viện, không ngờ thật sự có thai.
 
-Thấy hắn không lập tức mừng rỡ ra mặt, trong lòng Nghi Nhược càng lúc càng chua. Nàng cúi đầu, giọng nhỏ xíu:
+Nàng nghe đại phu nói phụ nhân mang thai ba tháng đầu đặc biệt quan trọng, không được hành phòng cũng không được truyền ra ngoài, sợ kinh động thai khí, thêm nữa nàng muốn cho Hạ Hầu Không bất ngờ, nên giấu hắn đến giờ.
 
-— Phu quân… không thích đứa bé sao?
+— ……
 
-— Thích. Phu nhân mang, sao ta không thích?
+Hạ Hầu Không trong lòng ngũ vị tạp trần, nhất thời không biết nói gì, dừng lát mới thở dài:
 
-Hạ Hầu Không bế nàng đặt lên đùi mình, nhẹ vỗ một cái lên mông mềm:
+— Ngươi sao ngu ngốc vậy……
 
-— Chỉ là… phu nhân cứ lừa ta, có phải nên phạt?
+May mà hắn công thành trở về.
 
-— Không biết…
+Nếu hắn chết nơi sa trường, nàng sẽ thành quả phụ vô danh vô phận, con cái cũng bị chê là con hoang, mẹ con hai người chẳng biết phải đối mặt bao nhiêu lời ong tiếng ve, nàng chẳng từng nghĩ đến sao?
 
-Nghi Nhược thuận thế dựa vào ngực hắn, khóe môi cong lên. Chỉ một tiếng “phu nhân” đã đủ khiến lòng nàng ngọt như mật.
+Hạ Hầu Không không lộ vẻ vui mừng, sắc mặt xấu hổ của Nghi Nhược dần thành ủy khuất, cúi đầu hỏi nhỏ:
 
-Hạ Hầu Không nói “phạt” cũng chỉ là miệng. Nói xong hắn đặt nàng lại trên giường, hai người uống hợp cẩn, hắn định rộng y lên giường chuyện trò rồi ngủ.
+— Phu quân không thích đứa con này sao……
 
-Nào ngờ Nghi Nhược lại không an phận. Nàng chủ động kéo mở áo trong của hắn, đem ngực dán ngực, đôi tay mềm khắp nơi châm lửa, cử chỉ đều là dục vọng.
+— Thích, phu nhân mang thai, sao lại không thích?
 
-Hạ Hầu Không vốn đã dịu xuống chút, lại bị nàng trêu đến lập tức cứng trở lại. Hắn giữ lấy tay nàng, trầm giọng hỏi:
+Hạ Hầu Không bế nàng đặt lên đùi mình, vỗ nhẹ mông mềm nàng một cái:
 
-— Thân thể nàng được?
+— Nhưng…… phu nhân cứ lừa dối ta, có nên bị phạt không?
 
-Nghi Nhược gật:
+Tử tôn Nghi Nhược mang hắn đương nhiên thích, chỉ là hắn vốn định kế hoạch thêm thời gian nữa mới muốn con, thêm nữa sự việc đột ngột, hắn nhất thời trăm cảm giao tập mà thôi.
 
-— Đại phu nói thai tượng ổn, được…
+Giờ nghĩ kỹ, trước đây hắn cẩn thận như vậy, lần nào cũng nhìn nàng uống thuốc tránh thai, mới sơ ý một lần nàng đã có thai, cũng chứng minh đứa con này với họ quả thật có duyên.
 
-Từ khi có thai, dục vọng nàng còn vượng hơn. Hắn trở về, nàng càng không nhịn nổi.
+— Không biết……
 
-Hạ Hầu Không chạm tới chỗ kín ướt mềm của nàng, hô hấp nặng thêm:
+Nghi Nhược thuận thế dựa vào ngực hắn, khóe môi nở nụ cười vui vẻ.
 
-— Ướt thế này… sớm đã muốn rồi?
+Cách gọi "phu nhân" của hắn với nàng khiến lòng nàng ngọt hơn mật ngọt nhất đời.
 
-Nghi Nhược ngượng ngùng rúc vào lòng hắn, vẫn thành thật:
+Cái gọi là trừng phạt của Hạ Hầu Không cũng chỉ nói miệng, nói xong liền đặt nàng trở lại giường, tự mình uống cạn hai chén hợp cẩn tửu, cởi áo muốn lên giường trò chuyện nghỉ ngơi.
 
-— Vâng.
+Nghi Nhược lúc này lại không yên, chủ động vén áo trong của hắn, ngực mềm áp lên ngực hắn, bàn tay nhỏ mơ hồ châm lửa khắp người hắn, cử chỉ đều thấm đẫm dục vọng.
 
-Y phục rơi xuống, da thịt hòa vào nhau. Hạ Hầu Không cực kỳ ôn nhu, chậm rãi tiến vào nàng. Thật lâu mới được gần gũi, hai người đều thỏa mãn; trăm bề kích cuồng đều hóa thành triền miên vô tận.
+Dương khí Hạ Hầu Không vốn đã mềm chút ít vì sự kích thích của nàng trong nháy mắt lại cương cứng, hắn chế trụ đôi tay nhỏ gây lửa khắp nơi, trầm giọng hỏi:
 
-Trong lúc động tác, Hạ Hầu Không nắm chặt tay Nghi Nhược đang bấu lấy hồng chăn.
+— Thân thể ngươi được không?
 
-Hai người rốt cuộc cũng hòa làm một, cùng đi qua năm tháng tốt đẹp.
+Nghi Nhược gật đầu:
 
-Chính văn xong.
+— Đại phu nói thai tượng thiếp ổn định, được……
+
+Từ khi có thai nàng đã dục vọng cao trào, Hạ Hầu Không về càng thế, nàng hoàn toàn dựa vào ý chí kìm nén, thực ra đã muốn lắm rồi.
+
+Hạ Hầu Không đương nhiên biết nàng có thể hành phòng, chỉ là không rõ tình trạng thân thể nàng thế nào, giờ đã có con số chính xác, cuối cùng có thể ra tay, ngón tay chạm chỗ kín ướt trơn của nàng, hơi thở càng sâu:
+
+— Ướt thế này, sớm đã muốn rồi?
+
+— Ừm.
+
+Nghi Nhược xấu hổ, nằm trong ngực hắn thành thật gật đầu.
+
+Áo quần cởi bỏ, da thịt hòa quyện, Hạ Hầu Không cực kỳ dịu dàng chậm rãi tiến vào Nghi Nhược, chuyện tình lâu ngày khiến hai người thỏa mãn, biến trăm bề kích kháng thành vô hạn quyến luyến.
+
+Trong lúc động tác, Hạ Hầu Không nắm chặt bàn tay mềm mại nắm chặt tấm đỏ của Nghi Nhược.
+
+Họ trọn làm một thể, cùng đi tuổi xuân.
+
+Chính văn hết
 
 ---
 
@@ -11400,7 +12258,7 @@ Chính văn hơn hai mươi vạn chữ, là thiên ngôn tình dài nhất mà 
 
 Ta có rất nhiều “não động” và thiết lập, nhưng câu chuyện của Không–Nhược không phải là thứ được ủ lâu nhất, mà chỉ bắt nguồn từ một tia linh cảm thoáng qua: một tổ chức chuyên điều giáo các loại vưu vật; một giáo quan lãnh đạm, khí lực sung mãn, “kỹ thuật” lão luyện, điều giáo một mỹ nhân thẹn thùng; một câu chuyện nhục nhã mà kích thích.
 
-Ta không thích bug logic, không thích kẹt chữ, không thích bỏ hố; đồng thời lại đặc biệt đặc biệt đặc biệt thích chôn伏笔. Thói quen từ trước đến nay của ta là: phải nghĩ xong toàn bộ thiết lập, khung truyện và đại cương từ mở đầu đến kết cục rồi mới bắt tay khai hố. Vì vậy lúc đầu ta thật sự không nắm chắc câu chuyện Không–Nhược này (vì khi đó chưa được nghĩ hoàn chỉnh).
+Ta không thích bug logic, không thích kẹt chữ, không thích bỏ hố; đồng thời lại đặc biệt đặc biệt đặc biệt thích chôn phục bút. Thói quen từ trước đến nay của ta là: phải nghĩ xong toàn bộ thiết lập, khung truyện và đại cương từ mở đầu đến kết cục rồi mới bắt tay khai hố. Vì vậy lúc đầu ta thật sự không nắm chắc câu chuyện Không–Nhược này (vì khi đó chưa được nghĩ hoàn chỉnh).
 
 May mà sau khi khai hố được mấy ngày, ta dành chút thời gian để nghĩ kỹ vài “đại cảnh” và kết cục, nên khi viết quyển này ta không gặp “bình cảnh cốt truyện”; có chăng chỉ là đôi lúc gõ chữ quá nhiều, tâm mệt, vô trạng thái, nhìn chung vẫn khá thuận lợi.
 
@@ -11433,11 +12291,11 @@ PS: Không–Nhược sẽ xuất hiện (đến lúc đó có lẽ còn có ti�
 
 1. Một bộ cổ ngôn. Bộ này gần như đã được ta nghĩ xong toàn bộ từ đầu đến cuối, là một câu chuyện độc lập hoàn toàn với Không–Nhược, chỉ là giữa một vài nhân vật sẽ có liên hệ. (Tiết lộ: nhân vật mấu chốt là Nghiêm đại nhân.)
 
-Nữ chủ từ hiện đại xuyên đến triều đại của Không–Nhược. Nữ chủ cũng đã xuất hiện trong伏笔 của chính văn Bộ điều giáo (không phải Bạch Tử Huyên); ta chôn bốn tuyến伏笔, còn lại thì không tiết lộ nữa. Thứ tự khai hố… đại khái xếp vào quyển sau nữa sau nữa.
+Nữ chủ từ hiện đại xuyên đến triều đại của Không–Nhược. Nữ chủ cũng đã xuất hiện trong phục bút của chính văn Bộ điều giáo (không phải Bạch Tử Huyên); ta chôn bốn tuyến phục bút, còn lại thì không tiết lộ nữa. Thứ tự khai hố… đại khái xếp vào quyển sau nữa sau nữa.
 
 Kế hoạch mở hố tương lai—
 
-Viết văn, nhất là loại liên载 phải giữ thời gian cố định, thực sự rất hao thời gian và tinh lực. Ta không biết nhiệt tình này của mình còn duy trì được bao lâu, nên muốn nhân lúc còn tinh lực còn thời gian, cố gắng viết ra càng nhiều não động càng tốt.
+Viết văn, nhất là loại liên tải phải giữ thời gian cố định, thực sự rất hao thời gian và tinh lực. Ta không biết nhiệt tình này của mình còn duy trì được bao lâu, nên muốn nhân lúc còn tinh lực còn thời gian, cố gắng viết ra càng nhiều não động càng tốt.
 
 Theo sở thích thứ tự khai hố “hiện—cổ—hiện—cổ” của ta, quyển tiếp theo là cổ ngôn. Trên điện thoại kéo xuống trang sách, trong danh sách “tác phẩm” dưới avatar của ta sẽ hiện.
 
@@ -11445,13 +12303,13 @@ Sau này ta còn muốn viết văn dân quốc, hiện cũng đang suy nghĩ r�
 
 Còn nữa, mấy tháng trước đã có không ít độc giả muốn xem ta viết NP. Lúc đó ta chưa có thiết lập nào khiến ta hứng thú để viết, nên mãi chưa đáp ứng. Nhưng ngay trong tháng trước, có một ngày nọ, linh cảm đột nhiên ập tới, ta lập tức nghĩ: chính là nó!
 
-Ta đem ý tưởng và cốt truyện nói với mấy bạn độc giả, nhận được đồng loạt khen +催开文 T T… Nhưng cũng là chuyện tốt, đến lúc để ta làm quen một đợt độc giả thích NP rồi.
+Ta đem ý tưởng và cốt truyện nói với mấy bạn độc giả, nhận được đồng loạt khen + thúc mở truyện mới T T… Nhưng cũng là chuyện tốt, đến lúc để ta làm quen một đợt độc giả thích NP rồi.
 
-Câu chuyện này bản thân ta cũng rất mong chờ; nhưng ta đọc tiểu thuyết không nhiều, NP lại chỉ đọc hai ba bộ, không rành “套路” NP… không biết có viết tốt được không, song ta sẽ cố gắng hết sức.
+Câu chuyện này bản thân ta cũng rất mong chờ; nhưng ta đọc tiểu thuyết không nhiều, NP lại chỉ đọc hai ba bộ, không rành "điển mẫu" NP… không biết có viết tốt được không, song ta sẽ cố gắng hết sức.
 
 Ngoài ra, ngoài ra nữa, 《Thiếu tướng, nhẹ một chút》ta bị kẹt chữ rồi, đợi nghĩ được hướng phát triển tiếp theo sẽ cố gắng kết thúc sớm.
 
-Cuối cùng của cuối cùng, cảm ơn các tiểu khả ái đã luôn ủng hộ ta, nhắn riêng khen ta, mỗi ngày để lại lời nhắn投珠 ở khu bình luận, trong留言 viết đồng nhân văn Không–Nhược, tiểu kịch trường, trên weibo siêu thoại đăng bài, trong nhóm độc giả làm đủ loại biểu cảm cho ta! Những tiểu khả ái thường xuyên留言投珠, ta đều nhớ nickname. Sự ủng hộ của mọi người chính là động lực lớn nhất của “phấn phấn”~
+Cuối cùng của cuối cùng, cảm ơn các tiểu khả ái đã luôn ủng hộ ta, nhắn riêng khen ta, mỗi ngày để lại lời nhắn tặng châu ở khu bình luận, trong phần bình luận viết đồng nhân văn Không–Nhược, tiểu kịch trường, trên weibo siêu thoại đăng bài, trong nhóm độc giả làm đủ loại biểu cảm cho ta! Những tiểu khả ái thường xuyên bình luận tặng châu, ta đều nhớ nickname. Sự ủng hộ của mọi người chính là động lực lớn nhất của “phấn phấn”~
 
 Hẹn gặp mọi người ở sách mới!
 

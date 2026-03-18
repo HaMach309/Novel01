@@ -1,6 +1,6 @@
 ---
 name: translate-chinese-novel-to-vietnamese
-description: Translates novels from Simplified Chinese to Vietnamese, preserving character names in Hán Việt (Sino-Vietnamese) romanization and original text format. Use when translating Chinese web novels, light novels, or fiction to Vietnamese, or when the user asks for Chinese-to-Vietnamese novel translation with Hán Việt names.
+description: Translates novels from Simplified Chinese to Vietnamese, preserving character names in Hán Việt (Sino-Vietnamese) romanization and original text format. FULL TRANSLATION ONLY – no summarization, no condensation. Use when translating Chinese web novels, light novels, or fiction to Vietnamese.
 ---
 
 # Dịch tiểu thuyết Trung–Việt (giữ tên Hán Việt và format gốc)
@@ -16,7 +16,8 @@ Hướng dẫn dịch văn bản tiểu thuyết từ **tiếng Trung giản th�
 
 - **Mặc định**: xuất **toàn bộ nội dung đã dịch sang tiếng Việt**, giữ đúng số đoạn và xuống dòng như bản gốc.
 - **Tuyệt đối không để sót bất kỳ ký tự tiếng Trung nào** (kể cả trong ngoặc, chú thích, tiêu đề, lời thoại, tiếng kêu, onomatopoeia…).
-- **Tuyệt đối không tóm tắt / diễn giải rút gọn**: bản dịch phải là **dịch đầy đủ (full translation)** tương ứng với toàn bộ văn bản gốc, không “kể lại”, không lược bỏ chi tiết, không gom nhiều câu thành một câu ngắn, không thay nội dung bằng kết luận.
+- **TUYỆT ĐỐI KHÔNG TÓM TẮT**: bản dịch phải là **dịch đầy đủ (full translation)** 1:1 với văn bản gốc. Cấm: tóm tắt, diễn giải rút gọn, "kể lại", lược bỏ chi tiết, gom nhiều câu thành một câu, thay nội dung bằng kết luận, dùng "đại ý là…", "tóm lại…", "nói chung…".
+- **DỊCH ĐỦ VĂN BẢN GỐC**: mỗi câu, mỗi đoạn, mỗi lời thoại trong bản gốc phải có bản dịch tương ứng; độ dài bản dịch phải tương xứng với bản gốc (không được ngắn bất thường).
 - **Không thêm phần "Giải thích/Phân tích/Checklist"** trước hoặc sau bản dịch.
 - **Không lặp lại nguyên văn tiếng Trung** trong phần trả lời, trừ khi người dùng yêu cầu "song ngữ" hoặc cần đối chiếu.
 - Nếu người dùng đưa nhiều chương/đoạn: dịch **đầy đủ theo đúng thứ tự**, không lược bỏ.
@@ -33,9 +34,12 @@ Hướng dẫn dịch văn bản tiểu thuyết từ **tiếng Trung giản th�
 
 ### 2. Giữ nguyên format văn bản gốc
 
-- **Đoạn văn**: mỗi đoạn trong bản gốc tương ứng một đoạn trong bản dịch; không gộp hoặc tách tùy tiện.
+- **Đoạn văn**:
+  - Mỗi đoạn trong bản gốc tương ứng một đoạn trong bản dịch; không gộp hoặc tách tùy tiện.
+  - **Tách đoạn khi quá dài**: nếu đoạn gốc hoặc bản dịch dài bất thường (nhiều câu liền, quá 3–4 dòng), hãy tách thành nhiều đoạn nhỏ hơn sao cho độ dài tương đương với các đoạn khác trong cùng chương; tránh để một đoạn dài lê thê trong khi các đoạn khác ngắn gọn.
+  - Mục tiêu: các đoạn văn có độ dài cân đối, dễ đọc, không có đoạn nào quá dài so với trung bình.
 - **Xuống dòng / ngắt dòng**: giữ đúng vị trí (ví dụ: mỗi lời thoại một dòng thì bản dịch cũng một dòng một thoại).
-- **Lời thoại (dialogue)** – bắt buộc:
+- **Lời thoại (dialogue)** – bắt buộc, xuống dòng trước và sau:
   - **Trước mỗi lời thoại**: luôn xuống dòng (mỗi lời thoại bắt đầu ở một dòng mới).
   - **Sau mỗi lời thoại**: luôn xuống dòng (hết lời thoại thì xuống dòng rồi mới viết tiếp phần tường thuật/người nói khác).
   - Không dính lời thoại với đoạn văn kể trước hoặc sau trên cùng một dòng; mỗi lượt trích lời thoại là một dòng riêng, trước và sau đều có ngắt dòng.
@@ -115,6 +119,7 @@ Lý Minh nhìn ra ngoài cửa sổ, trong lòng nghĩ:
 - Dùng "Li Ming", "Zhang Wei" (pinyin) hoặc "Wang Xiaoming" thay cho Hán Việt.
 - Gộp hai câu thành một đoạn dài không có xuống dòng như bản gốc.
 - Đổi cấu trúc chương (ví dụ bỏ tiêu đề chương).
+- **Tóm tắt hoặc rút gọn**: bản dịch phải đủ độ dài, không lược bỏ nội dung gốc.
 
 ## Tóm tắt checklist
 
@@ -122,6 +127,6 @@ Lý Minh nhìn ra ngoài cửa sổ, trong lòng nghĩ:
 - [ ] Số đoạn, xuống dòng, chương/hồi giống bản gốc.
 - [ ] Mỗi lời thoại xuống dòng trước và sau (một dòng riêng cho mỗi lượt trích lời thoại).
 - [ ] Tiêu đề chương đã dịch và giữ style.
-- [ ] Không có dấu hiệu tóm tắt: không lược bỏ, không “đại ý/tóm lại/nói chung”, không gom đoạn làm ngắn nội dung.
+- [ ] Không có dấu hiệu tóm tắt: không lược bỏ, không “đại ý/tóm lại/nói chung”, không gom đoạn làm ngắn nội dung; độ dài bản dịch tương xứng với bản gốc.
 - [ ] Đã rà các phần dễ sót (ngoặc, chú thích, tiếng kêu, ký hiệu phân cảnh, thơ/ca từ).
 - [ ] Câu tiếng Việt tự nhiên, đúng thể loại và xưng hô.
