@@ -1,0 +1,10 @@
+{
+  "name": "novel01",
+  "private": true,
+  "description": "Workspace Novel01 — lệnh npm cho UpNovel nằm trong thư mục UpNovel",
+  "scripts": {
+    "upnovel:install": "npm install --prefix UpNovel",
+    "upnovel": "npm start --prefix UpNovel",
+    "upnovel:browser": "npm run install-browser --prefix UpNovel"
+  }
+}

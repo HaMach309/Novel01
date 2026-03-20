@@ -79,8 +79,26 @@ Hướng dẫn beta đọc và chỉnh sửa truyện dịch tiếng Việt, đ�
 - Tránh: văn nói quá đời thường ("ok", "đỉnh", "thật sự luôn", "chill") khi bối cảnh không phải hiện đại thông tục.
 - Cân bằng: không quá sến, vẫn giữ tính chân thật của nhân vật và tình huống.
 
-### 9. Định dạng lời thoại: xuống dòng trước & sau
+### 9. Chuyển "À" đứng một mình trong lời thoại thành "A" hoặc "Á" theo ngữ cảnh
 
+Khi gặp chữ **"À"** xuất hiện **đứng một mình** (không kèm từ khác) trong lời thoại, cần xác định ngữ cảnh để chọn đúng dạng:
+
+| Dạng | Khi nào dùng | Ví dụ |
+|------|--------------|-------|
+| **Á** | Bất ngờ, giật mình, đau đớn, hoảng sợ | `"Á! Đau quá!"`, `"Á, anh làm em giật mình!"` |
+| **A** | Gọi tên / gọi người, nhận ra điều gì đó, cảm thán nhẹ | `"A, ra là vậy."`, `"A! Anh Minh!"` |
+
+**Quy tắc nhận diện:**
+- Nếu ngữ cảnh **giật mình / đau / sợ / hoảng** → dùng **"Á"**.
+- Nếu ngữ cảnh **gọi ai đó / vừa nhận ra / ngạc nhiên nhẹ** → dùng **"A"**.
+- Nếu không rõ ngữ cảnh, ưu tiên **"Á"** (vì "À" thường bị dịch sai từ biểu cảm ngạc nhiên/đau).
+- **Không giữ nguyên "À" đứng một mình** trong lời thoại — đây thường là lỗi dịch chưa xử lý.
+
+**Lưu ý:** "À" trong câu hỏi cuối câu (`"Anh biết rồi à?"`) hoặc giữa câu dài không phải trường hợp này — chỉ áp dụng khi "À" là **toàn bộ phản ứng / tiếng kêu** trong dấu ngoặc kép.
+
+### 10. Định dạng lời thoại: dấu ngoặc kép "" và xuống dòng trước & sau
+
+- **Lời thoại của nhân vật** phải được **đặt trong cặp dấu ngoặc kép ""** (ví dụ: `"Anh đi đâu vậy?"`, `"Em không biết."`).
 - **Mỗi lượt thoại** của nhân vật phải là **một đoạn riêng** (một block/paragraph).
 - **Luôn có 1 dòng trống trước và 1 dòng trống sau** mỗi đoạn thoại để thoại nổi bật, dễ đọc.
 - **Không gộp** lời thoại của 2 nhân vật vào cùng một đoạn, kể cả khi câu thoại ngắn.
@@ -88,30 +106,30 @@ Hướng dẫn beta đọc và chỉnh sửa truyện dịch tiếng Việt, đ�
   - **Gộp cùng đoạn thoại** nếu câu dẫn gắn chặt với lời nói của cùng nhân vật.
   - Hoặc **tách thành đoạn riêng** nếu là miêu tả hành động/biểu cảm kéo dài (ưu tiên tách để nhịp rõ).
 - **Một nhân vật nói nhiều câu liên tiếp**: giữ trong **cùng một đoạn thoại** (không tách nhỏ từng câu) nhưng vẫn đảm bảo **block thoại đó** có dòng trống trước & sau.
-- **Độc thoại nội tâm** dạng lời nói (có ngoặc kép/ngoặc đơn/“…” tùy bản) áp dụng như lời thoại: cũng phải có dòng trống trước & sau.
+- **Độc thoại nội tâm** dạng lời nói (đặt trong dấu "" "…") áp dụng như lời thoại: cũng phải có dòng trống trước & sau.
 
-#### 9.1 Nhận biết & tách đúng thoại khi “dính” trong cùng một dòng
+#### 10.1 Nhận biết & tách đúng thoại khi "dính" trong cùng một dòng
 
 Nhiều bản dịch có kiểu viết **thoại + tường thuật + thoại** trong một dòng. Beta phải nhận ra đây là **hai lượt thoại** và tách đúng:
 
 - **Mẫu phổ biến**:
-  - `— [Thoại 1] [Tên nhân vật/câu dẫn thoại] ... : [Thoại 2]`
-  - hoặc `— [Thoại 1] [câu dẫn thoại]. [Thoại 2]` (không có dấu `:` nhưng có câu dẫn ở giữa)
+  - `"[Thoại 1]" [Tên nhân vật/câu dẫn thoại] ... : "[Thoại 2]"`
+  - hoặc `"[Thoại 1]" [câu dẫn thoại]. "[Thoại 2]"` (không có dấu `:` nhưng có câu dẫn ở giữa)
 - **Quy tắc tách**:
   - Tách thành **3 đoạn** theo thứ tự:
-    1) `— [Thoại 1]`
-    2) `[Phần tường thuật/câu dẫn thoại]` (không có `—`)
-    3) `— [Thoại 2]`
+    1) `"[Thoại 1]"`
+    2) `[Phần tường thuật/câu dẫn thoại]` (không có thoại)
+    3) `"[Thoại 2]"`
   - Đảm bảo **dòng trống trước & sau** cho cả (1) và (3).
-  - **Không để Thoại 2 “kẹt” sau dấu `:`** trên cùng dòng với tường thuật.
+  - **Không để Thoại 2 "kẹt" sau dấu `:`** trên cùng dòng với tường thuật.
 
 - **Ví dụ**:
   - Sai:
-    - `— Đi hay không không phải em nói! Hà Trạch Thành một tay siết chặt cổ cô, thần sắc hung ác: Ngoan ngoãn cho anh! Dám nói đi nữa, anh tin không anh làm chết em ngay đây!`
+    - `"Đi hay không không phải em nói!" Hà Trạch Thành một tay siết chặt cổ cô, thần sắc hung ác: "Ngoan ngoãn cho anh! Dám nói đi nữa, anh tin không anh làm chết em ngay đây!"`
   - Đúng:
-    - `— Đi hay không không phải em nói!`
+    - `"Đi hay không không phải em nói!"`
     - `Hà Trạch Thành một tay siết chặt cổ cô, thần sắc hung ác.`
-    - `— Ngoan ngoãn cho anh! Dám nói đi nữa, anh tin không anh làm chết em ngay đây!`
+    - `"Ngoan ngoãn cho anh! Dám nói đi nữa, anh tin không anh làm chết em ngay đây!"`
 
 ## Quy trình beta
 
@@ -123,7 +141,8 @@ Nhiều bản dịch có kiểu viết **thoại + tường thuật + thoại** 
    - Thống nhất tên nhân vật.
    - Kiểm tra và sửa mạch xưng hô.
    - Tách đoạn quá 200 từ tại cuối câu.
-   - Chuẩn hóa định dạng lời thoại: mỗi lượt thoại là một đoạn riêng, có dòng trống trước & sau.
+   - Chuyển "À" đứng một mình trong lời thoại thành "A" hoặc "Á" theo ngữ cảnh.
+   - Chuẩn hóa định dạng lời thoại: mỗi lượt thoại đặt trong dấu "", là một đoạn riêng, có dòng trống trước & sau.
    - Chỉnh văn phong cho mượt mà, lãng mạn khi phù hợp.
 4. **Đọc lại** toàn bộ để đảm bảo nhất quán xuyên suốt.
 
@@ -135,6 +154,7 @@ Nhiều bản dịch có kiểu viết **thoại + tường thuật + thoại** 
 - [ ] Mọi đoạn văn ≤ ~200 từ; đoạn dài đã tách tại cuối câu.
 - [ ] Tên nhân vật thống nhất, không lẫn lộn cách viết.
 - [ ] Mạch xưng hô ổn định trong mỗi cảnh đối thoại.
-- [ ] Lời thoại được định dạng chuẩn: mỗi lượt thoại là một đoạn riêng, có 1 dòng trống trước & sau; không gộp thoại 2 nhân vật trong cùng đoạn.
+- [ ] Không còn "À" đứng một mình trong lời thoại; đã chuyển thành "A" hoặc "Á" theo ngữ cảnh.
+- [ ] Lời thoại được định dạng chuẩn: đặt trong cặp dấu "", mỗi lượt thoại là một đoạn riêng, có 1 dòng trống trước & sau; không gộp thoại 2 nhân vật trong cùng đoạn.
 - [ ] Văn phong mượt mà, dễ hiểu, không khó đọc.
 - [ ] Đã chủ động chỉnh văn phong theo phong cách lãng mạn khi phù hợp.
