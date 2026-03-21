@@ -6,5 +6,8 @@
     "upnovel:install": "npm install --prefix UpNovel",
     "upnovel": "npm start --prefix UpNovel",
     "upnovel:browser": "npm run install-browser --prefix UpNovel"
+  },
+  "dependencies": {
+    "translate-google": "^1.5.0"
   }
 }
