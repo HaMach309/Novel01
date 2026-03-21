@@ -1,20 +1,13 @@
 {
   "name": "novel01",
-  "version": "1.0.0",
-  "description": "Dự án tiểu thuyết / pipeline dịch Trung → Việt (Hán Việt).",
-  "main": "index.js",
+  "private": true,
+  "description": "Workspace Novel01 — lệnh npm cho UpNovel nằm trong thư mục UpNovel",
   "scripts": {
-    "test": "echo \"Error: no test specified\" && exit 1"
+    "upnovel:install": "npm install --prefix UpNovel",
+    "upnovel": "npm start --prefix UpNovel",
+    "upnovel:browser": "npm run install-browser --prefix UpNovel"
   },
-  "repository": {
-    "type": "git",
-    "url": "git+https://github.com/HaMach309/Novel01.git"
-  },
-  "keywords": [],
-  "author": "",
-  "license": "ISC",
-  "bugs": {
-    "url": "https://github.com/HaMach309/Novel01/issues"
-  },
-  "homepage": "https://github.com/HaMach309/Novel01#readme"
+  "dependencies": {
+    "translate-google": "^1.5.0"
+  }
 }

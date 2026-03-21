@@ -1,0 +1,23 @@
+{
+  "name": "novel01",
+  "version": "1.0.0",
+  "description": "Dự án tiểu thuyết / pipeline dịch Trung → Việt (Hán Việt).",
+  "main": "index.js",
+  "scripts": {
+    "test": "echo \"Error: no test specified\" && exit 1"
+  },
+  "repository": {
+    "type": "git",
+    "url": "git+https://github.com/HaMach309/Novel01.git"
+  },
+  "keywords": [],
+  "author": "",
+  "license": "ISC",
+  "bugs": {
+    "url": "https://github.com/HaMach309/Novel01/issues"
+  },
+  "homepage": "https://github.com/HaMach309/Novel01#readme",
+  "devDependencies": {
+    "playwright": "^1.58.2"
+  }
+}

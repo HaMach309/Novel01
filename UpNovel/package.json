@@ -1,0 +1,15 @@
+{
+  "name": "upnovel-wattpad",
+  "version": "1.0.0",
+  "private": true,
+  "description": "Công cụ hỗ trợ điền truyện lên Wattpad từ file Markdown (Playwright)",
+  "type": "module",
+  "scripts": {
+    "start": "node upload-wattpad.mjs",
+    "install-browser": "playwright install chromium"
+  },
+  "dependencies": {
+    "dotenv": "^16.4.5",
+    "playwright": "^1.49.0"
+  }
+}
