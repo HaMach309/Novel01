@@ -1,6 +1,6 @@
 ---
 name: translate-chinese-novel-to-vietnamese
-description: Translates novels from Simplified Chinese to Vietnamese, preserving character names in Hán Việt (Sino-Vietnamese) romanization and original text format. FULL TRANSLATION ONLY – no summarization, no condensation. Sau khi dịch, đoạn văn quá dài (>200 từ) phải được tách tự động tại cuối câu. Use when translating Chinese web novels, light novels, or fiction to Vietnamese.
+description: Translates novels from Simplified Chinese to Vietnamese, preserving character names in Hán Việt (Sino-Vietnamese) romanization and original text format. FULL TRANSLATION ONLY – no summarization, no condensation. Sau khi dịch, đoạn văn quá dài (>200 từ) phải được tách tự động tại cuối câu. Ưu tiên lưu đúng định dạng tiếng Việt (hiển thị đúng dấu, không méo chữ). Use when translating Chinese web novels, light novels, or fiction to Vietnamese.
 ---
 
 # Dịch tiểu thuyết Trung–Việt (giữ tên Hán Việt và format gốc)
@@ -102,6 +102,12 @@ Hướng dẫn dịch văn bản tiểu thuyết từ **tiếng Trung giản th�
 5. **Tách đoạn nếu quá dài** (bắt buộc): rà soát từng đoạn; nếu đoạn > ~200 từ thì tách tại cuối câu thành nhiều đoạn nhỏ hơn (mục 2).
 6. **Chỉ khi đã đạt kiểm tra trên** mới xuất bản dịch làm đầu ra.
 
+### 7. Lưu kết quả – đúng định dạng tiếng Việt (ưu tiên)
+
+- **Mục tiêu**: Bản dịch khi lưu ra file phải **hiển thị đúng tiếng Việt có dấu**, không bị méo chữ, lỗi ký tự (?, �, dính chữ…).
+- **Cách thực hiện**: Chọn phương thức lưu đảm bảo định dạng tiếng Việt được giữ nguyên (encoding hỗ trợ đầy đủ ký tự tiếng Việt).
+- **Tránh**: Lưu bằng ASCII, ANSI hay encoding không hỗ trợ dấu tiếng Việt – sẽ làm lỗi hiển thị.
+
 ## Ví dụ nhanh
 
 **Gốc (giản thể):**
@@ -135,3 +141,4 @@ Lý Minh nhìn ra ngoài cửa sổ, trong lòng nghĩ:
 - [ ] Không có dấu hiệu tóm tắt: không lược bỏ, không “đại ý/tóm lại/nói chung”, không gom đoạn làm ngắn nội dung; độ dài bản dịch tương xứng với bản gốc.
 - [ ] Đã rà các phần dễ sót (ngoặc, chú thích, tiếng kêu, ký hiệu phân cảnh, thơ/ca từ).
 - [ ] Câu tiếng Việt tự nhiên, đúng thể loại và xưng hô.
+- [ ] File kết quả được lưu **đúng định dạng tiếng Việt** (hiển thị đúng dấu, không méo chữ).
