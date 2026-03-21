@@ -5,4 +5,7 @@ __pycache__/
 venv/
 .env
 node_modules/
+target/
+.idea/
+*.log
 debug_ch1.html
