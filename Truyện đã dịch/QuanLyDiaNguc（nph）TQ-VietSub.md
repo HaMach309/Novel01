@@ -161,7 +161,11 @@ Hắn giơ một ngón tay lên, nhẹ nhàng gõ một cái trong không trung,
 
 "Công việc này, nhiệm vụ của cô không phải quản lý nhân viên hay tính doanh thu, mà là đưa thiên phú này từ trang giấy vẽ ra ngoài, ban cho một không gian chân thực 'linh hồn' độc nhất vô nhị. Nói cho cùng, chúng tôi muốn mời thực ra là một 'Giám đốc nghệ thuật'."
 
-Lời hắn logic rõ ràng, tầng tầng lớp lớp, xoay chuyển khéo léo cái "hoàn toàn không liên quan" mà cô ấy vốn cho là thành "thiên tác chi hợp".
+Lời hắn logic rõ ràng, tầng tầng lớp lớp, xoay chuyển khéo léo cái
+
+"Hoàn toàn không liên quan"
+
+Mà cô ấy vốn cho là thành "thiên tác chi hợp".
 
 Cô ấy bị thuyết phục một nửa bởi lời hắn, nhưng vẫn còn nghi ngờ:
 
@@ -193,9 +197,9 @@ Hắn dừng lại, thân thể lại hơi nghiêng về phía trước, hạ gi
 
 "Vì vậy, tiểu thư Lâm,"
 
-khóe miệng hắn cong sâu thêm một chút,
+Khóe miệng hắn cong sâu thêm một chút,
 
-"chúng tôi không sợ cô làm hỏng. Chúng tôi chỉ sợ cô không đủ can đảm để 'làm hỏng'."
+"Chúng tôi không sợ cô làm hỏng. Chúng tôi chỉ sợ cô không đủ can đảm để 'làm hỏng'."
 
 "Ngài dường như có chút không đúng vậy?"
 
@@ -209,9 +213,9 @@ Nụ cười này khác mọi lần trước, không còn là đường cong tre
 
 "Tiểu thư Lâm,"
 
-hắn mở miệng nhẹ nhàng, giọng trầm hơn lúc nãy, cũng có sức hút hơn, như đang thì thầm bên tai cô ấy,
+Hắn mở miệng nhẹ nhàng, giọng trầm hơn lúc nãy, cũng có sức hút hơn, như đang thì thầm bên tai cô ấy,
 
-"sự tinh ý của cô một lần nữa vượt quá dự liệu của tôi."
+"Sự tinh ý của cô một lần nữa vượt quá dự liệu của tôi."
 
 Hắn không phủ nhận.
 
@@ -225,7 +229,7 @@ Lời hắn như chiếc chìa khóa, chẳng những không giải đáp nghi n
 
 "Vậy thì,"
 
-thân thể hắn hơi nghiêng về phía trước, ly cà phê latte trên bàn in bóng mờ của hắn,
+Thân thể hắn hơi nghiêng về phía trước, ly cà phê latte trên bàn in bóng mờ của hắn,
 
 "Một khi cô đã nhận ra sự 'không đúng' này, có cũng cảm nhận được 'khả năng' vượt xa thông thường ẩn chứa trong đó không?"
 
@@ -249,9 +253,9 @@ Rồi hắn chậm rãi mở miệng, giọng có sức xuyên thấu hơn bất
 
 "Nếu bắt buộc phải đưa ra một định nghĩa…"
 
-hắn dừng một chút, như đang tìm từ ngữ cô ấy có thể hiểu.
+Hắn dừng một chút, như đang tìm từ ngữ cô ấy có thể hiểu.
 
-"cô có thể hiểu tôi là, sự mở rộng của một ý chí cổ xưa, một 'kẻ thực thi' trung thành."
+"Cô có thể hiểu tôi là, sự mở rộng của một ý chí cổ xưa, một 'kẻ thực thi' trung thành."
 
 "Tôi tồn tại… để đảm bảo một 'ước định' quan trọng có thể thuận lợi chuyển giao đến tay người kế thừa tiếp theo của nó."
 
@@ -261,7 +265,7 @@ Lời hắn lạnh lùng mà chính xác, từng chữ như mảnh ghép, xếp 
 
 Hắn lại kéo chủ đề về, ánh mắt rực rỡ.
 
-"quan trọng là, cô, tiểu thư Lâm Vãn, chính là vị 'người kế thừa' được chọn."
+"Quan trọng là, cô, tiểu thư Lâm Vãn, chính là vị 'người kế thừa' được chọn."
 
 "Cô muốn biết đáp án không? Về tôi, về công việc này, về sức mạnh ngủ say trong huyết mạch của chính cô… tất cả đáp án đều ở phía sau cánh cửa kia. Còn chìa khóa mở cửa, nằm trên điện thoại của cô."
 
@@ -271,7 +275,11 @@ Cô ấy bị hai từ này thu hút, tạm quên vấn đề thân phận của
 
 "Nói nhảm, nói thật đi, bố mẹ tôi đều là người bình thường."
 
-Cô ấy đưa ra sự thật hết sức bình thường, con gái một gia đình bình thường làm sao liên quan đến "huyết mạch", "người kế thừa" những từ ngữ nghe như chuyện thần tiên.
+Cô ấy đưa ra sự thật hết sức bình thường, con gái một gia đình bình thường làm sao liên quan đến "huyết mạch",
+
+"Người kế thừa"
+
+Những từ ngữ nghe như chuyện thần tiên.
 
 Trên mặt Karl chẳng chút bất ngờ, ngược lại đôi mắt sâu thẳm kia lộ ra chút hiểu rõ. Hắn dường như sớm đã dự liệu cô ấy sẽ hỏi câu này.
 
@@ -287,7 +295,7 @@ Hắn tiếp tục bằng giọng điệu bình tĩnh giàu nhịp điệu, như
 
 Hắn dừng một chút, ánh mắt đổ xuống người cô ấy, ánh nhìn chuyên chú mà sắc bén, như thể có thể xuyên qua da thịt cô ấy, nhìn thấy "hạt giống"
 
-sâu trong tâm hồn mà ngay cả bản thân cô ấy cũng chưa từng nhận ra.
+Sâu trong tâm hồn mà ngay cả bản thân cô ấy cũng chưa từng nhận ra.
 
 "Cha mẹ cô là đất đai mang hạt giống này, còn cô, tiểu thư Lâm Vãn, là đóa hoa duy nhất nở rộ trong đời này."
 
@@ -333,13 +341,17 @@ Cô ấy thậm chí có thể ngửi thấy, trong mùi thơm cà phê đậm �
 
 Tay cô ấy cầm ly đơ cứng, đầu ngón tay truyền lại cảm giác lạnh lẽo của đồ gốm, tạo thành tương phản rõ ràng với cảnh tượng quỷ dị trước mắt.
 
-Vài giây sau, "trái tim" đó ngừng đập, hóa lại thành bọt sữa bình thường, như thể tất cả vừa rồi chỉ là ảo giác của cô ấy.
+Vài giây sau,
+
+"Trái tim"
+
+Đó ngừng đập, hóa lại thành bọt sữa bình thường, như thể tất cả vừa rồi chỉ là ảo giác của cô ấy.
 
 "Đây…"
 
 Giọng Karl lại vang lên, nhẹ nhàng như lời nói trong mơ, nhưng gõ rõ vào lòng cô ấy,
 
-"chính là 'trải nghiệm' chúng tôi nói đến. Là 'nguyên liệu thô' cô cần kiến tạo và thiết kế trong công việc tương lai."
+"Chính là 'trải nghiệm' chúng tôi nói đến. Là 'nguyên liệu thô' cô cần kiến tạo và thiết kế trong công việc tương lai."
 
 "Tôi không thể giải thích nguyên lý của nó cho cô, như tôi không thể giải thích 'cháy' cho người chưa từng thấy lửa. Cô chỉ có thể bước vào thế giới này, mới hiểu và nắm quy tắc của nó."
 
@@ -397,7 +409,7 @@ Hắn nhắc lại, châu mày hơi nhíu, như đang hiểu khái niệm cực 
 
 Giọng hắn nghiêm túc lên, đôi mắt màu mực kia thậm chí mang theo chút trách móc, như thể bản thân câu hỏi của cô ấy là sự sỉ nhục "chuyên nghiệp"
 
-của họ.
+Của họ.
 
 "Trong thời gian cô thực hiện nhiệm vụ, an toàn của cô sẽ là ưu tiên cao nhất của tôi. Bất kỳ mối đe dọa nào có thể gây tổn hại thực chất về thân thể cho cô đều sẽ bị loại trừ trước. Cô có thể hiểu tôi là… vệ sĩ theo sát đắt giá nhất, suốt ngày suốt đêm của cô."
 
@@ -593,7 +605,11 @@ Cô ấy nén chặt dục vọng chửi thầm, hắng giọng, cố gắng khi
 
 "Các ngươi… tên là gì?"
 
-Câu hỏi của cô ấy vừa ra, ba con liệt ma như bị nhấn công tắc lạ, lập tức ngừng run, tranh nhau phát ra chuỗi âm tiết "kít kịt", "xì xào" hoàn toàn không thể hiểu, còn kèm theo đẩy và chỉ trỏ lẫn nhau. Cảnh tượng một lúc vô cùng hỗn loạn, giống hệt học sinh bị thầy gọi trả lời nhưng một chữ cũng không nói ra được.
+Câu hỏi của cô ấy vừa ra, ba con liệt ma như bị nhấn công tắc lạ, lập tức ngừng run, tranh nhau phát ra chuỗi âm tiết "kít kịt",
+
+"Xì xào"
+
+Hoàn toàn không thể hiểu, còn kèm theo đẩy và chỉ trỏ lẫn nhau. Cảnh tượng một lúc vô cùng hỗn loạn, giống hệt học sinh bị thầy gọi trả lời nhưng một chữ cũng không nói ra được.
 
 *… Tốt, giao tiếp cũng là vấn đề.*
 
@@ -621,7 +637,7 @@ Lần này chúng dường như hiểu rồi. Hoặc nói cách khác, ý chí k
 
 Góc mắt cô ấy co giật, quyết định tạm thời bỏ qua cảnh tượng dọn dẹp quần ma loạn vũ này, quay sang người "bình thường"
 
-duy nhất bên cạnh.
+Duy nhất bên cạnh.
 
 "Karl, chúng ta đi xem kho hàng hiện có. Hy vọng tình hình đó tốt hơn đại sảnh một chút."
 
@@ -841,13 +857,19 @@ Karl dường như thấu được lo lắng của cô ấy, hắn bước tới
 
 Nói xong, hắn dẫn cô ấy đi vào biển ồn ào đó.
 
-Vừa vào chợ, đủ loại cảnh tượng kỳ quái càng dữ dội tấn công nhãn cầu cô ấy. Một chủ sạp có xúc tu bạch tuộc dùng tám chiếc vây đồng thời đóng gói hàng cho tám khách; sạp khác trong lồng nhốt những miếng thịt to bằng nắm tay biết phát tiếng khóc trẻ sơ sinh, bảng ghi "Thịt thăn cảm xúc tươi, vị phẫn nộ, 5 hồn tệ một miếng"; cô ấy thậm chí thấy sạp trực tiếp bán đầu lâu đủ kích cỡ, có cái trong hốc mắt còn cháy ngọn lửa xanh âm u.
+Vừa vào chợ, đủ loại cảnh tượng kỳ quái càng dữ dội tấn công nhãn cầu cô ấy. Một chủ sạp có xúc tu bạch tuộc dùng tám chiếc vây đồng thời đóng gói hàng cho tám khách; sạp khác trong lồng nhốt những miếng thịt to bằng nắm tay biết phát tiếng khóc trẻ sơ sinh, bảng ghi
+
+"Thịt thăn cảm xúc tươi, vị phẫn nộ, 5 hồn tệ một miếng"
+
+; cô ấy thậm chí thấy sạp trực tiếp bán đầu lâu đủ kích cỡ, có cái trong hốc mắt còn cháy ngọn lửa xanh âm u.
 
 Cô ấy nén chặt sự khó chịu, ánh mắt dán chặt vào bóng lưng Karl, sợ lơ đễnh là mất hút. Hắn len qua đám ma quỷ đông đúc, bước đi ung dung, những con ma quỷ kỳ hình quái trạng dường như đều vô thức nhường đường cho hắn.
 
 Đi khoảng năm phút, Karl dừng ở góc tương đối hẻo lánh, ánh sáng mờ tối. Chủ sạp nơi này là bóng dáng khom lưng, toàn thân bọc trong áo choàng đen, chỉ thấy hai điểm ánh đỏ lấp lánh dưới mũ trùm. Sạp của hắn không có tiếng rao, chỉ lặng lẽ đặt đủ loại dụng cụ han gỉ, búa, cưa, cờ lê, cùng vài vật liệu tỏa mùi kim loại và quặng.
 
-Karl nói thầm với cô ấy: "Chủ sạp này là ma hài cốt, tính tình quái dị nhưng chưa từng bán hàng giả. Cô có thể mua dụng cụ và vật liệu cơ bản cần sửa quán bar ở đây. Tuy nhiên, hắn không bao giờ trả giá."
+Karl nói thầm với cô ấy:
+
+"Chủ sạp này là ma hài cốt, tính tình quái dị nhưng chưa từng bán hàng giả. Cô có thể mua dụng cụ và vật liệu cơ bản cần sửa quán bar ở đây. Tuy nhiên, hắn không bao giờ trả giá."
 
 Chủ sạp dường như cảm nhận sự đến của các ngươi, hắn từ từ ngẩng đầu, ánh đỏ dưới mũ trùm tập trung vào người cô ấy.
 
@@ -861,9 +883,11 @@ Những thứ này hoàn toàn không phải bất kỳ loại dụng cụ nào 
 
 Cảm giác chẳng phải đến mua dụng cụ, mà như đột nhập kho đạo cụ phim kỳ ảo.
 
-Cô ấy cảm giác não mình như CPU quá tải, phát ra âm thanh vo ve phản kháng. Cuối cùng cô ấy từ bỏ ý định dùng kiến thức nghèo nàn của mình hiểu tất cả, quay sang "bách khoa toàn thư địa ngục"
+Cô ấy cảm giác não mình như CPU quá tải, phát ra âm thanh vo ve phản kháng. Cuối cùng cô ấy từ bỏ ý định dùng kiến thức nghèo nàn của mình hiểu tất cả, quay sang
 
-duy nhất bên cạnh.
+"Bách khoa toàn thư địa ngục"
+
+Duy nhất bên cạnh.
 
 Cô ấy ngẩng đầu, tầm mắt đối với đôi mắt huyết sắc bình lặng không gợn sóng của Karl, hạ giọng hỏi.
 
@@ -887,9 +911,17 @@ Tiếp theo hắn chỉ những chiếc đinh phát sáng.
 
 "Còn những thứ này là 'Cảm Xúc Cố Đinh'. Màu khác nhau ứng với năng lượng cảm xúc khác nhau. Ví dụ đinh đỏ 'Phẫn Nộ Đinh' khiến gỗ vì 'phẫn nộ' mà căng chặt, đạt hiệu quả cố định mạnh nhất; còn đinh xanh 'Bi Thương Đinh' khiến vật liệu vì 'bi thương' mà mềm hóa, tiện cho tạo hình. Cô cần căn cứ 'tâm tình' bàn ghế quán bar để chọn."
 
-Trong vài lời, hắn đã vạch mở cho cô ấy "lý thuyết sửa chữa địa ngục" hoang đường nhưng logic tự nhất quán.
+Trong vài lời, hắn đã vạch mở cho cô ấy
 
-Cô ấy nghe bộ "lý thuyết sửa chữa địa ngục" huyền bí của Karl, cảm giác tế bào não đang chết hàng loạt.
+"Lý thuyết sửa chữa địa ngục"
+
+Hoang đường nhưng logic tự nhất quán.
+
+Cô ấy nghe bộ
+
+"Lý thuyết sửa chữa địa ngục"
+
+Huyền bí của Karl, cảm giác tế bào não đang chết hàng loạt.
 
 *Gì chứ? Sửa bàn còn phải xem tâm tình nó? Cái này còn quái hơn đối phó yêu cầu khách hàng!*
 
@@ -897,7 +929,11 @@ Cô ấy quả quyết từ bỏ ý định nghiên cứu sâu môn học cao si
 
 "Tôi không hiểu những thứ này, ngài chọn đi."
 
-Cô ấy dùng giọng "đống việc này tạm giao ngài rồi" nói, Chọn mua mấy thứ có tính giá trị cao nhất, cũng hữu ích nhất. Nhớ nhé, cô ấy cố ý nhấn mạnh giọng nhắc hắn, Chúng ta tổng cộng chỉ có 1000 hồn tệ, còn phải để tiền mua rượu và đồ ăn.
+Cô ấy dùng giọng
+
+"Đống việc này tạm giao ngài rồi"
+
+Nói, Chọn mua mấy thứ có tính giá trị cao nhất, cũng hữu ích nhất. Nhớ nhé, cô ấy cố ý nhấn mạnh giọng nhắc hắn, Chúng ta tổng cộng chỉ có 1000 hồn tệ, còn phải để tiền mua rượu và đồ ăn.
 
 "Hiểu rồi, quản lý nhân."
 
@@ -989,7 +1025,9 @@ Chủ sạp béo phì dùng đôi mắt kép liếc Karl, lại nhìn cô ấy, 
 
 Giọng chủ sạp như ngậm đờm đặc.
 
-Karl từ tay cô ấy nhận túi tiền, chính xác đếm số hồn tệ tương ứng đặt lên mặt bàn nhờn. Trong lúc cô ấy chờ giao dịch hoàn tất, vô tình nghe sạp bên cạnh có tiếng cãi vã. Một con liệt ma nhỏ thấp đang chỉ chai đựng chất lỏng xanh, gào với chủ sạp: "Cái 'Nước Mắt Bi Thương' của ngươi pha nước rồi! Hôm qua tôi uống một ngụm, chẳng muốn khóc chút nào!"
+Karl từ tay cô ấy nhận túi tiền, chính xác đếm số hồn tệ tương ứng đặt lên mặt bàn nhờn. Trong lúc cô ấy chờ giao dịch hoàn tất, vô tình nghe sạp bên cạnh có tiếng cãi vã. Một con liệt ma nhỏ thấp đang chỉ chai đựng chất lỏng xanh, gào với chủ sạp:
+
+"Cái 'Nước Mắt Bi Thương' của ngươi pha nước rồi! Hôm qua tôi uống một ngụm, chẳng muốn khóc chút nào!"
 
 *… Ngay cả cảm xúc cũng là hàng hóa có thể định lượng bán à? Thế giới này ngày càng quái lạ.*
 
@@ -1015,7 +1053,11 @@ Cô ấy chỉ đồ ăn trong tay hắn, Còn tôi thì sao? Tôi ăn gì? Tôi
 
 Cô ấy nhớ rõ lời mời làm việc viết "bao ăn bao ở".
 
-Nghe câu hỏi của cô ấy, trên khuôn mặt Karl muôn đời không đổi lần đầu xuất hiện biểu cảm giống "sơ suất". Hắn dường như thật sự chưa đưa việc "cô cần ăn thức ăn con người" vào ưu tiên hàng đầu.
+Nghe câu hỏi của cô ấy, trên khuôn mặt Karl muôn đời không đổi lần đầu xuất hiện biểu cảm giống "sơ suất". Hắn dường như thật sự chưa đưa việc
+
+"Cô cần ăn thức ăn con người"
+
+Vào ưu tiên hàng đầu.
 
 "… Là sơ suất của tôi, quản lý nhân."
 
@@ -1043,7 +1085,15 @@ Giọng nói mang chút yếu ớt và cầu xin của cô ấy khiến bước 
 
 "… Là sơ suất của tôi, quản lý nhân."
 
-Hắn thừa nhận, giọng hiếm khi không còn điệu "mọi thứ trong tầm kiểm soát". Hắn dường như thật sự coi việc "cô cần ăn thức ăn con người" là dữ liệu quan trọng vừa mới được nhập vào hệ thống.
+Hắn thừa nhận, giọng hiếm khi không còn điệu
+
+"Mọi thứ trong tầm kiểm soát"
+
+. Hắn dường như thật sự coi việc
+
+"Cô cần ăn thức ăn con người"
+
+Là dữ liệu quan trọng vừa mới được nhập vào hệ thống.
 
 *Thì ra tên này cũng có lúc không đáng tin cậy…*
 
@@ -1263,7 +1313,11 @@ Sau khi cô ấy hoàn thành "thuyết phục", Karl lập tức tiếp nhận.
 
 Cuối cùng cô ấy như nữ tế hiến tế cầm "Cảm Xúc Cố Đinh" lấp lánh ánh sáng khác nhau, dưới chỉ dẫn của Karl nhấn chúng vào lỗ để sẵn. Cô ấy chỉ cần dùng búa gõ nhẹ, chiếc đinh sẽ tự động khoan vào gỗ, phát âm "oong" yếu ớt, rồi toàn bộ đồ đạc kỳ diệu khít như một, vững chắc như cũ.
 
-Thời gian trôi nhanh trong vòng lặp "bạn đập, Karl xử lý hậu kỳ, liệt ma đánh trống" này. Từ lúc đầu luống cuống đến dần tê liệt rồi cuối cùng lặp lại máy móc. Cô ấy cảm thấy mình không như quản lý, mà như công nhân dây chuyền phù phép cho dụng cụ.
+Thời gian trôi nhanh trong vòng lặp
+
+"Bạn đập, Karl xử lý hậu kỳ, liệt ma đánh trống"
+
+Này. Từ lúc đầu luống cuống đến dần tê liệt rồi cuối cùng lặp lại máy móc. Cô ấy cảm thấy mình không như quản lý, mà như công nhân dây chuyền phù phép cho dụng cụ.
 
 Khi chân thứ tư của chiếc ghế cuối cùng được cố định chặt, cô ấy không còn chịu nổi, vứt búa xuống đất rồi ngồi phịch lên chiếc ghế ấy, cảm giác mọi sức lực trong cơ thể đều bị rút cạn.
 
@@ -1369,7 +1423,7 @@ Hắn hơi cúi người. Động tác này khiến hắn trông không còn cao
 
 Hắn đặt hai hướng hoàn toàn khác nhau nhưng đều tràn đầy khả năng trước mặt cô ấy, chờ đợi "quản lý nhân"
 
-mệt mỏi đưa ra quyết đoán.
+Mệt mỏi đưa ra quyết đoán.
 
 Cô ấy vùi mặt vào gối mềm, giọng vì mệt mỏi và vải chặn mà nghe đục.
 
@@ -1401,7 +1455,9 @@ Khóe miệng Karl cong lên nụ cười cực nhạt pha trộn nhớ nhung v�
 
 Sự mô tả của Karl vẽ cho cô ấy hình tượng người phụ nữ huyền thoại mạnh mẽ, thông minh, thậm chí có chút xảo quyệt. Bà tạo tương phản rõ rệt, đáng thất vọng với sự bối rối của cô ấy lúc này vì ba bữa một ngày.
 
-Hắn nhìn biểu cảm suy tư của cô ấy, cuối cùng bổ sung: "Tất nhiên cô không cần trở thành bà. Cô chỉ cần tìm cách giải quyết vấn đề thuộc về chính mình. Bây giờ xin nghỉ trước đi, bộ não tỉnh táo quý giá hơn tâm hồn mệt mỏi rất nhiều."
+Hắn nhìn biểu cảm suy tư của cô ấy, cuối cùng bổ sung:
+
+"Tất nhiên cô không cần trở thành bà. Cô chỉ cần tìm cách giải quyết vấn đề thuộc về chính mình. Bây giờ xin nghỉ trước đi, bộ não tỉnh táo quý giá hơn tâm hồn mệt mỏi rất nhiều."
 
 Bàn tay cô ấy từ trong chăn ấm đưa ra, đầu ngón tay mang chút xung động muốn tìm hiểu chính mình cũng chưa nhận ra, nhẹ nhàng kéo ống tay áo sơ mi gọn gàng buông bên mình của hắn. Cảm giác vải mịn mát lạnh truyền qua đầu ngón tay.
 
@@ -1513,7 +1569,11 @@ Nhận thức này khiến cô ấy cảm thấy không chân thực. Cô ấy n
 
 Ngoài cửa là thế giới hoàng hôn vĩnh hằng. Bầu trời màu xanh sẫm pha tím, đường chân trời vết nứt đỏ tối như sẹo hành tinh vẫn cháy rực, chỉ ánh sáng có vẻ nhạt hơn đêm qua, như tro than. Trên phố đã có chút "người đi đường", nhưng thưa thớt hơn chợ hôm qua rất nhiều. Mấy tiểu quỷ toàn thân bốc hơi đẩy xe cút kít chất những khối đen tỏa hơi nóng không tên, rao bán dọc phố. Xa xa ánh sáng tím đỏ mê hoặc của 【Phi Sắc Quỷ Ảnh】 vẫn nổi bật, như ngôi sao dục vọng không bao giờ lặn.
 
-Nơi đây không có ngày đêm luân phiên, chỉ có thay đổi nhỏ của ánh sáng sáng tối. "Buổi sáng" địa ngục nguyên lai như vậy.
+Nơi đây không có ngày đêm luân phiên, chỉ có thay đổi nhỏ của ánh sáng sáng tối.
+
+"Buổi sáng"
+
+Địa ngục nguyên lai như vậy.
 
 Đứng bên cửa sổ một lúc, cô ấy cảm thấy người dính nhớp. Mồ hôi hôm qua sửa chữa và đi chợ chỉ ngủ một giấc không biến mất. Cô ấy khẩn thiết cần tắm rửa, thay bộ quần áo sạch.
 
@@ -1543,7 +1603,11 @@ Cô ấy rửa thân thể, nhìn mặt nước vì động tác cô ấy gợn 
 
 Không khí ấm áp bọc thân thể ướt của cô ấy. Cô ấy tùy tay lấy chiếc khăn tắm lớn mềm lạ thường trên kệ lau khô từ đầu đến chân. Trong gương da cô ấy vì ngâm nước nóng ửng hồng khỏe mạnh, xóa sạch vẻ tái nhợt tiều tụy hôm qua, ngay cả ánh mắt cũng sáng hơn. Cô ấy lấy chiếc áo choàng ngủ lụa trên tường, màu xanh sẫm hơi phát sáng, vải mịn mát lạnh, áp vào da thoải mái khiến cô ấy không nhịn được thở dài. Áo cắt vừa vặn, thắt lưng xong ôm khít eo thon. Cô ấy cảm thấy như được bọc trong tác phẩm nghệ thuật đắt tiền, cảm giác được chăm sóc chu đáo xa lạ nhưng đáng chịu. Cô ấy đi chân không ra khỏi phòng tắm lưu luyến.
 
-Phòng ngủ vẫn mờ tối yên tĩnh. Não cô ấy dưới sự ngâm nước nóng và hương thơm an ủi tỉnh táo chưa từng thấy. Hai phương án giải quyết đồ ăn Karl đề xuất hôm qua giờ như cảnh phim rõ ràng phát lại trong đầu. *Phương án một, khai phá 'Vùng Đất Thanh Tịnh'.* Cô ấy vừa đi về phía tủ quần áo lớn vừa tính trong lòng. Phương án này nghe ổn định nhất, như chơi game mô phỏng kinh doanh trồng trọt phát triển nông nghiệp trước. Tự cung tự cấp nghe rất an toàn. Nhưng vấn đề là cần đầu tư hồn tệ và… "sức lực" của cô ấy. Cô ấy giờ vẫn không biết "sức lực" của mình là gì, quý giá thế nào. Và tỷ lệ thành công cũng chưa biết. *Phương án hai, bán 'hương vị nhân gian'.* Ý tưởng này khiến tim cô ấy đập lỡ nhịp. Nó nghe táo bạo, kích thích, đầy đầu cơ. Bán món nhà, có thể trứng cà chua, có thể cánh gà cola, cho quý tộc địa ngục? Chỉ tưởng tượng thôi đã thấy hoang đường và hấp dẫn.
+Phòng ngủ vẫn mờ tối yên tĩnh. Não cô ấy dưới sự ngâm nước nóng và hương thơm an ủi tỉnh táo chưa từng thấy. Hai phương án giải quyết đồ ăn Karl đề xuất hôm qua giờ như cảnh phim rõ ràng phát lại trong đầu. *Phương án một, khai phá 'Vùng Đất Thanh Tịnh'.* Cô ấy vừa đi về phía tủ quần áo lớn vừa tính trong lòng. Phương án này nghe ổn định nhất, như chơi game mô phỏng kinh doanh trồng trọt phát triển nông nghiệp trước. Tự cung tự cấp nghe rất an toàn. Nhưng vấn đề là cần đầu tư hồn tệ và…
+
+"Sức lực"
+
+Của cô ấy. Cô ấy giờ vẫn không biết "sức lực" của mình là gì, quý giá thế nào. Và tỷ lệ thành công cũng chưa biết. *Phương án hai, bán 'hương vị nhân gian'.* Ý tưởng này khiến tim cô ấy đập lỡ nhịp. Nó nghe táo bạo, kích thích, đầy đầu cơ. Bán món nhà, có thể trứng cà chua, có thể cánh gà cola, cho quý tộc địa ngục? Chỉ tưởng tượng thôi đã thấy hoang đường và hấp dẫn.
 
 Nếu thành công đây chắc chắn sẽ thành bảng hiệu độc đáo nhất của 【Huyết Hồng Thánh Bôi】. Nhưng rủi ro cũng lớn, tay nghề nấu của cô ấy chỉ dừng ở mức "ăn được", thật sự thỏa mãn vị giác lũ ma quỷ đã nếm mọi mỹ vị địa ngục được không? Và điều này cũng có nghĩa cô ấy có thể thật sự bị trói ở nhà bếp, đây không phải cuộc sống "quản lý nhân" cô ấy muốn.
 
@@ -1581,7 +1645,9 @@ Hắn dừng lại. Trong đôi mắt huyết sắc chút cảm xúc phức tạ
 
 "Chứng minh tiêu chuẩn của bà rất chính xác. Bộ này rất hợp cô, quản lý nhân."
 
-Lời hắn vừa giải đáp nghi vấn của cô ấy vừa như lời khen không để lại dấu vết, khiến má cô ấy lại hơi nóng. "Vậy à? Tổ tiên tôi còn biết trước size quần áo của tôi?"
+Lời hắn vừa giải đáp nghi vấn của cô ấy vừa như lời khen không để lại dấu vết, khiến má cô ấy lại hơi nóng.
+
+"Vậy à? Tổ tiên tôi còn biết trước size quần áo của tôi?"
 
 Karl không giải thích nhiều.
 
@@ -1589,7 +1655,9 @@ Karl không giải thích nhiều.
 
 "… Ừm."
 
-Cô ấy tránh ánh nhìn quá chuyên chú của hắn, hắng giọng quyết định kéo chủ đề về đúng hướng. Cô ấy vô thức chỉnh cổ áo sơ mi. Sự ngại ngùng từ cuộc trò chuyện tối qua chưa tan hết, khiến đối diện hắn cô ấy luôn có chút không tự nhiên. Nhưng khi ánh mắt cô ấy đổ lên gương mặt chuyên chú lau ly bên hắn, cô ấy vẫn nén sự không tự nhiên ấy: "Cảm… cảm ơn."
+Cô ấy tránh ánh nhìn quá chuyên chú của hắn, hắng giọng quyết định kéo chủ đề về đúng hướng. Cô ấy vô thức chỉnh cổ áo sơ mi. Sự ngại ngùng từ cuộc trò chuyện tối qua chưa tan hết, khiến đối diện hắn cô ấy luôn có chút không tự nhiên. Nhưng khi ánh mắt cô ấy đổ lên gương mặt chuyên chú lau ly bên hắn, cô ấy vẫn nén sự không tự nhiên ấy:
+
+"Cảm… cảm ơn."
 
 Cô ấy nói nhỏ vì chỗ ở tối qua và quần áo hôm nay, cũng vì sự chu đáo vượt nhiệm vụ của hắn.
 
@@ -1619,7 +1687,11 @@ Lần này đi trên phố Ảnh Hạng tâm thái cô ấy đã hoàn toàn kh�
 
 Dưới sự dẫn dắt của Karl, các ngươi đi vòng qua chợ ồn ào hôm qua, đến khu vực trang nghiêm hơn. Kiến trúc nơi đây thống nhất hơn, đều là tòa nhà Gothic cao lớn âm u. Trong không khí ngập mùi giấy, mực và tuyệt vọng nhẹ.
 
-Đây chính là "U Hồn Tuyển Dụng Thị Trường".
+Đây chính là
+
+"U Hồn Tuyển Dụng Thị Trường"
+
+.
 
 Nó không giống chợ mà giống quảng trường tìm việc ngoài trời khổng lồ. Vô số ma quỷ, ma vật, thậm chí sinh vật phi nhân hình hoặc tụ tập ba hai, hoặc đứng một mình góc. Phần lớn tay cầm tấm gỗ, trên viết bằng ngôn ngữ chung nguệch ngoạc chủng tộc, sở trường và mức lương mong muốn.
 
@@ -1659,7 +1731,9 @@ Hắn nhẹ nhàng nhắc nhở, Tuy nhiên theo tiêu chuẩn của cô, tôi q
 
 Hắn giơ tay chỉ góc quảng trường không đáng chú ý.
 
-Cô ấy theo hướng chỉ nhìn, nơi đó đứng một con ma quỷ thân hình mảnh mai. Hắn trông rất trẻ, tóc ngắn mềm mại giữa bạc và tím nhạt, da trắng xanh, đôi tai nhọn lộ ra từ tóc. Không như người tìm việc khác giơ cao bảng, hắn chỉ lặng lẽ đứng đó, cúi đầu, hai tay chắp trước ngực, tỏ ra bối rối và hướng nội. Bảng của hắn dựa bên chân, chữ viết tao nhã: "Tây Nhĩ Phàm, tạo bầu không khí và phục vụ cơ bản, yêu cầu lương 50 hồn tệ/tuần, cung cấp môi trường nghỉ ngơi yên tĩnh."
+Cô ấy theo hướng chỉ nhìn, nơi đó đứng một con ma quỷ thân hình mảnh mai. Hắn trông rất trẻ, tóc ngắn mềm mại giữa bạc và tím nhạt, da trắng xanh, đôi tai nhọn lộ ra từ tóc. Không như người tìm việc khác giơ cao bảng, hắn chỉ lặng lẽ đứng đó, cúi đầu, hai tay chắp trước ngực, tỏ ra bối rối và hướng nội. Bảng của hắn dựa bên chân, chữ viết tao nhã:
+
+"Tây Nhĩ Phàm, tạo bầu không khí và phục vụ cơ bản, yêu cầu lương 50 hồn tệ/tuần, cung cấp môi trường nghỉ ngơi yên tĩnh."
 
 Xét từ ngoại hình, hắn quả thật là người gần "thanh tú vô hại" nhất toàn quảng trường, thậm chí có chút đáng thương.
 
@@ -1687,7 +1761,11 @@ Trên người hắn tỏa ra hoàn toàn không phải khí xám yếu ớt m�
 
 Đó là quầng sáng mềm mại khổng lồ như tinh vân, không ngừng biến đổi màu sắc. Khi thì vàng sáng tò mò như trẻ con, khi lại lấp lánh tím xảo quyệt như trò chơi khăm thành công, thỉnh thoảng còn thoát ra vài sợi xanh nhạt đại diện cô đơn và nhàm chán.
 
-Trong lõi quầng sáng này bao bọc không phải linh hồn "nhút nhát" mà là linh hồn đầy tò mò mãnh liệt, khao khát được chú ý, cực kỳ thích thú "quan sát phản ứng người khác", ồn ào. Mọi biểu hiện "hướng nội" lúc này của hắn chỉ là vở kịch được sắp đặt tinh tế, còn bản thân hắn vừa là diễn viên vừa là khán giả duy nhất, đang thưởng thức vở "diễn kẻ hướng nội" một mình.
+Trong lõi quầng sáng này bao bọc không phải linh hồn "nhút nhát" mà là linh hồn đầy tò mò mãnh liệt, khao khát được chú ý, cực kỳ thích thú
+
+"Quan sát phản ứng người khác"
+
+, ồn ào. Mọi biểu hiện "hướng nội" lúc này của hắn chỉ là vở kịch được sắp đặt tinh tế, còn bản thân hắn vừa là diễn viên vừa là khán giả duy nhất, đang thưởng thức vở "diễn kẻ hướng nội" một mình.
 
 *… Hay đấy, tôi gặp minh tinh màn bạc sao?*
 
@@ -1751,7 +1829,11 @@ Cô ấy nhìn "thiếu niên hướng nội" đang nhấp nháp uống đồ đ
 
 "Có thể nói cụ thể ý nghĩa là gì không?"
 
-Nghe câu hỏi này, tay Tây Nhĩ Phàm ôm ly hơi dừng. Hắn dường như lại rơi vào tình cảnh "không biết mở lời thế nào", cúi đầu im lặng rất lâu.
+Nghe câu hỏi này, tay Tây Nhĩ Phàm ôm ly hơi dừng. Hắn dường như lại rơi vào tình cảnh
+
+"Không biết mở lời thế nào"
+
+, cúi đầu im lặng rất lâu.
 
 Khi cô ấy tưởng hắn sẽ im hơi lặng tiếng, hắn cuối cùng dùng giọng cực nhẹ còn hơi ấp úng mở miệng:
 
@@ -1921,7 +2003,11 @@ Giọng Karl trầm ổn rõ ràng, như giáo sư pháp luật nghiêm túc đa
 
 Hắn dừng lại, đưa ánh mắt về phía cô ấy, mang ý dẫn dắt:
 
-"Bây giờ xin cô tập trung tinh thần, đem ý chí "chủ thuê" của cô quán chú vào tấm khế ước này. Cô cần rõ ràng 'nghĩ': Cô muốn thuê hắn, chức vụ phục vụ viên, lương 50 hồn tệ mỗi tuần, bao chỗ ở, thử việc một tháng, cô có quyền sa thải hắn bất cứ lúc nào."
+"Bây giờ xin cô tập trung tinh thần, đem ý chí "
+
+Chủ thuê
+
+" của cô quán chú vào tấm khế ước này. Cô cần rõ ràng 'nghĩ': Cô muốn thuê hắn, chức vụ phục vụ viên, lương 50 hồn tệ mỗi tuần, bao chỗ ở, thử việc một tháng, cô có quyền sa thải hắn bất cứ lúc nào."
 
 Cô ấy theo chỉ dẫn của hắn hít sâu, nhắm mắt, trong đầu rõ ràng xem lại những ý nghĩ ấy. Khi mở mắt lại, cô ấy thấy tấm da cừu trống ấy bắt đầu hiện phù văn nhạt như mực bạc.
 
@@ -1969,7 +2055,9 @@ Cô ấy cảm thấy giữa mình và Tây Nhĩ Phàm thiết lập kết nối
 
 Giọng Karl kéo cô ấy từ cảm giác kỳ diệu ấy về hiện thực, Cô đã thuê thành công nhân viên chính thức đầu tiên của 【Huyết Hồng Thánh Bôi】. Sự trung thành của hắn sẽ được đảm bảo kép bởi huyết mạch cô và pháp tắc địa ngục.
 
-Tây Nhĩ Phàm đối diện lúc này đang sờ trán ngạc nhiên, lại nhìn cô ấy, biểu cảm như đang nói: "Vừa rồi là gì? Hay quá!"
+Tây Nhĩ Phàm đối diện lúc này đang sờ trán ngạc nhiên, lại nhìn cô ấy, biểu cảm như đang nói:
+
+"Vừa rồi là gì? Hay quá!"
 
 Cô ấy đưa ngón tay vừa chích vào miệng, vị tanh như rỉ sắt hòa chút ngọt kỳ lạ mang sức mạnh nở trên vị giác. Cảm giác này xa lạ nhưng khiến cô ấy ý thức rõ thứ gì đó ngủ say trong cơ thể đang tỉnh dậy.
 
@@ -2009,13 +2097,21 @@ Lời cô ấy như làn gió thổi tan không khí gần như đông đặc đ
 
 Hắn ấp úng nhắc lại lời cô ấy, giọng tràn ngập khó tin bối rối, Nhưng… nhưng ngài là… Solomon…
 
-Với đa số sinh vật đáy tầng địa ngục, cái tên "Solomon" như "Thần Sáng Thế" trong thần thoại thế giới con người, xa vời, chỉ tồn tại trong truyền thuyết, đại diện sức mạnh tuyệt đối và khế ước tối cao. Giờ hiện thân cụ thể của biểu tượng ấy đang mặc bộ quần áo đen bình thường đứng trước mặt hắn, nói "tôi cũng là người bình thường".
+Với đa số sinh vật đáy tầng địa ngục, cái tên "Solomon" như "Thần Sáng Thế" trong thần thoại thế giới con người, xa vời, chỉ tồn tại trong truyền thuyết, đại diện sức mạnh tuyệt đối và khế ước tối cao. Giờ hiện thân cụ thể của biểu tượng ấy đang mặc bộ quần áo đen bình thường đứng trước mặt hắn, nói
+
+"Tôi cũng là người bình thường"
+
+.
 
 Sự chấn động với hắn không thua kém tín đồ sùng đạo trong nhà thờ tận mắt thấy Chúa bước xuống bệ thờ rồi vỗ vai nói "Này anh, cho mượn lửa".
 
 "… Hậu duệ."
 
-Cô ấy nhìn dáng vẻ thế giới quan đang sụp đổ tái tạo của hắn, thở dài bất lực rồi bổ sung. Cô ấy cảm thấy mình như kẻ xấu đang giải thích "thế giới không có ông già Noel" cho học sinh tiểu học.
+Cô ấy nhìn dáng vẻ thế giới quan đang sụp đổ tái tạo của hắn, thở dài bất lực rồi bổ sung. Cô ấy cảm thấy mình như kẻ xấu đang giải thích
+
+"Thế giới không có ông già Noel"
+
+Cho học sinh tiểu học.
 
 Đúng lúc đó giọng trầm ổn không cảm xúc vang bên cạnh cô ấy.
 
@@ -2069,7 +2165,11 @@ Nhìn dáng Tây Nhĩ Phàm, cô ấy thở phào nhẹ nhõm, trên mặt lộ 
 
 Đúng lúc đó Karl im lặng xuất hiện bên cạnh cô ấy.
 
-"Quản lý nhân, hắn liếc Tây Nhĩ Phàm đã "bình thường" lại phía sau cô ấy rồi chuyển ánh mắt về cô ấy, giọng ổn định báo cáo, Nhân viên đầu tiên của cô đã ổn định. Chỗ này không tiện ở lâu, chúng ta nên về 【Huyết Hồng Thánh Bôi】, chuẩn bị cuối cùng cho khai trương tối nay."
+"Quản lý nhân, hắn liếc Tây Nhĩ Phàm đã "
+
+Bình thường
+
+" lại phía sau cô ấy rồi chuyển ánh mắt về cô ấy, giọng ổn định báo cáo, Nhân viên đầu tiên của cô đã ổn định. Chỗ này không tiện ở lâu, chúng ta nên về 【Huyết Hồng Thánh Bôi】, chuẩn bị cuối cùng cho khai trương tối nay."
 
 Cô ấy gọi Karl đang sắp dẫn đoàn về.
 
@@ -2093,7 +2193,9 @@ Cô ấy đưa ánh mắt trở lại quảng trường tuyển dụng tràn cơ
 
 Cuối cùng ánh mắt cô ấy bị góc tối sâu nhất quảng trường thu hút, xa rời mọi ồn ào. Ở đó có bóng người đang tựa cột đá lốm đốm, thân hình thanh mảnh, mặc trang phục tối màu cắt may gọn gàng, mái tóc đen như khói mực buộc lỏng sau gáy. Không như người khác giơ cao biển hiệu, cũng không trò chuyện với ai, chỉ cúi đầu chuyên tâm lau chiếc shaker bạc kiểu cổ trên tay, như thể mọi ồn ào quảng trường đều không liên quan tới hắn.
 
-Bên chân hắn có tấm gỗ nhỏ nghiêng nghiêng sắp bị bóng tối nuốt chửng, trên đó chỉ hai chữ: "Điều tửu."
+Bên chân hắn có tấm gỗ nhỏ nghiêng nghiêng sắp bị bóng tối nuốt chửng, trên đó chỉ hai chữ:
+
+"Điều tửu."
 
 Trực giác mạnh mẽ mách cô ấy, người này chính là người cô ấy tìm.
 
@@ -2153,7 +2255,9 @@ Ngân sách, nhân lực, nguồn khách… tất cả đều là số không. D
 
 Karl xác nhận lựa chọn của cô ấy, khí nghiêm trọng vì sự xuất hiện của Minh Ảnh vốn căng cứng cũng thả lỏng, Khi căn cơ chưa vững, theo đuổi ổn định quan trọng hơn theo đuổi tột đỉnh rất nhiều.
 
-Tây Nhĩ Phàm phía sau cũng thở phào, nhỏ giọng phụ họa: "Đúng đúng, ông chủ, loại người đó đáng sợ quá, cảm giác ở cùng hắn nghĩ gì trong lòng đều bị hắn nhìn hết."
+Tây Nhĩ Phàm phía sau cũng thở phào, nhỏ giọng phụ họa:
+
+"Đúng đúng, ông chủ, loại người đó đáng sợ quá, cảm giác ở cùng hắn nghĩ gì trong lòng đều bị hắn nhìn hết."
 
 *Bartender có thể 'mổ xẻ linh hồn'…*
 
@@ -2247,7 +2351,11 @@ Cô ấy không khách khí bình phẩm, Một phục vụ viên, ba lao công,
 
 Lời cô ấy dứt khoát trực tiếp phủ định đề xuất của Karl, đưa "tuyển dụng" lên chương trình nghị sự hàng đầu.
 
-Karl không tỏ bất mãn với sự "cãi lại" của cô ấy, chỉ khẽ gật đầu, trong đôi mắt huyết sắc thoáng qua sự thấu hiểu, như đang nói "Cô cuối cùng đã bắt đầu quen với việc thực thi quyền phủ quyết của quản lý nhân".
+Karl không tỏ bất mãn với sự "cãi lại" của cô ấy, chỉ khẽ gật đầu, trong đôi mắt huyết sắc thoáng qua sự thấu hiểu, như đang nói
+
+"Cô cuối cùng đã bắt đầu quen với việc thực thi quyền phủ quyết của quản lý nhân"
+
+.
 
 "Tuân lệnh, quản lý nhân."
 
@@ -2263,7 +2371,11 @@ Cô ấy thu hồi ánh mắt khỏi "nghệ sĩ" cô độc, lại đắm mình
 
 Cô ấy vừa tìm trong đám đông những bóng dáng giơ biển "điều tửu", vừa mở "Cảm tri chân thực", cố gắng sàng lọc "vua tỷ lệ hiệu suất" thật sự từ mớ hỗn độn.
 
-Trong tầm nhìn cô ấy thế giới lại hóa biển các "khí tức". Hỏa ma biển ghi "quán quân bartender, lương 300" linh hồn tràn dối trá trơn trượt và tham lam hồn tệ; nữ yêu tóc rắn tự xưng "trăm năm kinh nghiệm" khí tức lại trống rỗng nhàm chán, kinh nghiệm gọi là chỉ là lặp lại ngày qua ngày.
+Trong tầm nhìn cô ấy thế giới lại hóa biển các "khí tức". Hỏa ma biển ghi
+
+"Quán quân bartender, lương 300"
+
+Linh hồn tràn dối trá trơn trượt và tham lam hồn tệ; nữ yêu tóc rắn tự xưng "trăm năm kinh nghiệm" khí tức lại trống rỗng nhàm chán, kinh nghiệm gọi là chỉ là lặp lại ngày qua ngày.
 
 Liên tiếp cảm tri vài mục tiêu, cô ấy thấy tinh thần truyền tới mệt mỏi, nhưng chưa tìm được ứng viên phù hợp. Cô ấy hơi nản chà thái dương, cuối cùng quyết định cầu cứu "từ điển sống địa ngục" bên cạnh.
 
@@ -2275,7 +2387,9 @@ Liên tiếp cảm tri vài mục tiêu, cô ấy thấy tinh thần truyền t�
 
 Hắn giơ tay chỉ hướng.
 
-Cô ấy theo hướng chỉ nhìn, thấy ma quỷ đầu bò thân hình cao lớn cơ bắp. Không như người tìm việc khác bồn chồn đi lại hay rao to, hắn chỉ yên lặng ngồi trên thùng gỗ, khoanh tay trước ngực, nhắm mắt dưỡng thần. Trên sừng bò khổng lồ còn vài vết cọ xát chiến đấu, trông đầy sức mạnh. Biển tìm việc của hắn đơn giản, chữ viết thô ráp: "Cách Lôi Cách, điều tửu/an ninh, 80 hồn tệ/tuần, yêu cầu bao ăn ở."
+Cô ấy theo hướng chỉ nhìn, thấy ma quỷ đầu bò thân hình cao lớn cơ bắp. Không như người tìm việc khác bồn chồn đi lại hay rao to, hắn chỉ yên lặng ngồi trên thùng gỗ, khoanh tay trước ngực, nhắm mắt dưỡng thần. Trên sừng bò khổng lồ còn vài vết cọ xát chiến đấu, trông đầy sức mạnh. Biển tìm việc của hắn đơn giản, chữ viết thô ráp:
+
+"Cách Lôi Cách, điều tửu/an ninh, 80 hồn tệ/tuần, yêu cầu bao ăn ở."
 
 "Cách Lôi Cách, một Minotaur."
 
@@ -2291,7 +2405,7 @@ Hắn như pháo đài im lặng, chờ vị chúa công để hắn thề trung
 
 Cô ấy nghe lời Karl, lại xem biển "điều tửu/an ninh"
 
-đơn giản thô bạo của Cách Lôi Cách, kinh ngạc mở to mắt, không nhịn được thốt.
+Đơn giản thô bạo của Cách Lôi Cách, kinh ngạc mở to mắt, không nhịn được thốt.
 
 "Gì? Vừa bartender vừa bảo vệ?"
 
@@ -2425,7 +2539,7 @@ Cô ấy chợt thấy bộ máy tạm bợ của cô ấy có vẻ… cũng kh�
 
 Cô ấy nhìn tổ hợp "kỳ hình quái trạng" trước mắt, huyễn điệp ma giả dạng thiếu niên hướng nội tinh nghịch, chiến sĩ Minotaur im lặngnhư núi, trong lòng dâng lên cảm xúc hoang đường lại hào hùng. Cô ấy vung tay mạnh như tướng chuẩn bị xuất chinh, ra lệnh tập thể đầu tiên cho "bộ máy tạm bợ"
 
-vừa thành lập.
+Vừa thành lập.
 
 "Chúng ta về 【Huyết Hồng Thánh Bôi】, chuẩn bị khai trương!"
 
@@ -2441,7 +2555,9 @@ Tây Nhĩ Phàm như con bướm tò mò bay quanh cô ấy, lúc chỉ quầy b
 
 Còn Karl khôi phục tư thế trợ lý hoàn hảo, theo không xa không gần bên kia cô ấy, không tham gia trò chuyện cũng khiến cô ấy luôn cảm nhận sự hiện diện của hắn.
 
-Khi họ trở lại cửa 【Huyết Hồng Thánh Bôi】, bên trong quán bar đã vang tiếng leng keng. Cô ấy đẩy cửa, thấy ba ác ma nhỏ đang đứng trên ghế cố gắng đặt những chai "Tửu Nấu Đầm Lầy Axit" hôm qua mua lên giá rượu cao, nhưng vì không đủ chiều cao đang gãi đầu bứt tai. Thấy cô ấy về, ba đứa nhỏ giật mình, một đứa trượt chân sắp ngã xuống cùng chai rượu trong tay. Nói chậm làm nhanh, Cách Lôi Cách vốn đi sau cô ấy lao lên, giơ bàn tay lớn như đá tảng ra đỡ mông ác ma trước khi hắn chạm đất, thuận tay đỡ luôn chai rượu sắp vỡ. Ác ma được cứu ngơ ngác hai giây rồi phát ra tiếng "kêu kêu" cảm ơn. Cách Lôi Cách không nhìn hắn, chỉ đặt chai rượu vững vàng lên quầy bar rồi quay người dùng đôi mắt nâu sẫm nhìn cô ấy, như đang chờ chỉ lệnh tiếp theo. Tây Nhĩ Phàm bên cạnh xem say mê, thậm chí vỗ tay, miệng lẩm bẩm: "Wow, anh hùng cứu mỹ nhân hay… không, anh hùng cứu xấu."
+Khi họ trở lại cửa 【Huyết Hồng Thánh Bôi】, bên trong quán bar đã vang tiếng leng keng. Cô ấy đẩy cửa, thấy ba ác ma nhỏ đang đứng trên ghế cố gắng đặt những chai "Tửu Nấu Đầm Lầy Axit" hôm qua mua lên giá rượu cao, nhưng vì không đủ chiều cao đang gãi đầu bứt tai. Thấy cô ấy về, ba đứa nhỏ giật mình, một đứa trượt chân sắp ngã xuống cùng chai rượu trong tay. Nói chậm làm nhanh, Cách Lôi Cách vốn đi sau cô ấy lao lên, giơ bàn tay lớn như đá tảng ra đỡ mông ác ma trước khi hắn chạm đất, thuận tay đỡ luôn chai rượu sắp vỡ. Ác ma được cứu ngơ ngác hai giây rồi phát ra tiếng "kêu kêu" cảm ơn. Cách Lôi Cách không nhìn hắn, chỉ đặt chai rượu vững vàng lên quầy bar rồi quay người dùng đôi mắt nâu sẫm nhìn cô ấy, như đang chờ chỉ lệnh tiếp theo. Tây Nhĩ Phàm bên cạnh xem say mê, thậm chí vỗ tay, miệng lẩm bẩm:
+
+"Wow, anh hùng cứu mỹ nhân hay… không, anh hùng cứu xấu."
 
 Cả quán bar vì sự gia nhập của thành viên mới lần đầu tràn đầy "nhân" khí.
 
@@ -2455,7 +2571,11 @@ Cô ấy nhìn "đội ngũ" vừa có hình hài trước mắt, hít sâu rồ
 
 Giọng cô ấy không lớn nhưng mang sự quyết đoán không dung nghi, vang vọng trong đại sảnh mới toanh. Tây Nhĩ Phàm lập tức ưỡn thẳng lưng phấn khích, đôi mắt tím lấp lánh, dáng sẵn sàng lên sân khấu biểu diễn. Cách Lôi Cách dùng nắm đấm lớn đập mạnh ngực lần nữa, âm "đùng" trầm đục đại diện nhận lệnh. Ba con ác ma nhỏ cũng dừng sự xáo động vô nghĩa, run sợ đứng thành hàng chờ chỉ lệnh.
 
-"Cách Lôi Cách, cô ấy trước hết nhìn "pháo đài" im lặng, Cậu phụ trách quầy bar và an ninh. Khách nào dám gây sự đều giao cho cậu xử lý."
+"Cách Lôi Cách, cô ấy trước hết nhìn "
+
+Pháo đài
+
+" im lặng, Cậu phụ trách quầy bar và an ninh. Khách nào dám gây sự đều giao cho cậu xử lý."
 
 Cách Lôi Cách nghe vậy chỉ gật đầu nặng nề rồi bước nặng nề vào sau quầy bar. Thân hình đồ sộ của hắn trong nháy mắt khiến quầy bar vốn có chút trống trải tràn đầy sức mạnh an tâm.
 
@@ -2497,7 +2617,11 @@ Tây Nhĩ Phàm sờ cằm, trang nghiêm trầm ngâm giây lát rồi vỗ tay
 
 Hắn áp sát tai cô ấy, dùng giọng thần bí chia sẻ kế hoạch tuyệt mật, Chúng ta gọi nó là, 'Khúc Ca Vịnh Điệu Hoàng Kim'!
 
-"Ông chủ nghĩ xem, hắn bắt đầu "phân tích chuyên môn" đầy kích động, Từ 'hét' quá trực tiếp, quá thấp kém, khiến khách liên tưởng đau đớn và sợ hãi. Nhưng 'vịnh điệu' thì khác! Đó là đoạn độc xướng cảm xúc tràn đầy nhất, lộng lẫy nhất trong opera! Chúng ta định nghĩa lại 'tiếng hét' của nó là 'chương hòa âm chói lọi cuối cùng khi sinh mệnh bùng phát'!"
+"Ông chủ nghĩ xem, hắn bắt đầu "
+
+Phân tích chuyên môn
+
+" đầy kích động, Từ 'hét' quá trực tiếp, quá thấp kém, khiến khách liên tưởng đau đớn và sợ hãi. Nhưng 'vịnh điệu' thì khác! Đó là đoạn độc xướng cảm xúc tràn đầy nhất, lộng lẫy nhất trong opera! Chúng ta định nghĩa lại 'tiếng hét' của nó là 'chương hòa âm chói lọi cuối cùng khi sinh mệnh bùng phát'!"
 
 "Thêm từ 'hoàng kim' mô tả lớp vỏ chiên vàng giòn… sang trọng, nghệ thuật, còn mang chút bi kịch! Phong cách không lên ngay sao? Giá gấp đôi cũng có người tranh nếm 'bài ca cuối cùng' ấy!"
 
@@ -2529,11 +2653,15 @@ Cô ấy vỗ sạch bụi phấn trên tay, quay sang nhân viên đặc sắc,
 
 Cô ấy hít sâu, ánh mắt quét qua Cách Lôi Cách im lặng như núi, Tây Nhĩ Phàm nóng lòng, và Karl luôn lạnh lùng, dùng giọng thuộc về "ông chủ"
 
-chưa từng có chính thức tuyên bố.
+Chưa từng có chính thức tuyên bố.
 
 "【Huyết Hồng Thánh Bôi】, tối nay, chính thức khai trương!"
 
-Trước khi đẩy cánh cửa quyết định vận mệnh, cô ấy hít sâu quay người đối mặt đội ngũ vừa ghép tạm, "rồng phượng nằm rạp". Cách Lôi Cách im lặng như núi đang dùng cánh tay đá lau chiếc ly thủy tinh cuối cùng sáng bóng. Tây Nhĩ Phàm nóng lòng dùng đôi mắt tím tò mò quan sát từng góc quán bar. Còn Karl như bóng hoàn hảo vĩnh viễn, lặng lẽ đứng trong bóng quầy bar chờ chỉ lệnh của cô ấy. Xa hơn, ba ác ma nhỏ đang căng thẳng bóp khăn lau thành xoắn.
+Trước khi đẩy cánh cửa quyết định vận mệnh, cô ấy hít sâu quay người đối mặt đội ngũ vừa ghép tạm,
+
+"Rồng phượng nằm rạp"
+
+. Cách Lôi Cách im lặng như núi đang dùng cánh tay đá lau chiếc ly thủy tinh cuối cùng sáng bóng. Tây Nhĩ Phàm nóng lòng dùng đôi mắt tím tò mò quan sát từng góc quán bar. Còn Karl như bóng hoàn hảo vĩnh viễn, lặng lẽ đứng trong bóng quầy bar chờ chỉ lệnh của cô ấy. Xa hơn, ba ác ma nhỏ đang căng thẳng bóp khăn lau thành xoắn.
 
 Đây là đội ngũ của cô ấy.
 
@@ -2603,7 +2731,11 @@ Cô ấy thấy hắn không trực tiếp mời chào mà khi tới gần hai �
 
 Giọng Tây Nhĩ Phàm mang ma lực kỳ lạ khiến người thư giãn.
 
-Cảnh tượng tiếp theo khiến cô ấy lần đầu trực quan cảm nhận thế nào là "chuyên nghiệp". Tây Nhĩ Phàm không vội chào hàng mà như người bạn thân tình nhất, giới thiệu môi trường "mới mẻ" của quán bar, dùng giọng đầy cám dỗ mô tả đồ uống tên "Thì Thầm Sông Vong Ưu" có thể "rửa sạch mệt mỏi cả ngày, mang lại khoảnh khắc yên bình" ra sao.
+Cảnh tượng tiếp theo khiến cô ấy lần đầu trực quan cảm nhận thế nào là "chuyên nghiệp". Tây Nhĩ Phàm không vội chào hàng mà như người bạn thân tình nhất, giới thiệu môi trường "mới mẻ" của quán bar, dùng giọng đầy cám dỗ mô tả đồ uống tên "Thì Thầm Sông Vong Ưu" có thể
+
+"Rửa sạch mệt mỏi cả ngày, mang lại khoảnh khắc yên bình"
+
+Ra sao.
 
 Hai ảnh ma gần như không kháng cự, mỗi người gọi một ly. Sau quầy bar, Cách Lôi Cách im lặng lấy hai chai "Tửu Nấu Đầm Lầy Axit" từ thùng, động tác chính xác như máy, mở nút, đổ vào hai ly thủy tinh sạch, không nhiều không ít, rồi đặt lên khay. Suốt quá trình khuôn mặt kiên nghị của hắn không biểu cảm, nhưng thân hình như núi khiến "cảm giác an toàn" của cả quán bar nâng lên mức chưa từng có.
 
@@ -2611,13 +2743,17 @@ Giao dịch đầu tiên thành công như vậy.
 
 Có người dám ăn cua đầu tiên, lần lượt có thêm vài ma quỷ tầng đáy trông khả năng tiêu dùng không cao bị Tây Nhĩ Phàm cửa hay không khí "thoải mái" trong quán thu hút bước vào.
 
-Cả đêm quán bar không có cảnh tấp nập, nhưng duy trì trạng thái ba bốn bàn khách, không đến nỗi vắng vẻ. Tây Nhĩ Phàm như con bướm xuyên hoa chạy giữa các bàn, khi kể chuyện cười vô hại, khi dùng ảo thuật biến bông hoa hồng băng phù du trong ly khách, luôn dễ dàng khiến những khách vốn chỉ muốn uống một ly rồi đi không ý thức gọi ly thứ hai, thứ ba… thậm chí thêm một phần "Khúc Ca Vịnh Điệu Hoàng Kim" để "nếm bài ca cuối cùng".
+Cả đêm quán bar không có cảnh tấp nập, nhưng duy trì trạng thái ba bốn bàn khách, không đến nỗi vắng vẻ. Tây Nhĩ Phàm như con bướm xuyên hoa chạy giữa các bàn, khi kể chuyện cười vô hại, khi dùng ảo thuật biến bông hoa hồng băng phù du trong ly khách, luôn dễ dàng khiến những khách vốn chỉ muốn uống một ly rồi đi không ý thức gọi ly thứ hai, thứ ba… thậm chí thêm một phần
+
+"Khúc Ca Vịnh Điệu Hoàng Kim"
+
+Để "nếm bài ca cuối cùng".
 
 Còn cô ấy từ căng thẳng ban đầu đến kinh ngạc khi thấy hồn tệ đầu tiên vào sổ, cuối cùng chỉ ngồi yên bên quầy bar, nhìn "bộ máy tạm bợ" nhỏ bé vận hành có trật tự, trong lòng dâng lên cảm xúc kỳ lạ tên "thành tựu".
 
 Khi con ác ma nhỏ cuối cùng say khướt bị Cách Lôi Cách nhấc như gà con ném ra cửa, tiếng chuông kỳ lạ địa ngục lại vang lên tuyên bố "kết thúc" ngày ấy. Đại sảnh bừa bộn, bàn đầy ly rỗng và thức ăn thừa, không khí ngập mùi rượu kém và đủ loại ma quỷ lẫn lộn.
 
-Nhưng cô ấy nhìn tất cả, lộ nụ cười chân thành đầu tiên kể từ khi xuống địa ngục. họ đã sống sót.
+Nhưng cô ấy nhìn tất cả, lộ nụ cười chân thành đầu tiên kể từ khi xuống địa ngục. Họ đã sống sót.
 
 Cô ấy nhặt tấm đá thực đơn còn hơi ấm đầu ngón tay, nhìn hai cái tên được Tây Nhĩ Phàm đóng gói lại mang chút thi vị hoang đường cùng con số đại diện thành quả mồ hôi nước mắt ngày đầu, trong lòng trăm mối. Cô ấy hít sâu quay người đối mặt "bộ máy tạm bợ" tuy mệt nhưng trong mắt đều lấp lánh ánh sáng.
 
@@ -2675,7 +2811,7 @@ Giọng hắn lần đầu mang chút kính phục chân thành từ đáy lòng
 
 **【Một lát sau · Chợ U Ảnh】**
 
-họ lại tới nơi ồn ào hỗn loạn này. Nhưng lần này mục tiêu cực kỳ rõ ràng. Dưới sự dẫn dắt của Karl, họ đổi toàn bộ 475 hồn tệ còn lại thành "Tửu Nấu Hài Cốt" chất lượng tốt hơn chút và món mới tên "Thịt Kỳ Nhông Nướng".
+Họ lại tới nơi ồn ào hỗn loạn này. Nhưng lần này mục tiêu cực kỳ rõ ràng. Dưới sự dẫn dắt của Karl, họ đổi toàn bộ 475 hồn tệ còn lại thành "Tửu Nấu Hài Cốt" chất lượng tốt hơn chút và món mới tên "Thịt Kỳ Nhông Nướng".
 
 Khi họ cầm vật tư đủ cho một tuần tiêu hao rời chợ, tiếng chuông kỳ lạ địa ngục lại vang lên tuyên bố kết thúc hoàn toàn ngày thứ hai.
 
@@ -2701,7 +2837,11 @@ Thế là 【Huyết Hồng Thánh Bôi】 dưới sự all in của cô ấy b�
 
 **【Ngày thứ ba  Chiều tà · Đang kinh doanh】**
 
-Nhờ truyền miệng của hơn chục "người may mắn" hôm qua (hay nói cách khác, ảo tưởng đẹp về "Sông Vong Ưu" và "Vịnh Điệu" Tây Nhĩ Phàm gieo vào đầu họ), đêm nay khách nhiều hơn hôm qua. Đại sảnh khoảng bảy tám bàn, phần lớn ác ma, tiểu quỷ và vài ảnh ma đơn độc mặc áo choàng. Họ nói chuyện nhỏ, không khí không sôi động nhưng cũng không vắng vẻ. Tây Nhĩ Phàm như con bướm thật sự chạy giữa các bàn. Hắn không cần cố ý tạo không khí, chỉ đơn giản thêm ly "Thì Thầm Sông Vong Ưu" cho khách hay đưa đĩa "Khúc Ca Vịnh Điệu Hoàng Kim" lên bàn, khí chất thư giãn vui vẻ bẩm sinh của hắn đã đủ khiến những ma quỷ ngày ngày vật lộn tầng đáy địa ngục tạm quên phiền não. Sau quầy bar Cách Lôi Cách im lặng làm nhiệm vụ. Thân hình đồ sộ và ánh mắt cảnh giác thỉnh thoảng quét toàn trường khiến mọi rắc rối tiềm ẩn biến mất từ trong trứng nước. Không khách nào dám ồn ào, càng không ai dám nợ tiền.
+Nhờ truyền miệng của hơn chục "người may mắn" hôm qua (hay nói cách khác, ảo tưởng đẹp về "Sông Vong Ưu" và "Vịnh Điệu" Tây Nhĩ Phàm gieo vào đầu họ), đêm nay khách nhiều hơn hôm qua. Đại sảnh khoảng bảy tám bàn, phần lớn ác ma, tiểu quỷ và vài ảnh ma đơn độc mặc áo choàng. Họ nói chuyện nhỏ, không khí không sôi động nhưng cũng không vắng vẻ. Tây Nhĩ Phàm như con bướm thật sự chạy giữa các bàn. Hắn không cần cố ý tạo không khí, chỉ đơn giản thêm ly "Thì Thầm Sông Vong Ưu" cho khách hay đưa đĩa
+
+"Khúc Ca Vịnh Điệu Hoàng Kim"
+
+Lên bàn, khí chất thư giãn vui vẻ bẩm sinh của hắn đã đủ khiến những ma quỷ ngày ngày vật lộn tầng đáy địa ngục tạm quên phiền não. Sau quầy bar Cách Lôi Cách im lặng làm nhiệm vụ. Thân hình đồ sộ và ánh mắt cảnh giác thỉnh thoảng quét toàn trường khiến mọi rắc rối tiềm ẩn biến mất từ trong trứng nước. Không khách nào dám ồn ào, càng không ai dám nợ tiền.
 
 Mọi thứ dường như đang đi theo hướng tốt.
 
@@ -2755,7 +2895,11 @@ Nụ cười chuyên nghiệp trên mặt cô ấy không đổi, nhưng ánh m�
 
 Trong tầm nhìn cảm tri, cuộn giấy da không còn là giấy thường mà hoá mạng lưới dệt bởi vô số phù văn trắng xám như xương. Phần lớn điều khoản toả ánh sáng khế ước bình thường ổn định, nhưng ở vài vị trí then chốt ánh sáng trở nên cực kỳ mờ nhạt, thậm chí hiện màu đỏ sẫm bất tường như máu đông.
 
-Ánh mắt cô ấy tập trung lên những phù văn đỏ sẫm ấy. Dưới điều khoản "cung cấp độc quyền" cô ấy thấy vô số xúc tu năng lượng mảnh như tơ nhện gần như không thấy được, đầu xúc tu nối với phù văn "túi dạ dày" tham lam đang không ngừng co bóp. Ở chỗ khác về "giá theo thị trường biến động", cô ấy thấy phù văn "bậc thang" khéo ngụy trang thành hoa văn trang trí không ngừng leo lên, đỉnh hướng về ký hiệu "vô hạn".
+Ánh mắt cô ấy tập trung lên những phù văn đỏ sẫm ấy. Dưới điều khoản "cung cấp độc quyền" cô ấy thấy vô số xúc tu năng lượng mảnh như tơ nhện gần như không thấy được, đầu xúc tu nối với phù văn "túi dạ dày" tham lam đang không ngừng co bóp. Ở chỗ khác về
+
+"Giá theo thị trường biến động"
+
+, cô ấy thấy phù văn "bậc thang" khéo ngụy trang thành hoa văn trang trí không ngừng leo lên, đỉnh hướng về ký hiệu "vô hạn".
 
 *Hay đấy, đây đâu phải hợp đồng cung cấp, rõ ràng là văn bản bán thân.*
 
@@ -2867,7 +3011,11 @@ Thân thể cô ấy va vào vòng ngực chắc ấm, mũi trong nháy mắt b�
 
 Cô ấy ngẩng đầu đúng lúc gặp đôi mắt huyết sắc cúi xuống của hắn. Đôi mắt ấy không chút ba động, như thể đỡ ông chủ sắp ngã với hắn chỉ là phản ứng theo quy trình tự nhiên như thở.
 
-Nhưng cô ấy không thể bình tĩnh như hắn. Ánh mắt tò mò không che giấu của những khách ma quỷ quanh đó như vô số kim nhỏ đâm vào lưng cô ấy. Cô ấy thậm chí nghe vài tiểu quỷ bàn bên cạnh thì thầm: "Nhìn kìa, ông chủ con người với trợ lý…" "Họ ôm nhau kìa…"
+Nhưng cô ấy không thể bình tĩnh như hắn. Ánh mắt tò mò không che giấu của những khách ma quỷ quanh đó như vô số kim nhỏ đâm vào lưng cô ấy. Cô ấy thậm chí nghe vài tiểu quỷ bàn bên cạnh thì thầm:
+
+"Nhìn kìa, ông chủ con người với trợ lý…"
+
+"Họ ôm nhau kìa…"
 
 Mặt cô ấy "rực" đỏ, từ má cháy đến tai.
 
@@ -2885,7 +3033,11 @@ Hắn nói xong quay về quầy bar, cầm khăn sạch im lặng lau sạch v�
 
 Nhưng cô ấy cảm thấy ánh mắt ma quỷ nhìn cô ấy dường như càng… đùa cợt hơn.
 
-Cô ấy hắng giọng cố che giấu vết đỏ trên má và sự lúng túng trong lòng. Cô ấy thẳng lưng, lại cầm khay rỗng nói với mình và Karl đang đứng dậy: "Ho, ho, chúng ta tiếp tục làm việc." Cô ấy ép mình phớt lờ ánh mắt mang ý cười nhẹ nhàng xung quanh, quay sang bàn khác cần dọn. Cô ấy tự nhủ mình là ông chủ, là quản lý nhân, không thể vì chuyện nhỏ này mà rối.
+Cô ấy hắng giọng cố che giấu vết đỏ trên má và sự lúng túng trong lòng. Cô ấy thẳng lưng, lại cầm khay rỗng nói với mình và Karl đang đứng dậy:
+
+"Ho, ho, chúng ta tiếp tục làm việc."
+
+Cô ấy ép mình phớt lờ ánh mắt mang ý cười nhẹ nhàng xung quanh, quay sang bàn khác cần dọn. Cô ấy tự nhủ mình là ông chủ, là quản lý nhân, không thể vì chuyện nhỏ này mà rối.
 
 Tuy nhiên thời gian tiếp theo cô ấy cảm thấy như ngồi trên đệm gai. Cô ấy luôn cảm thấy ma quỷ nhìn cô ấy ánh mắt khác đi. Họ không còn đơn thuần coi "ông chủ con người" mà quét qua lại giữa cô ấy và Karl, trong mắt tràn tình yêu thuần túy của sinh vật địa ngục với tin đồn và hỗn loạn.
 
@@ -2895,7 +3047,11 @@ Thậm chí Tây Nhĩ Phàm khi đi ngang cô ấy cũng dùng đôi cánh bư�
 
 Ngày tháng trôi trong vòng lặp bận rộn, lúng túng mà đầy đủ. Cô ấy và "bộ máy tạm bợ" hình thành sự ăn ý kỳ lạ. Cô ấy phụ trách tổng quát, dùng "Cảm tri chân thực" ngày càng chính xác phán đoán khách nào là "khách hàng chất lượng" tiềm năng, dùng nụ cười chân thành hơi vụng về của con người giành được thiện cảm ban đầu của họ.
 
-Tây Nhĩ Phàm phát huy tài "tạo bầu không khí" đến cực độ. Hắn không còn chỉ khiến khách "thoải mái" mà bắt đầu dệt những ảo cảnh nhỏ vô hại. Hắn có thể khiến ảnh ma đang uống "Thì Thầm Sông Vong Ưu" nhìn thấy bầu trời sao quê hương đã mất trong ly; khiến tiểu quỷ đang nhai "Khúc Ca Vịnh Điệu Hoàng Kim" từ vị giòn thơm nếm được chút hào hùng "trở thành anh hùng". Những "bất ngờ" nhỏ ấy khiến danh tiếng 【Huyết Hồng Thánh Bôi】 trong khách hàng tầng đáy Ảnh Hạng lên men với tốc độ kinh người.
+Tây Nhĩ Phàm phát huy tài "tạo bầu không khí" đến cực độ. Hắn không còn chỉ khiến khách "thoải mái" mà bắt đầu dệt những ảo cảnh nhỏ vô hại. Hắn có thể khiến ảnh ma đang uống "Thì Thầm Sông Vong Ưu" nhìn thấy bầu trời sao quê hương đã mất trong ly; khiến tiểu quỷ đang nhai
+
+"Khúc Ca Vịnh Điệu Hoàng Kim"
+
+Từ vị giòn thơm nếm được chút hào hùng "trở thành anh hùng". Những "bất ngờ" nhỏ ấy khiến danh tiếng 【Huyết Hồng Thánh Bôi】 trong khách hàng tầng đáy Ảnh Hạng lên men với tốc độ kinh người.
 
 Cách Lôi Cách vẫn là ngọn núi im lặng. Hắn chính xác pha từng ly rượu, cũng dùng ánh mắt uy hiếp đóng băng mọi xung đột tiềm ẩn. Có hắn, 【Huyết Hồng Thánh Bôi】 trở thành quán bar "an toàn" nhất khu dưới Ảnh Hạng, không ai sánh.
 
@@ -3012,9 +3168,13 @@ Tây Nhĩ Phàm lập tức thu dáng nhìn ngang nhìn dọc, ngoan ngoãn đ�
 
 Thế là "đội khám phá" của cô ấy chính thức xuất phát.
 
-họ xuyên qua đường chính Ảnh Hạng đủ màu sắc, lại tới cửa vào "Chợ U Ảnh" như miệng thú khổng lồ. Nhưng lần này họ không dừng ở khu bán lẻ tạp hóa ngoại vi, mà dưới sự dẫn dắt của Karl đi thẳng vào vùng sâu hơn, tối hơn của chợ.
+Họ xuyên qua đường chính Ảnh Hạng đủ màu sắc, lại tới cửa vào "Chợ U Ảnh" như miệng thú khổng lồ. Nhưng lần này họ không dừng ở khu bán lẻ tạp hóa ngoại vi, mà dưới sự dẫn dắt của Karl đi thẳng vào vùng sâu hơn, tối hơn của chợ.
 
-Càng vào sâu, các gian hàng quanh đó càng "chuyên nghiệp". Không còn quầy thức ăn bán xiên nhãn cầu hay thịt cảm xúc, thay vào là gian chuyên bán quặng lấp lánh ma pháp, cây sống co giật trong lọ thủy tinh, xương ma quỷ các loại toả năng lượng mạnh. "Khách hàng" ở đây cũng mạnh hơn và im lặng hơn, phần lớn mặc áo choàng, giao dịch nói ngắn gọn, không khí nặng nề hơn ngoại vi nhiều.
+Càng vào sâu, các gian hàng quanh đó càng "chuyên nghiệp". Không còn quầy thức ăn bán xiên nhãn cầu hay thịt cảm xúc, thay vào là gian chuyên bán quặng lấp lánh ma pháp, cây sống co giật trong lọ thủy tinh, xương ma quỷ các loại toả năng lượng mạnh.
+
+"Khách hàng"
+
+Ở đây cũng mạnh hơn và im lặng hơn, phần lớn mặc áo choàng, giao dịch nói ngắn gọn, không khí nặng nề hơn ngoại vi nhiều.
 
 Tò mò của Tây Nhĩ Phàm rõ ràng bị kìm nén, hắn sát theo bên cô ấy, đôi mắt tím tràn kính úy, không dám tùy tiện bình luận.
 
@@ -3092,7 +3252,7 @@ Hắn không nói thêm, chỉ lập tức quay người mở đường cho cô 
 
 Tây Nhĩ Phàm ngoái nhìn, trên mặt mang biểu lộ phức tạp tiếc nuối và sợ hãi, nhưng vẫn chặt chẽ theo chân cô ấy. Còn Cách Lôi Cách như bức tường di động im lặng, hoàn toàn ngăn cách họ với vùng đầy tham lam và rình mò phía sau.
 
-họ đổi hướng, đi về phía khu chợ khác tương đối vắng vẻ, các gian hàng càng cũ nát hơn. Tiếng ồn phía sau và hơi "bi thương" ngạt thở dần bị bỏ lại.
+Họ đổi hướng, đi về phía khu chợ khác tương đối vắng vẻ, các gian hàng càng cũ nát hơn. Tiếng ồn phía sau và hơi "bi thương" ngạt thở dần bị bỏ lại.
 
 Trong vùng mới này, cô ấy vừa tìm kiếm mơ hồ cơ hội có thể tồn tại, vừa hạ giọng hỏi Karl câu làm cô ấy bồn chồn:
 
@@ -3116,7 +3276,11 @@ Karl dừng lại, như đang nhớ lại cảnh xe tù, Hắn rất có thể x
 
 Lời mô tả lạnh lùng tàn khốc của Karl như mũi kim tẩm độc đâm vào màng nhĩ, khiến cô ấy không tự chủ run rẩy.
 
-Trong ấn tượng của cô ấy, những sinh vật thánh khiết đẹp đẽ đại diện thiện tuyệt đối ấy, ở đây lại chỉ là "nguyên liệu" có thể phân giải, "tàng phẩm" có thể vui chơi. Sự đảo lộn nhận thức khổng lồ khiến cô ấy cảm thấy phản vị và bất lực.
+Trong ấn tượng của cô ấy, những sinh vật thánh khiết đẹp đẽ đại diện thiện tuyệt đối ấy, ở đây lại chỉ là "nguyên liệu" có thể phân giải,
+
+"Tàng phẩm"
+
+Có thể vui chơi. Sự đảo lộn nhận thức khổng lồ khiến cô ấy cảm thấy phản vị và bất lực.
 
 Cô ấy im lặng bước tới, trong đầu không ngừng phát lại hình ảnh vừa cảm tri, mái tóc vàng óng ánh, quầng sáng thánh khiết, hai vết đứt cánh nhớp nhúa xấu xí.
 
@@ -3144,7 +3308,11 @@ Nói xong cô ấy không nhìn góc xáo động nữa, ép mình tập trung c
 
 ## Chương 12 – Tìm rượu đặc sắc
 
-Cô ấy tiếp tục dẫn đội nhỏ đi trong vùng cũ kỹ ngập mùi lưu huỳnh và gỉ sắt. Gian hàng nơi đây phần lớn vắng khách, chủ hàng trông uể oải, có kẻ trực tiếp nằm trên sạp ngủ say. họ đi qua gian bán "bù nhìn lời nguyền", những hình người bằng rơm và tóc, hốc mắt lấp lánh ánh đỏ oán độc; lại qua tiệm thuốc bán "cảm xúc cô đặc" đủ màu, kệ hàng đặt "một chai tuyệt vọng", "nửa lít ghen tuông" và thứ tương tự. Cô ấy vừa đi vừa cảnh giác quan sát tứ phía, hy vọng từ góc bị lãng quên này đào được "vàng" cho mình.
+Cô ấy tiếp tục dẫn đội nhỏ đi trong vùng cũ kỹ ngập mùi lưu huỳnh và gỉ sắt. Gian hàng nơi đây phần lớn vắng khách, chủ hàng trông uể oải, có kẻ trực tiếp nằm trên sạp ngủ say. Họ đi qua gian bán "bù nhìn lời nguyền", những hình người bằng rơm và tóc, hốc mắt lấp lánh ánh đỏ oán độc; lại qua tiệm thuốc bán "cảm xúc cô đặc" đủ màu, kệ hàng đặt "một chai tuyệt vọng",
+
+"Nửa lít ghen tuông"
+
+Và thứ tương tự. Cô ấy vừa đi vừa cảnh giác quan sát tứ phía, hy vọng từ góc bị lãng quên này đào được "vàng" cho mình.
 
 Cô ấy hỏi Karl bên cạnh các gian hàng ấy có thể trở thành nhà cung ứng của họ không.
 
@@ -3170,7 +3338,7 @@ Hắn không nói, chỉ gật đầu nặng nề, rồi cái mũi khổng lồ 
 
 Thế là đội khám phá từ "độc diễn" của một người biến thành "hòa tấu" của ba người. Cô ấy dùng "Cảm tri chân thực" dò năng lượng bất thường, Karl dùng kiến thức địa ngục phong phú sàng lọc mục tiêu, còn Cách Lôi Cách dùng khứu giác nguyên thuỷ sắc bén từ khuyển địa ngục truy tìm bất kỳ hơi nào liên quan "rượu chất lượng cao" hay "nguyên liệu quý hiếm" trong không khí.
 
-họ tiếp tục đi sâu vào góc chợ tối hơn, hẻo lánh hơn. Ánh sáng nơi đây càng u ám, mùi trong không khí càng phức tạp, pha trộn hương ngọt thối rữa, tanh kim loại và vị cay nồng của loại thực vật không tên.
+Họ tiếp tục đi sâu vào góc chợ tối hơn, hẻo lánh hơn. Ánh sáng nơi đây càng u ám, mùi trong không khí càng phức tạp, pha trộn hương ngọt thối rữa, tanh kim loại và vị cay nồng của loại thực vật không tên.
 
 Đúng lúc cô ấy gần bỏ cuộc, nghĩ hôm nay định mệnh trắng tay, Cách Lôi Cách đi đầu đột nhiên dừng bước. Thân hình đồ sộ chặn đường phía trước, mũi đối diện cửa ngõ hẻm tối tăm bị bóng lớn bao phủ, dùng sức đánh hơi nhiều lần, trong cổ họng phát âm "grừ grừ" trầm thấp giống thú dữ phát hiện con mồi.
 
@@ -3186,7 +3354,9 @@ Giọng hắn khàn khàn trầm thấp, mang chút hưng phấn không chắc c
 
 Cô ấy nghi hoặc nhìn Karl, muốn hắn giải thích.
 
-Biểu cảm Karl cũng mang chút kinh ngạc. Hắn nhìn cửa ngõ, giải thích cho cô ấy: "'Mùi mặt trời' là cách gọi chung của một số sinh vật địa ngục với vật phẩm có nguồn gốc 'nhân gian' hay 'thiên đàng', mang sinh lực và khí tức quang thuộc mạnh. Có thể là cây hướng dương vô tình rơi xuống địa ngục, cũng có thể là hòn đá dính nước thánh. Với địa ngục quen âm u hỗn loạn, khí tức này như mặt trời trong đêm tối, nổi bật, độc đáo."
+Biểu cảm Karl cũng mang chút kinh ngạc. Hắn nhìn cửa ngõ, giải thích cho cô ấy:
+
+"'Mùi mặt trời' là cách gọi chung của một số sinh vật địa ngục với vật phẩm có nguồn gốc 'nhân gian' hay 'thiên đàng', mang sinh lực và khí tức quang thuộc mạnh. Có thể là cây hướng dương vô tình rơi xuống địa ngục, cũng có thể là hòn đá dính nước thánh. Với địa ngục quen âm u hỗn loạn, khí tức này như mặt trời trong đêm tối, nổi bật, độc đáo."
 
 Nghe giải thích, cô ấy lập tức mở "Cảm tri chân thực", sức tinh thần theo hướng Cách Lôi Cách chỉ kéo dài, thăm dò bóng tối sâu thẳm. Lần này cô ấy không cảm thấy trở ngại nào. Cảm tri như hòn đá ném xuống nước, dễ dàng xuyên qua bóng tối cửa ngõ. Ở cuối hẻm cô ấy "thấy" một cánh cửa gỗ nhỏ cũ nát. Trước cửa đặt vài thùng gỗ, bên trong dường như chứa rễ cây gì đó. Mùi "mặt trời" Cách Lôi Cách nói chính là toả ra từ những rễ cây trông bình thường ấy, ấm áp, mang hương đất và ánh nắng, hoàn toàn không hợp với môi trường âm lạnh thối rữa xung quanh.
 
@@ -3272,7 +3442,11 @@ Cô ấy nghe lời ngồi xuống ghế gỗ, đồng thời ra hiệu mắt ch
 
 Karl hiểu ý, ngồi xuống ghế gỗ bên cạnh cô ấy, dáng vẻ thẳng thắn của hắn không hợp với xưởng cũ nát này. Hắn không mở miệng ngay nói chuyện làm ăn, mà dùng giọng bình tĩnh như đang tường thuật sự thật, chậm rãi nói:
 
-"Chúng tôi đến từ quán bar 【Huyết Hồng Thánh Bôi】. Chủ nhân tôi, cô gái con người này, là quản lý nhân mới của quán bar. Chúng tôi đang tìm loại rượu đặc sắc mới đủ khiến khách hàng mắt sáng. Còn "quả mặt trời" của ông chính là thứ chúng tôi cần."
+"Chúng tôi đến từ quán bar 【Huyết Hồng Thánh Bôi】. Chủ nhân tôi, cô gái con người này, là quản lý nhân mới của quán bar. Chúng tôi đang tìm loại rượu đặc sắc mới đủ khiến khách hàng mắt sáng. Còn "
+
+Quả mặt trời
+
+" của ông chính là thứ chúng tôi cần."
 
 Hắn không dùng từ "rễ cây" mà trực tiếp gọi là "quả mặt trời", vừa nêu rõ đặc tính vừa thể hiện đủ sự tôn trọng với đối phương.
 
@@ -3306,7 +3480,11 @@ Cô ấy chớp thời cơ, lập tức hỏi tiếp.
 
 Động tác gọt vỏ của chủ sạp lại dừng. Hắn không ngẩng đầu, chỉ phát ra âm thanh không rõ nghĩa, như thể bị ép từ sâu trong cổ họng.
 
-"Khách? Không… tôi chỉ là người thỉnh thoảng bán cho bà ấy chút "đặc sản quê"… đồng hương thôi."
+"Khách? Không… tôi chỉ là người thỉnh thoảng bán cho bà ấy chút "
+
+Đặc sản quê
+
+"… đồng hương thôi."
 
 Cô ấy giật mình vì từ "đồng hương", lập tức hỏi:
 
@@ -3348,9 +3526,15 @@ Hắn lại cúi đầu, đặt con dao và rễ cây xuống bàn, phát âm "c
 
 Hắn hỏi, giọng bình thản như vừa rồi chưa từng mất thần.
 
-"Lili Tư Á trước đây thích dùng nó pha một loại rượu tên "Bình Minh". Bà ấy nói đó là thứ duy nhất khiến bà nhớ mùi quê nhà."
+"Lili Tư Á trước đây thích dùng nó pha một loại rượu tên "
 
-"Bình Minh".
+Bình Minh
+
+". Bà ấy nói đó là thứ duy nhất khiến bà nhớ mùi quê nhà."
+
+"Bình Minh"
+
+.
 
 Cái tên như tia sáng đột nhiên soi sáng trí tưởng tượng của cô ấy về thực đơn rượu tương lai.
 
@@ -3370,15 +3554,27 @@ Hắn nhai nhỏ mấy từ ấy, giọng khàn mang cảm giác như đang th�
 
 Hắn dùng cằm chỉ đống vụn dăm thơm mùi thực vật dưới chân.
 
-"Tôi ở đây chỉ để có chỗ yên tĩnh gọt "rễ" của tôi thôi."
+"Tôi ở đây chỉ để có chỗ yên tĩnh gọt "
+
+Rễ" của tôi thôi."
 
 Hắn dừng, đưa ánh mắt lại nhìn cô ấy, trong bóng tối đôi mắt dường như sáng lên thoáng chốc.
 
-"Nhưng… bartender có "quan tâm"… cái này thì có chút thú vị. Sau Lili Tư Á đã rất lâu… rất lâu không có ai thực sự hiểu giá trị những "rễ" này."
+"Nhưng… bartender có "
+
+Quan tâm
+
+"… cái này thì có chút thú vị. Sau Lili Tư Á đã rất lâu… rất lâu không có ai thực sự hiểu giá trị những "
+
+Rễ" này."
 
 Hắn cắm con dao nhỏ lại thắt lưng, thân hơi nghiêng về phía trước, bóng mũ trùm càng phủ sâu lên mặt.
 
-"Tôi có thể bán "quả mặt trời" cho cô. Và vì cô là hậu duệ Lili Tư Á, giá có thể rẻ."
+"Tôi có thể bán "
+
+Quả mặt trời
+
+" cho cô. Và vì cô là hậu duệ Lili Tư Á, giá có thể rẻ."
 
 Trong lòng cô ấy vui, nhưng hắn chuyển giọng.
 
@@ -3386,7 +3582,11 @@ Trong lòng cô ấy vui, nhưng hắn chuyển giọng.
 
 Hắn chậm rãi giơ một ngón tay khô gầy.
 
-"Tôi không nhận hồn tệ của cô. Đợi các cô dùng nó pha được rượu… tôi cần chén đầu tiên. Tôi muốn tự nếm xem "Bình Minh" bây giờ khác với vị trong ký ức tôi thế nào."
+"Tôi không nhận hồn tệ của cô. Đợi các cô dùng nó pha được rượu… tôi cần chén đầu tiên. Tôi muốn tự nếm xem "
+
+Bình Minh
+
+" bây giờ khác với vị trong ký ức tôi thế nào."
 
 "Được, và cũng mời ông xem quán bar hiện tại. Không biết ông có thể dạy trước công thức Bình Minh không? Thật ra… tổ tiên tôi đi mấy trăm năm rồi, quán bar cũng trải qua không ít."
 
@@ -3400,7 +3600,9 @@ Hắn im lặng rất lâu, trong xưởng chỉ còn tiếng bấc đèn cháy 
 
 Hắn khàn khàn mở miệng, giọng như ép từ hộp gió cổ:
 
-""Bình Minh" của Lili Tư Á không có công thức."
+""Bình Minh
+
+" của Lili Tư Á không có công thức."
 
 Lòng cô ấy chùng xuống, tưởng hắn sẽ từ chối.
 
@@ -3412,13 +3614,23 @@ Hắn chậm rãi bổ sung, ngón tay khô gầy vẽ vô thức trên mặt b�
 
 Hắn dừng, như đang nhớ lại cảnh xa xưa.
 
-"… Nghiền nát nó, hắn nói nhỏ, như với cô ấy, lại như với chính mình, đến khi cô ngửi thấy mùi tanh ngọt của đất khi tia nắng đầu tiên xuyên sương mỏng buổi sớm… rồi dùng tàn dư linh hồn tinh khiết nhất ngâm, không nhiều không ít, vừa đủ ngập những mảnh "mặt trời"…"
+"… Nghiền nát nó, hắn nói nhỏ, như với cô ấy, lại như với chính mình, đến khi cô ngửi thấy mùi tanh ngọt của đất khi tia nắng đầu tiên xuyên sương mỏng buổi sớm… rồi dùng tàn dư linh hồn tinh khiết nhất ngâm, không nhiều không ít, vừa đủ ngập những mảnh "
 
-"Tiếp đó là chờ. Chờ những mảnh ấy "nhả" hết "ký ức". Cô sẽ nghe thấy âm thanh, không phải tai nghe mà là máu cô nghe. Lúc đầu thì thầm, rồi hợp xướng… khi âm hợp xướng đạt đỉnh, sắp vỡ tan trong tích tắc…"
+Mặt trời"…"
+
+"Tiếp đó là chờ. Chờ những mảnh ấy "
+
+Nhả" hết "ký ức
+
+". Cô sẽ nghe thấy âm thanh, không phải tai nghe mà là máu cô nghe. Lúc đầu thì thầm, rồi hợp xướng… khi âm hợp xướng đạt đỉnh, sắp vỡ tan trong tích tắc…"
 
 Hắn ngẩng đầu, đôi mắt đục xuyên bóng mũ trùm nhìn thẳng cô ấy.
 
-"… Thêm một giọt "tiếc nuối". Một giọt là đủ. Có thể của cô, cũng có thể của khách. Nhưng phải là… giọt chân thành nhất."
+"… Thêm một giọt "
+
+Tiếc nuối
+
+". Một giọt là đủ. Có thể của cô, cũng có thể của khách. Nhưng phải là… giọt chân thành nhất."
 
 Hắn nói xong. Không có liều lượng cụ thể, không có thời gian chính xác, chỉ một chuỗi mô tả đầy cảm quan và cảm xúc. Đây không phải công thức mà là bài thơ khó hiểu, hay câu đố cần dùng tâm giải.
 
@@ -3428,9 +3640,17 @@ Khi cô ấy còn đang suy ngẫm lời ấy, hắn đã đứng dậy, chập 
 
 Hắn ngồi lại, trở về dáng vẻ cách biệt thế gian, như thể đoạn mô tả đầy chất thơ vừa rồi không liên quan gì tới hắn.
 
-"Đi đi. Đợi "Bình Minh" của các cô chuẩn bị xong, tôi sẽ tới lấy."
+"Đi đi. Đợi "
 
-"Nhất định tôi không để ông thất vọng, thưa ông. Tôi cũng rất muốn biết rượu khiến người nhớ "quê nhà" là gì, dù sao đó cũng là quê tôi."
+Bình Minh
+
+" của các cô chuẩn bị xong, tôi sẽ tới lấy."
+
+"Nhất định tôi không để ông thất vọng, thưa ông. Tôi cũng rất muốn biết rượu khiến người nhớ "
+
+Quê nhà
+
+" là gì, dù sao đó cũng là quê tôi."
 
 Cô ấy nói chân thành.
 
@@ -3450,7 +3670,9 @@ Lời cảm ơn của cô ấy vang nhẹ trong xưởng tối, nhưng không nh
 
 Không khí trong xưởng lại tĩnh lặng, chỉ còn ngọn lửa đèn góc phòng không mệt mỏi nhảy múa. Trên bàn chiếc túi vải nặng toả hương thực vật ấm áp mạnh mẽ như mặt trời, im lặng nhắc nhở thu hoạch chuyến này và thử thách khó hiểu như thơ sắp tới.
 
-Cô ấy thấy Karl không động, gọi hắn: "Karl, chủ sạp đã đồng ý rồi, chúng ta đi thôi!"
+Cô ấy thấy Karl không động, gọi hắn:
+
+"Karl, chủ sạp đã đồng ý rồi, chúng ta đi thôi!"
 
 "… Vâng."
 
@@ -3460,9 +3682,13 @@ Sau đó hắn bước tới cửa, mở cánh cửa gỗ kẽo kẹt cho cô �
 
 Cô ấy bước ra trước, Karl theo sau và nhẹ đóng cửa. Khoảnh khắc cánh cửa khép lại như ngăn cách hai thế giới.
 
-họ lại đứng trong con hẻm hẻo lánh tối tăm. Tiếng ồn từ trục chính phía xa vọng tới, càng làm nơi đây thêm tĩnh lặng.
+Họ lại đứng trong con hẻm hẻo lánh tối tăm. Tiếng ồn từ trục chính phía xa vọng tới, càng làm nơi đây thêm tĩnh lặng.
 
-"Thưa cô, giọng Karl vang bên tai cô ấy, phá vỡ im lặng. Hắn ôm túi "quả mặt trời", mắt nhìn thẳng phía trước như đang cảnh giới cho cô ấy, nhưng lời lại tiếp nối suy nghĩ của cô ấy trong phòng, Về kênh cung ứng rượu cơ bản, cô đã có ý tưởng sơ bộ chưa?"
+"Thưa cô, giọng Karl vang bên tai cô ấy, phá vỡ im lặng. Hắn ôm túi "
+
+Quả mặt trời
+
+", mắt nhìn thẳng phía trước như đang cảnh giới cho cô ấy, nhưng lời lại tiếp nối suy nghĩ của cô ấy trong phòng, Về kênh cung ứng rượu cơ bản, cô đã có ý tưởng sơ bộ chưa?"
 
 Hắn không chỉ thi hành mệnh lệnh mà còn nhớ nỗi bận tâm của cô ấy, chủ động mở chủ đề bước tiếp.
 
@@ -3484,7 +3710,11 @@ Cách Lôi Cách không nói, chỉ hướng phía họ gật đầu nặng nề
 
 Cô ấy đi thẳng vào vấn đề.
 
-"Chúng ta đã tìm được nguyên liệu rượu đặc sắc nhưng vấn đề cung ứng rượu cơ bản chưa giải quyết. Ý tưởng trước của tôi là vì "Xưởng Nấu Rượu Hài Cốt" không hợp tác nữa, chúng ta có thể tìm đối thủ cạnh tranh của họ."
+"Chúng ta đã tìm được nguyên liệu rượu đặc sắc nhưng vấn đề cung ứng rượu cơ bản chưa giải quyết. Ý tưởng trước của tôi là vì "
+
+Xưởng Nấu Rượu Hài Cốt
+
+" không hợp tác nữa, chúng ta có thể tìm đối thủ cạnh tranh của họ."
 
 Cô ấy ném vấn đề cho mọi người có mặt, ánh mắt lần lượt quét qua họ, mong tập trung trí tuệ.
 
@@ -3496,7 +3726,11 @@ Người mở miệng trước là Tây Nhĩ Phàm. Đôi mắt tím đẹp đ�
 
 "Đối thủ cạnh tranh… ý tưởng này thú vị đấy ông chủ."
 
-Hắn nói nhẹ nhàng, giọng mang chút hứng thú xem nhiệt não, "Xưởng Nấu Rượu Hài Cốt" bọn xương cũ ấy nổi tiếng cứng đầu cứng cổ trong giới nấu rượu địa ngục, ai dám đối đầu chắc chẳng phải tay vừa. Tôi nghe vài lời đồn… bên kia Ảnh Hạng, gần "Lò Rên Rỉ" có chỗ tên "Sôi Sục Huyết Đạm". Nghe nói chủ của họ là viêm ma tính nóng, rượu cũng nóng như dung nham. Rượu của họ hoàn toàn trái ngược phong cách âm lạnh của Hài Cốt, coi như tử địch. Nhưng… rượu của họ không phải ai cũng uống được.
+Hắn nói nhẹ nhàng, giọng mang chút hứng thú xem nhiệt não,
+
+"Xưởng Nấu Rượu Hài Cốt"
+
+Bọn xương cũ ấy nổi tiếng cứng đầu cứng cổ trong giới nấu rượu địa ngục, ai dám đối đầu chắc chẳng phải tay vừa. Tôi nghe vài lời đồn… bên kia Ảnh Hạng, gần "Lò Rên Rỉ" có chỗ tên "Sôi Sục Huyết Đạm". Nghe nói chủ của họ là viêm ma tính nóng, rượu cũng nóng như dung nham. Rượu của họ hoàn toàn trái ngược phong cách âm lạnh của Hài Cốt, coi như tử địch. Nhưng… rượu của họ không phải ai cũng uống được.
 
 Tây Nhĩ Phàm nói xong nhìn Karl, như chờ ý kiến chuyên môn hơn.
 
@@ -3510,21 +3744,37 @@ Dù không cung cấp manh mối trực tiếp, hắn dùng bản năng khuyển
 
 Cuối cùng mọi ánh mắt đổ dồn lên Karl.
 
-"Thưa cô, giọng Karl vẫn bình thản, chặt chẽ như báo cáo chi tiết, Thời Lili Tư Á kinh doanh quán bar về cuối, "Xưởng Nấu Rượu Hài Cốt" thật sự là nhà cung ứng duy nhất và ổn định nhất. Chất lượng của họ dù trăm năm như một nhưng vì thế thiếu biến đổi, không phù hợp quan niệm kinh doanh cuối đời Lili Tư Á."
+"Thưa cô, giọng Karl vẫn bình thản, chặt chẽ như báo cáo chi tiết, Thời Lili Tư Á kinh doanh quán bar về cuối, "
+
+Xưởng Nấu Rượu Hài Cốt
+
+" thật sự là nhà cung ứng duy nhất và ổn định nhất. Chất lượng của họ dù trăm năm như một nhưng vì thế thiếu biến đổi, không phù hợp quan niệm kinh doanh cuối đời Lili Tư Á."
 
 "Còn nhà cung ứng dự phòng…"
 
-Hắn dừng, như đang tra cứu kho ký ức lớn, Lili Tư Á từng thử hợp tác với một số xưởng nấu rượu nhỏ kiểu gia tộc, nhưng sản lượng và chất lượng đều không ổn định, không đáp ứng nhu cầu 【Huyết Hồng Thánh Bôi】 thời toàn thịnh. "Sôi Sục Huyết Đạm" Tây Nhĩ Phàm nhắc tôi có nghe. Họ là thế lực mới nổi khoảng năm mươi năm, nổi tiếng rượu mạnh và hương vị nguyên tố hỏa độc đáo, khách chủ yếu là quân đoàn địa ngục và quý tộc ma quỷ ưa kích thích. Uy tín họ khá, nhưng giá… thường cao hơn Xưởng Hài Cốt hơn ba phần mười.
+Hắn dừng, như đang tra cứu kho ký ức lớn, Lili Tư Á từng thử hợp tác với một số xưởng nấu rượu nhỏ kiểu gia tộc, nhưng sản lượng và chất lượng đều không ổn định, không đáp ứng nhu cầu 【Huyết Hồng Thánh Bôi】 thời toàn thịnh.
+
+"Sôi Sục Huyết Đạm"
+
+Tây Nhĩ Phàm nhắc tôi có nghe. Họ là thế lực mới nổi khoảng năm mươi năm, nổi tiếng rượu mạnh và hương vị nguyên tố hỏa độc đáo, khách chủ yếu là quân đoàn địa ngục và quý tộc ma quỷ ưa kích thích. Uy tín họ khá, nhưng giá… thường cao hơn Xưởng Hài Cốt hơn ba phần mười.
 
 Ba nhân viên từ ba góc độ khác nhau cung cấp tình báo và kiến giải, trải bản đồ thương nghiệp rõ hơn trước mặt cô ấy.
 
 Cô ấy nghe xong phân tích của ba người, trong lòng nhanh chóng cân nhắc.
 
-"Karl nói đúng, cô ấy nhìn hắn, giọng khẳng định, Giá "Sôi Sục Huyết Đạm" quá cao với tình hình hiện tại của chúng ta, hơn nữa nhóm khách của họ khác chúng ta, hợp tác bừa rủi ro lớn. Chúng ta cần rượu nền ổn định, lượng lớn, giá hợp lý, không phải thêm một loại rượu đặc sắc nữa."
+"Karl nói đúng, cô ấy nhìn hắn, giọng khẳng định, Giá "
+
+Sôi Sục Huyết Đạm
+
+" quá cao với tình hình hiện tại của chúng ta, hơn nữa nhóm khách của họ khác chúng ta, hợp tác bừa rủi ro lớn. Chúng ta cần rượu nền ổn định, lượng lớn, giá hợp lý, không phải thêm một loại rượu đặc sắc nữa."
 
 Cô ấy quay sang Tây Nhĩ Phàm, cười an ủi.
 
-"Nhưng Tây Nhĩ Phàm, tình báo của cậu rất hữu ích. "Sôi Sục Huyết Đạm" có thể làm mục tiêu tương lai. Đợi 【Huyết Hồng Thánh Bôi】 đứng vững lại, cần mở rộng thị trường cao cấp, chúng ta tới thăm cũng chưa muộn."
+"Nhưng Tây Nhĩ Phàm, tình báo của cậu rất hữu ích. "
+
+Sôi Sục Huyết Đạm
+
+" có thể làm mục tiêu tương lai. Đợi 【Huyết Hồng Thánh Bôi】 đứng vững lại, cần mở rộng thị trường cao cấp, chúng ta tới thăm cũng chưa muộn."
 
 Cuối cùng ánh mắt cô ấy quay lại Karl, ra quyết định cuối.
 
@@ -3534,7 +3784,15 @@ Quyết sách của cô ấy rõ ràng, logic chặt chẽ, vừa tính đến k
 
 Karl nhìn cô ấy, trong đôi mắt sâu thoáng chút khen ngợi khó nhận ra.
 
-"Vâng, thưa cô. Trong hồ sơ của Lili Tư Á có ghi chép. Phần lớn xưởng nhỏ tập trung ở "Khu Ống Rỉ Sắt", đó là vùng công nghiệp ven Ảnh Hạng, môi trường khắc nghiệt nhưng thuê và nguyên liệu tương đối rẻ. Tôi nhớ trong đó có vài nhà như "Anh Em Đầm Lầy Chua" và "Nấu Vỡ Răng", dù quy mô không lớn nhưng danh tiếng khá."
+"Vâng, thưa cô. Trong hồ sơ của Lili Tư Á có ghi chép. Phần lớn xưởng nhỏ tập trung ở "
+
+Khu Ống Rỉ Sắt
+
+", đó là vùng công nghiệp ven Ảnh Hạng, môi trường khắc nghiệt nhưng thuê và nguyên liệu tương đối rẻ. Tôi nhớ trong đó có vài nhà như "
+
+Anh Em Đầm Lầy Chua" và "Nấu Vỡ Răng
+
+", dù quy mô không lớn nhưng danh tiếng khá."
 
 Hắn vừa nói vừa hơi xoay người chỉ hướng, đó là ngã rẽ trái với trục chính chợ, dẫn tới vùng sâu hơn tối hơn.
 
@@ -3660,9 +3918,19 @@ Cô ấy ngồi bàn, trải giấy da, trong đầu lặp đi lặp lại lời
 
 "… Dùng máu cô để nghe… khi âm hợp xướng đạt đỉnh, sắp vỡ tan trong tích tắc…"
 
-"… Thêm một giọt "tiếc nuối"…"
+"… Thêm một giọt "
 
-Ban đầu cô ấy cố dùng tư duy logic hiện đại để phân tích. "Nghiền nát", giã nhuyễn hay xay bột? "Ngâm", bao lâu? Một ngày? Một tuần? "Một giọt tiếc nuối", ẩn dụ gì? Chất phụ gia vị đắng nào đó? Càng cố dùng logic gò ép, cô ấy càng thấy nó trơn trượt, không manh mối. Sự mệt mỏi quen thuộc trước bài toán chưa biết như lại ập tới.
+Tiếc nuối"…"
+
+Ban đầu cô ấy cố dùng tư duy logic hiện đại để phân tích.
+
+"Nghiền nát"
+
+, giã nhuyễn hay xay bột? "Ngâm", bao lâu? Một ngày? Một tuần?
+
+"Một giọt tiếc nuối"
+
+, ẩn dụ gì? Chất phụ gia vị đắng nào đó? Càng cố dùng logic gò ép, cô ấy càng thấy nó trơn trượt, không manh mối. Sự mệt mỏi quen thuộc trước bài toán chưa biết như lại ập tới.
 
 Cô ấy hít sâu, ép mình dừng phân tích vô ích. Cô ấy đổi cách, không nghĩ "làm sao" mà cảm nhận "là gì".
 
@@ -3702,7 +3970,9 @@ Cô ấy và Cách Lôi Cách sánh bước trên đường tới Chợ U Ảnh.
 
 Suốt đường không ai nói. Cho tới khi họ lại bước vào vùng ồn ào Chợ U Ảnh, nhìn gian hàng lấp lánh và ma quỷ ồn ào xung quanh, trong đầu cô ấy lại hiện bài toán "tiếc nuối". Cô ấy như bị ma ám quay đầu nhìn Cách Lôi Cách bên cạnh.
 
-"Cách Lôi Cách, cô ấy hỏi nhẹ, Theo cậu, "tiếc nuối" là gì?"
+"Cách Lôi Cách, cô ấy hỏi nhẹ, Theo cậu, "
+
+Tiếc nuối" là gì?"
 
 Câu hỏi khiến người bảo vệ im lặng ấy dừng chân. Hắn dừng lại, đôi mắt thường chỉ dùng khóa chặt mối đe dọa lần đầu lộ vẻ bối rối và suy nghĩ. Hắn không nhìn cô ấy mà nhìn bầu trời đục Chợ U Ảnh, như đang tìm đáp án chưa từng nghĩ tới. Tiếng rao, tiếng gào xung quanh như đều xa rời. Hồi lâu hắn mới từ sâu cổ họng ép ra vài chữ, giọng trầm khàn như sắt rỉ cọ sát:
 
@@ -3736,7 +4006,11 @@ Nói xong hắn như đã kiệt sức, thở ra nặng nề. Hơi thở ấy tr
 
 Ở Khu Ống Rỉ Sắt, sâu trong con hẻm kim loại toả mùi chua cay.
 
-Ánh sáng nơi đây tối hơn Chợ U Ảnh, ống rỉ khổng lồ như rắn khổng lồ cuộn giữa các toà nhà, thỉnh thoảng nhỏ chất lỏng sệt không tên từ chỗ nối xuống đất, đọng vũng óng ánh dầu. Bóng Karl như bóng hoà vào bóng tối, im lặng đứng đối diện cánh cửa sắt bẩn. Trên cửa sơn thô hai chữ xiêu vẹo: "Anh Em Đầm Lầy Chua". Hắn không tới gần, chỉ đứng trong bóng tối, dùng đôi mắt sâu lạnh lùng quan sát. Hắn thấy hai ác ma gù lưng da xanh như đầm lầy đang vất vả đổ thùng chất lỏng thối rữa vào bình lên men rỉ sét khổng lồ. Một ác ma vô ý trượt chân, vài giọt văng ra đất. Hắn hoảng hốt nhìn quanh rồi nhanh dùng mảnh vải vụn bên chân quệt chất lỏng trên đất, giả vờ chưa có gì.
+Ánh sáng nơi đây tối hơn Chợ U Ảnh, ống rỉ khổng lồ như rắn khổng lồ cuộn giữa các toà nhà, thỉnh thoảng nhỏ chất lỏng sệt không tên từ chỗ nối xuống đất, đọng vũng óng ánh dầu. Bóng Karl như bóng hoà vào bóng tối, im lặng đứng đối diện cánh cửa sắt bẩn. Trên cửa sơn thô hai chữ xiêu vẹo:
+
+"Anh Em Đầm Lầy Chua"
+
+. Hắn không tới gần, chỉ đứng trong bóng tối, dùng đôi mắt sâu lạnh lùng quan sát. Hắn thấy hai ác ma gù lưng da xanh như đầm lầy đang vất vả đổ thùng chất lỏng thối rữa vào bình lên men rỉ sét khổng lồ. Một ác ma vô ý trượt chân, vài giọt văng ra đất. Hắn hoảng hốt nhìn quanh rồi nhanh dùng mảnh vải vụn bên chân quệt chất lỏng trên đất, giả vờ chưa có gì.
 
 Ánh mắt Karl không chút dao động. Hắn chỉ im lặng xem, như giám khảo khắt khe nhất, ghi từng chi tiết, tình trạng vệ sinh, tác phong nhân viên, thiếu an ninh… đánh giá giá trị xưởng này làm "nhà cung ứng" và… điểm yếu của nó.
 
@@ -3762,7 +4036,11 @@ Nói xong hắn thu ánh mắt, trở về vẻ im lặng ít nói. Cô ấy đ�
 
 "Cách Lôi Cách, về quá khứ của cậu tôi rất tiếc. Dù nói vậy tôi cũng không có sức thuyết phục, nghe như tôi đang tâm lý pua cậu, nhưng miễn cậu còn làm ở quán bar chúng ta một ngày, ít nhất tôi và Karl mãi mãi là đồng đội của cậu."
 
-Giọng cô ấy rõ ràng, từng chữ đập chính xác lên trái tim Cách Lôi Cách vốn lạnh vì hồi tưởng. Cô ấy không dùng sự đồng cảm rẻ tiền để tô vẽ nỗi đau của hắn, mà thẳng thắn thừa nhận sự nghèo nàn của lời mình, thậm chí tự chế nhạo khả năng "tâm lý PUA". Sự thẳng thắn khác thường ấy làm cho lời hứa cuối, "chúng tôi mãi mãi là đồng đội của cậu", mang sức nặng không thể bác bỏ, nặng như núi.
+Giọng cô ấy rõ ràng, từng chữ đập chính xác lên trái tim Cách Lôi Cách vốn lạnh vì hồi tưởng. Cô ấy không dùng sự đồng cảm rẻ tiền để tô vẽ nỗi đau của hắn, mà thẳng thắn thừa nhận sự nghèo nàn của lời mình, thậm chí tự chế nhạo khả năng "tâm lý PUA". Sự thẳng thắn khác thường ấy làm cho lời hứa cuối,
+
+"Chúng tôi mãi mãi là đồng đội của cậu"
+
+, mang sức nặng không thể bác bỏ, nặng như núi.
 
 Thân hình đá tảng đang tiến của Cách Lôi Cách lần thứ hai vì cô ấy mà dừng. Lần này hắn không nghiêng đầu, không tránh, mà quay mạnh, dùng đôi mắt cháy minh hỏa thuộc địa khuyển chăm chăm, bất động nhìn cô ấy. Đó là ánh nhìn cô ấy chưa từng thấy, không còn xét nét, bối rối hay nỗi buồn ngắn vừa rồi. Đó là ánh nhìn tìm được điểm cuối sau vô vàn giết chóc và phản bội. Ánh nhìn sau hành trình dài cuối cùng đánh hơi mùi "tổ ấm". Trong ồn ào vô số ma quỷ Chợ U Ảnh, giữa hai người hình thành lĩnh địa tĩnh lặng tuyệt đối, bất khả xâm phạm. Rồi hắn động.
 
@@ -3786,19 +4064,27 @@ Nói xong hắn chống gối từ từ đứng dậy, trở lại dáng im lặ
 
 Cách Lôi Cách nghe lời, sóng cuối trong đôi mắt cháy minh hỏa lắng xuống, hoá thành thứ sâu hơn, vững hơn. Hắn không nói, chỉ với động tác cực kỳ vững vàng đứng dậy từ tư thế quỳ. Rồi hắn làm động tác khác hẳn trước, không lùi ra sau cô ấy mà tiến nửa bước, đứng phía trước bên cô ấy. Thân hình cao lớn như tường thành di động, vừa vặn ngăn cô ấy với dòng ma quỷ cuồn cuộn trục chính chợ, chặn phần lớn xô đẩy và dò xét.
 
-họ lại lên đường nhưng cảm giác đã hoàn toàn khác. Nếu trước Cách Lôi Cách là rìu tuốt trần sẵn sàng địch thì giờ hắn là khiên nặng khắc phù văn bảo vệ hoàn toàn che phía sau cô ấy. Hắn không chỉ cảnh giác xung quanh mà dùng sự tồn tại của mình mở đường an toàn tuyệt đối cho cô ấy. Ma quỷ qua lại cảm nhận hơi "người bảo vệ" không che giấu từ hắn đều tránh, ánh mắt mang cả chút kính úy với cô ấy, kẻ được bảo vệ.
+Họ lại lên đường nhưng cảm giác đã hoàn toàn khác. Nếu trước Cách Lôi Cách là rìu tuốt trần sẵn sàng địch thì giờ hắn là khiên nặng khắc phù văn bảo vệ hoàn toàn che phía sau cô ấy. Hắn không chỉ cảnh giác xung quanh mà dùng sự tồn tại của mình mở đường an toàn tuyệt đối cho cô ấy. Ma quỷ qua lại cảm nhận hơi "người bảo vệ" không che giấu từ hắn đều tránh, ánh mắt mang cả chút kính úy với cô ấy, kẻ được bảo vệ.
 
 Cô ấy đi trong "vùng chân không" yên tĩnh hắn mở cho cô ấy, ồn ào hỗn loạn xung quanh như âm thanh nền xa xôi. Cô ấy thậm chí ngửi rõ mùi phức tạp pha trộn thơm cháy và thối rữa từ các gian hàng, thấy hàng hoá kỳ quái lấp lánh ánh u minh, mà không lo bị xô hay quấy rầy.
 
 Chẳng mấy chốc họ tới gian "Mỡ Béo" quen thuộc do ma quỷ béo núi phình to kinh doanh. Cô ấy không vội đặt hàng mà quay sang người bảo vệ bên cạnh.
 
-"Cách Lôi Cách, cô ấy hạ giọng, dùng giọng tin tưởng bàn bạc ra lệnh, Dùng mũi ngửi xem thịt gian này chất lượng thế nào? Có phù hợp "tộc quần" chúng ta không?"
+"Cách Lôi Cách, cô ấy hạ giọng, dùng giọng tin tưởng bàn bạc ra lệnh, Dùng mũi ngửi xem thịt gian này chất lượng thế nào? Có phù hợp "
+
+Tộc quần
+
+" chúng ta không?"
 
 Nghe từ "tộc quần" Cách Lôi Cách rõ ràng giật mình. Đôi mắt cháy minh hỏa thoáng vẻ trịnh trọng, rồi gật đầu nặng nề. Hắn không nói, chỉ bước tới gần gian treo đủ loại thịt không rõ. Hắn không cúi nhìn, chỉ đứng đó cánh mũi khẽ co giật, như đang phân biệt vô số phân tử phức tạp trong không khí. Lông mày từ từ nhíu, thận trọng của kẻ săn mồi đỉnh cao khi đánh giá con mồi có đáng ăn. Vài giây sau hắn lùi về bên cô ấy, với cô ấy lắc đầu cực nhẹ, cực khẽ. Ý rõ ràng: không tươi, năng lượng không đủ, không xứng làm thức ăn "tộc quần".
 
 Lòng cô ấy rõ nhưng tình thế hiện tại là rượu. Cô ấy quyết định xử lý mâu thuẫn chính trước.
 
-"Ông chủ, cô ấy quay sang ma quỷ béo núi, "Nấu Đầm Lầy Chua" và "Nấm Hét Chiên", tôi cần lượng đủ hai tuần."
+"Ông chủ, cô ấy quay sang ma quỷ béo núi, "
+
+Nấu Đầm Lầy Chua" và "Nấm Hét Chiên
+
+", tôi cần lượng đủ hai tuần."
 
 Đôi mắt nhỏ thụt sâu trong mỡ lười nhác ngẩng lên, lỗ mũi khổng lồ phun hai luồng hơi. Hắn dùng ngón tay thô chậm rãi gảy bàn tính dính mỡ trước mặt.
 
@@ -3832,7 +4118,9 @@ Cô ấy chỉ giơ tay, động tác cực nhẹ hầu như không nhận ra, r
 
 Sự bình tĩnh của cô ấy tương phản rõ với sự ngang ngược của chủ sạp và cơn giận của Cách Lôi Cách, khiến không khí đông lại giây lát. Ma quỷ béo có vẻ không ngờ cô ấy phản ứng thế, nụ cười chế nhạo trên mặt cứng lại, đôi mắt nhỏ thoáng bất ngờ.
 
-Hắn lại gảy bàn tính dính mỡ, lẩm bẩm: "Tám trăm… vậy một trăm phần rượu, một trăm phần đồ ăn."
+Hắn lại gảy bàn tính dính mỡ, lẩm bẩm:
+
+"Tám trăm… vậy một trăm phần rượu, một trăm phần đồ ăn."
 
 Hắn vừa nói vừa miễn cưỡng từ đống hàng chất núi phía sau chậm chạp bắt đầu đếm. Động tác vẫn thô nhưng ít nhất đã dừng tiếng cười khó chịu.
 
@@ -3840,7 +4128,11 @@ Cô ấy đếm đủ tám trăm hồn tệ từ túi đặt lên gian. Cách L�
 
 Trên đường về quán bar, Cách Lôi Cách vác nhiều đồ im lặng theo sau. Hắn đi vững nhưng cô ấy cảm thấy cơn giận đè nén sẵn sàng bùng như núi lửa ngủ. Cô ấy chậm bước, đi song song hắn, mở miệng bằng giọng bình tĩnh lý trí:
 
-"Đừng căng vậy, Cách Lôi Cách. Hiện tại đúng là chúng ta thiếu tiền, không cần gươm giáo. Gây căng với họ chẳng có lợi. Ít nhất bây giờ chúng ta còn phải mua đồ của hắn. Quan trọng hơn, chúng ta không thể làm hỏng danh tiếng ở chợ, nếu đồn ra chúng ta là "đầu gai" dùng bạo lực đe doạ, sau này chủ hàng khác có thể không muốn bán cho chúng ta nữa."
+"Đừng căng vậy, Cách Lôi Cách. Hiện tại đúng là chúng ta thiếu tiền, không cần gươm giáo. Gây căng với họ chẳng có lợi. Ít nhất bây giờ chúng ta còn phải mua đồ của hắn. Quan trọng hơn, chúng ta không thể làm hỏng danh tiếng ở chợ, nếu đồn ra chúng ta là "
+
+Đầu gai
+
+" dùng bạo lực đe doạ, sau này chủ hàng khác có thể không muốn bán cho chúng ta nữa."
 
 Cô ấy không trách sự bốc đồng của hắn, chỉ tường thuật sự thật, giảng chiến lược thuộc "thủ lĩnh" hắn chưa nghĩ tới. Lời cô ấy dứt, Cách Lôi Cách rơi vào im lặng lâu. Hắn không phát âm nữa, chỉ im lặng đi, nhưng cô ấy rõ ràng cảm thấy cơn giận bạo phát muốn xé tan mọi thứ đang từng chút dịu đi. Tư duy logic trực tiếp kiểu thú hoang đang cố hiểu ý sâu hơn trong lời cô ấy, nhẫn nhục không phải yếu mà để săn mồi tốt hơn sau này.
 
@@ -3858,7 +4150,9 @@ Mino Tau vác nhiều đồ dừng bước. Cơ bắp căng vì giận từ từ
 
 Khi họ về 【Huyết Hồng Thánh Bôi】, Tây Nhĩ Phàm đang buồn chán vẽ vòng tròn bằng một ngón trên quầy bar, vài con bướm ảo huyễn lượn quanh đầu ngón. Thấy họ vác đủ thứ về, hắn hứng lên, nhảy xuống ghế cao.
 
-"Đi thôi, chúng ta về tiếp tục kinh doanh.  Cô ấy vừa nói vừa đưa ánh mắt tới Tây Nhĩ Phàm, Thuận tiện Tây Nhĩ Phàm, tôi muốn nghe ý kiến của cậu về "một giọt tiếc nuối"."
+"Đi thôi, chúng ta về tiếp tục kinh doanh.  Cô ấy vừa nói vừa đưa ánh mắt tới Tây Nhĩ Phàm, Thuận tiện Tây Nhĩ Phàm, tôi muốn nghe ý kiến của cậu về "
+
+Một giọt tiếc nuối"."
 
 "Tiếc nuối?"
 
@@ -3868,7 +4162,11 @@ Cô ấy theo ánh mắt hắn mới thấy Cách Lôi Cách dù đã thu giận
 
 Cô ấy gật đầu nhận đề nghị Tây Nhĩ Phàm.
 
-"Cách Lôi Cách, cô ấy quay sang "núi" im lặng vác nhiều đồ, Đem đồ xuống kho phía sau bếp rồi đi nghỉ. Hôm nay vất vả rồi."
+"Cách Lôi Cách, cô ấy quay sang "
+
+Núi
+
+" im lặng vác nhiều đồ, Đem đồ xuống kho phía sau bếp rồi đi nghỉ. Hôm nay vất vả rồi."
 
 Cách Lôi Cách nhìn cô ấy, đôi mắt cháy minh hỏa, cơn giận vì bị sỉ nhục trước đã tan biến, chỉ còn sự bình tĩnh thuộc người bảo vệ. Hắn gật đầu nặng nề, không nói lời nào, chỉ dùng hành động đáp mệnh lệnh. Hắn vác đống hàng nhẹ như không với hắn, bước vững về phía bếp, bóng cao lớn nhanh chóng biến mất sau cửa.
 
@@ -3878,15 +4176,25 @@ Cách Lôi Cách nhìn cô ấy, đôi mắt cháy minh hỏa, cơn giận vì b
 
 Trong đại sảnh chỉ còn cô ấy và Tây Nhĩ Phàm. Cô ấy tới trước quầy bar, tùy ý kéo ghế cao ngồi, ra hiệu Tây Nhĩ Phàm cũng ngồi. Hắn lập tức hiểu, nhẹ nhàng nhảy lên ghế bên cạnh, thân hơi nghiêng về cô ấy, hai tay chống cằm, đôi mắt tím đẹp lấp lánh tò mò và mong đợi, như trẻ con sắp nghe truyện hay.
 
-"Được, giờ nói đi.  Cô ấy nhìn hắn, Theo cậu, "tiếc nuối" là gì?"
+"Được, giờ nói đi.  Cô ấy nhìn hắn, Theo cậu, "
+
+Tiếc nuối" là gì?"
 
 "Tiếc nuối?"
 
-Tây Nhĩ Phàm cười nhẹ, đôi cánh bướm nửa trong suốt phía sau vô thức phe phẩy, rải những hạt bụi lấp lánh hầu như không thấy, Ông chủ, "tiếc nuối" của Cách Lôi Cách là máu nóng và xác lạnh trên chiến trường, là sức mạnh vuột mất, là khúc bi ca thô ráp thuộc chiến binh. Nhưng đó không phải "tiếc nuối" duy nhất, thậm chí không phải loại… ngon nhất.
+Tây Nhĩ Phàm cười nhẹ, đôi cánh bướm nửa trong suốt phía sau vô thức phe phẩy, rải những hạt bụi lấp lánh hầu như không thấy, Ông chủ,
+
+"Tiếc nuối"
+
+Của Cách Lôi Cách là máu nóng và xác lạnh trên chiến trường, là sức mạnh vuột mất, là khúc bi ca thô ráp thuộc chiến binh. Nhưng đó không phải "tiếc nuối" duy nhất, thậm chí không phải loại… ngon nhất.
 
 Hắn cố ý hạ giọng, người nghiêng sát cô ấy hơn, như đang chia sẻ bí mật.
 
-"Với tôi, "tiếc nuối" thật sự, đỉnh cao nhất, hắn giơ ngón tay thon nhẹ chấm không khí, một chùm ánh ảo huyễn nở tàn trên đầu ngón, là tia nắng cuối cùng sắp tắt lúc hoàng hôn; là khoảnh khắc rực rỡ nhất của đóa hoa hè trước khi tàn; là khoảnh khắc trước khi tỉnh mộng, cô biết rõ là giả nhưng vẫn muốn ở thêm một giây."
+"Với tôi, "
+
+Tiếc nuối
+
+" thật sự, đỉnh cao nhất, hắn giơ ngón tay thon nhẹ chấm không khí, một chùm ánh ảo huyễn nở tàn trên đầu ngón, là tia nắng cuối cùng sắp tắt lúc hoàng hôn; là khoảnh khắc rực rỡ nhất của đóa hoa hè trước khi tàn; là khoảnh khắc trước khi tỉnh mộng, cô biết rõ là giả nhưng vẫn muốn ở thêm một giây."
 
 "Nó không nặng, không đẫm máu, thậm chí… rất đẹp.  Hắn tổng kết, đôi mắt tím in bóng cô ấy, khóe miệng cong lên nụ cười tinh quái quyến rũ, Nó là thứ nắm không được, giữ không nổi, nhưng lại tồn tại rõ ràng… tiếc nuối. Ông chủ, đó mới là gia vị đỉnh cao khiến linh hồn run rẩy đấy."
 
@@ -3894,25 +4202,45 @@ Hắn cố ý hạ giọng, người nghiêng sát cô ấy hơn, như đang chi
 
 Câu hỏi của cô ấy chính xác như mũi tên trúng đích, khiến đôi mắt tím luôn mang chút thú vị của Tây Nhĩ Phàm lần đầu lộ ánh sáng phấn khởi thật sự thuộc "nghệ sĩ".
 
-"Trừu tượng? Không, không ông chủ, đây không phải trừu tượng, đây là tinh túy của "không khí"!"
+"Trừu tượng? Không, không ông chủ, đây không phải trừu tượng, đây là tinh túy của "
+
+Không khí"!"
 
 Thân hắn nghiêng tới, giọng đầy niềm vui khi được hiểu và háo hức chia sẻ, Lời ông chủ vừa rồi… rất hay! "Trích"? Không, từ ấy thô quá, như luyện kim từ quặng.
 
 Hắn lắc ngón tay thon, sửa lại:
 
-"Năng lực của tôi không phải "trích" mà "dẫn". Là "tái hiện"."
+"Năng lực của tôi không phải "
+
+Trích" mà "dẫn". Là "tái hiện"."
 
 Hắn đứng dậy, trên sàn đại sảnh trống bước chậm, như bước vào trạng thái phác thảo tác phẩm. Đôi cánh bướm nửa trong suốt phía sau nhẹ nhàng xoè, mỗi lần vỗ đều khiến ánh sáng xung quanh gợn sóng mơ hồ đầy mộng. , Tôi có thể dệt cho vị khách một "khoảnh khắc" riêng, giọng hắn trở nên nhẹ nhàng từ tính, Dựa trên quan sát hơi linh hồn, dựa trên mảnh cảm xúc vô thức rò rỉ khi uống rượu… tôi có thể xây khoảnh cảnh siêu nhỏ. Có thể là con bướm thời thơ ấu không bắt được, có thể là góc váy người yêu bay trong gió khi quay đi, có thể chỉ là giai điệu lỡ mất khi cô ngủ trưa một buổi chiều.
 
-"Khoảnh cảnh ấy chỉ kéo dài một khoảnh khắc, ngắn tới không kịp suy nghĩ thật giả, nhưng đủ dài để cảm xúc "tiếc nuối" nổi lên từ sâu linh hồn. Nó không làm hại khách, ngược lại với một số linh hồn đây thậm chí là… sự vỗ về nhẹ nhàng. Một cuộc hoà giải ngắn với quá khứ."
+"Khoảnh cảnh ấy chỉ kéo dài một khoảnh khắc, ngắn tới không kịp suy nghĩ thật giả, nhưng đủ dài để cảm xúc "
+
+Tiếc nuối
+
+" nổi lên từ sâu linh hồn. Nó không làm hại khách, ngược lại với một số linh hồn đây thậm chí là… sự vỗ về nhẹ nhàng. Một cuộc hoà giải ngắn với quá khứ."
 
 Hắn dừng bước, quay người, đôi mắt tím sáng long lanh nhìn cô ấy, đầy mong đợi.
 
-"Khi khoảnh khắc ấy xảy ra, khách có thể vô ý rơi một giọt lệ hay thở dài. Giọt lệ ấy, tiếng thở dài ấy chính là vật mang "tiếc nuối" thuần khiết nhất. Chúng ta có thể thu thập."
+"Khi khoảnh khắc ấy xảy ra, khách có thể vô ý rơi một giọt lệ hay thở dài. Giọt lệ ấy, tiếng thở dài ấy chính là vật mang "
+
+Tiếc nuối
+
+" thuần khiết nhất. Chúng ta có thể thu thập."
 
 Hắn xoè tay, như đang giới thiệu sân khấu mới đầy khả năng.
 
-"Nhưng khó lắm ông chủ.  Sự phấn khởi trên mặt hắn hơi thu lại, thêm vẻ chuyên nghiệp, Cần sự tập trung rất cao, và hao tinh lực tôi nhiều lắm. Quan trọng hơn tôi cần "chất dẫn", điểm toạ độ giúp tôi tìm chính xác nút "tiếc nuối" sâu trong linh hồn khách. Không thì ảo thuật của tôi như mò kim đáy biển trong bóng tối, rất có thể chẳng chạm gì, hoặc… chạm phải thứ không nên chạm."
+"Nhưng khó lắm ông chủ.  Sự phấn khởi trên mặt hắn hơi thu lại, thêm vẻ chuyên nghiệp, Cần sự tập trung rất cao, và hao tinh lực tôi nhiều lắm. Quan trọng hơn tôi cần "
+
+Chất dẫn
+
+", điểm toạ độ giúp tôi tìm chính xác nút "
+
+Tiếc nuối
+
+" sâu trong linh hồn khách. Không thì ảo thuật của tôi như mò kim đáy biển trong bóng tối, rất có thể chẳng chạm gì, hoặc… chạm phải thứ không nên chạm."
 
 "Hay chúng ta thử trước trên cậu, tôi hoặc Cách Lôi Cách. Năng lực huyết mạch tôi có lẽ hỗ trợ được cậu, dù tôi cũng chưa thành thạo năng lực này…"
 
@@ -3924,13 +4252,19 @@ Hắn kêu, giọng cao hơn bình thường tám độ, đầy phấn khởi kh
 
 Hắn kích động xoay tròn tại chỗ, như con bướm cuối cùng tìm được mật hoàn hảo.
 
-""Chất dẫn"! Toạ độ! Đúng rồi! Chính nó!"
+""Chất dẫn
+
+"! Toạ độ! Đúng rồi! Chính nó!"
 
 Hắn nói không mạch lạc, chỉ cô ấy rồi chỉ mình, Năng lực huyết mạch cô là "Cảm tri chân thực", phải không? Là lực trực tiếp thấu suốt bản chất linh hồn! Nếu linh hồn khách là biển tối đầy đá ngầm thì năng lực cô chính là ngọn hải đăng! Chiếu thẳng vào chỗ "tiếc nuối" sâu nhất, ẩn nhất!
 
 Mặt hắn ửng màu bệnh hoạn của nghệ sĩ.
 
-"Chỉ cần cô chỉ hướng, tôi có thể tập trung toàn bộ sức mạnh chính xác vào một điểm ấy, dệt "khoảnh khắc" hoàn hảo, độc nhất cho họ! Đây… không còn là mò kim may rủi mà là… phẫu thuật chính xác! Triển lãm nghệ thuật linh hồn!"
+"Chỉ cần cô chỉ hướng, tôi có thể tập trung toàn bộ sức mạnh chính xác vào một điểm ấy, dệt "
+
+Khoảnh khắc
+
+" hoàn hảo, độc nhất cho họ! Đây… không còn là mò kim may rủi mà là… phẫu thuật chính xác! Triển lãm nghệ thuật linh hồn!"
 
 Hắn vì tưởng tượng của mình mà kích động, nhưng nhanh chóng bình tĩnh lại, bắt đầu suy nghĩ nghiêm túc đối tượng thí nghiệm cô ấy đề xuất.
 
@@ -3938,11 +4272,23 @@ Hắn vì tưởng tượng của mình mà kích động, nhưng nhanh chóng b
 
 Hắn nhìn hướng bếp, nơi Cách Lôi Cách nghỉ, rồi cười hẹo.
 
-"Trên Cách Lôi Cách? Ừ… như cố khiến khối đá hoa cương rơi lệ, sợ ảo thuật tôi chưa hiệu quả nắm đấm hắn đã tới mặt tôi. "Tiếc nuối" của hắn quá nặng, quá cứng, như khối sắt thấm máu, tôi không lay nổi."
+"Trên Cách Lôi Cách? Ừ… như cố khiến khối đá hoa cương rơi lệ, sợ ảo thuật tôi chưa hiệu quả nắm đấm hắn đã tới mặt tôi. "
+
+Tiếc nuối
+
+" của hắn quá nặng, quá cứng, như khối sắt thấm máu, tôi không lay nổi."
 
 Cuối cùng hắn nhìn chính mình, mặt nở nụ cười tự tin quyến rũ.
 
-"Vậy chỉ còn tôi. "Tiếc nuối" của tôi, bản thân tôi rõ nhất. Để chúng ta thử xem ngọn "Hải đăng" của cô và "Huyễn điệp" của tôi hợp tấu ra khúc nhạc gì nhé, ông chủ."
+"Vậy chỉ còn tôi. "
+
+Tiếc nuối
+
+" của tôi, bản thân tôi rõ nhất. Để chúng ta thử xem ngọn "
+
+Hải đăng" của cô và "Huyễn điệp
+
+" của tôi hợp tấu ra khúc nhạc gì nhé, ông chủ."
 
 "Cậu không phiền chứ? Tây Nhĩ Phàm, điều này có thể lộ bí mật và quá khứ sâu trong lòng cậu."
 
@@ -3958,11 +4304,15 @@ Hắn đưa ngón tay thon ra nhẹ, hơi trêu chọc chạm mu bàn tay cô �
 
 "Hơn nữa…"
 
-giọng hắn hạ thêm, mang sự thân mật gần như thì thầm, Để cô, người thừa kế huyết mạch Solomon, thân chinh khám phá linh hồn tôi… đâu phải ai cũng may mắn thế. Với nghệ sĩ, gặp "khán giả" vừa có sức mạnh vừa biết thưởng thức như cô, bản thân đã là ân huệ.
+Giọng hắn hạ thêm, mang sự thân mật gần như thì thầm, Để cô, người thừa kế huyết mạch Solomon, thân chinh khám phá linh hồn tôi… đâu phải ai cũng may mắn thế. Với nghệ sĩ, gặp "khán giả" vừa có sức mạnh vừa biết thưởng thức như cô, bản thân đã là ân huệ.
 
 Hắn nhìn cô ấy, đôi mắt tím sâu, sự tinh quái và thú vị dần nhạt, hiện vẻ nhiệt thành chân thành và cuồng tín thuộc nghệ sĩ.
 
-"Và nếu ngay "tiếc nuối" của chính tôi còn không dám đối mặt và trưng bày, tôi có tư cách gì đi dò xét và dệt của người khác?"
+"Và nếu ngay "
+
+Tiếc nuối
+
+" của chính tôi còn không dám đối mặt và trưng bày, tôi có tư cách gì đi dò xét và dệt của người khác?"
 
 "Vậy đừng lo, ông chủ.  Hắn lùi một bước, kéo lại khoảng cách, lại biến thành ảo thuật sư tao nhã tự tin, làm lễ vỗ ngực không chê vào đâu với cô ấy, Sân khấu của tôi đã sẵn sàng, có thể mở màn cho cô bất cứ lúc nào."
 
@@ -3974,11 +4324,17 @@ Lời cô ấy mang chút bình luận khiến vẻ cuồng nhiệt trên mặt 
 
 Hắn đồng ý nhìn quanh đại sảnh trống, gật đầu.
 
-"Nhưng ông chủ nói đúng. Buổi công diễn đầu quan trọng thế này đúng là cần sân khấu yên tĩnh riêng tư hơn. Giữa đại sảnh, nhỡ Cách Lôi Cách đột nhiên hắt xì, "cảm hứng" tôi có thể bay mất."
+"Nhưng ông chủ nói đúng. Buổi công diễn đầu quan trọng thế này đúng là cần sân khấu yên tĩnh riêng tư hơn. Giữa đại sảnh, nhỡ Cách Lôi Cách đột nhiên hắt xì, "
+
+Cảm hứng
+
+" tôi có thể bay mất."
 
 Hắn vừa nói vừa tao nhã đưa tay làm điệu "mời", chỉ cầu thang lên tầng hai:
 
-"Vậy xin "nhà sản xuất" chọn giúp "phòng trang điểm" phù hợp nhé."
+"Vậy xin "
+
+Nhà sản xuất" chọn giúp "phòng trang điểm" phù hợp nhé."
 
 Lời hắn lại mang sức quyến rũ độc đáo của ảo thuật sư, giữa đùa và nghiêm túc.
 
@@ -3994,21 +4350,45 @@ Nghe cô ấy thẳng thắn thừa nhận chưa quen năng lực, Tây Nhĩ Ph�
 
 Hắn tới bên giường phủ khăn trắng, ngồi xếp bằng, tư thế thư giãn tùy ý. Hắn vỗ chỗ trống bên cạnh, mời cô ấy ngồi đối diện.
 
-"Cô không cần căng, cũng không cần cố "làm" gì."
+"Cô không cần căng, cũng không cần cố "
+
+Làm" gì."
 
 Hắn nhìn mắt cô ấy, đôi mắt tím sâu đầy khích lệ và hướng dẫn:
 
-"Cô chỉ cần… "cảm nhận"."
+"Cô chỉ cần… "
+
+Cảm nhận"."
 
 Hắn đưa ngón tay chỉ trán mình.
 
 "Chút nữa xin cô đặt tay lên đây. Rồi nhắm mắt, thả lỏng như chuẩn bị ngủ ngon. Đừng suy nghĩ, đừng phân tích, tạm vứt hết khuôn khổ logic thuộc thế giới con người."
 
-"Tưởng tượng linh hồn tôi là biển đen ấm áp.  Giọng hắn mang ma lực như thôi miên, Còn "Cảm tri chân thực" của cô là tia trăng ném vào biển ấy. Cô không cần gắng tìm gì, chỉ để ánh sáng tự nhiên chìm xuống. Cô sẽ "thấy" nhiều thứ, có thể là hình ảnh vỡ, âm thanh hỗn loạn, hay cảm xúc lạ… đừng để ý, để chúng trôi qua như dòng nước."
+"Tưởng tượng linh hồn tôi là biển đen ấm áp.  Giọng hắn mang ma lực như thôi miên, Còn "
+
+Cảm tri chân thực
+
+" của cô là tia trăng ném vào biển ấy. Cô không cần gắng tìm gì, chỉ để ánh sáng tự nhiên chìm xuống. Cô sẽ "
+
+Thấy
+
+" nhiều thứ, có thể là hình ảnh vỡ, âm thanh hỗn loạn, hay cảm xúc lạ… đừng để ý, để chúng trôi qua như dòng nước."
 
 Hắn dừng, cho cô ấy thời gian tiêu hóa, rồi tiếp.
 
-"Đến lúc nào đó cô sẽ cảm thấy một "sợi" khác biệt. Có thể rất yếu nhưng nó sẽ sáng, rung, chủ động thu hút chú ý cô. Đó là nút "tiếc nuối" của tôi. Khi cô tìm được, cô chỉ cần trong lòng… nhẹ "gẩy" nó một cái. Phần còn lại để tôi lo."
+"Đến lúc nào đó cô sẽ cảm thấy một "
+
+Sợi
+
+" khác biệt. Có thể rất yếu nhưng nó sẽ sáng, rung, chủ động thu hút chú ý cô. Đó là nút "
+
+Tiếc nuối
+
+" của tôi. Khi cô tìm được, cô chỉ cần trong lòng… nhẹ "
+
+Gẩy
+
+" nó một cái. Phần còn lại để tôi lo."
 
 Hắn xoè hai tay với cô ấy, mặt đầy tin tưởng và chút mong đợi sắp bắt đầu sáng tác của nghệ sĩ.
 
@@ -4030,7 +4410,11 @@ Theo sự hướng dẫn của hắn, cô ấy xóa trống ý niệm, không ph
 
 Thế giới lùi lại phía sau cô ấy. Ban đầu là bóng tối ấm áp vô biên. Tiếp theo vô số hình ảnh vỡ vụn, quái dị như sinh vật phù du lướt qua bên cạnh cô ấy. Cô ấy "thấy" sân khấu tráng lệ, dưới sân không một bóng người, chỉ gió im lặng thổi qua ghế nhung trống rỗng. Cô ấy "nghe" vô số âm thanh chồng chất, cổ vũ và chế nhạo xen lẫn, như sóng triều lui, xa mơ hồ. Cô ấy "ngửi" mùi hoa nở tới cực độ, trước khi thối rữa trong tích tắc toả hương ngọt đậm đến chóng mặt.
 
-Đó đều là ký ức, cảm xúc, "màu vẽ" của hắn. Cô ấy nhớ lời hắn dặn, không để ý, không chạm, chỉ để cảm tri tiếp tục chìm xuống, chìm xuống…
+Đó đều là ký ức, cảm xúc,
+
+"Màu vẽ"
+
+Của hắn. Cô ấy nhớ lời hắn dặn, không để ý, không chạm, chỉ để cảm tri tiếp tục chìm xuống, chìm xuống…
 
 Ngay trong đáy đại dương hỗn loạn từ vô số mảnh cảm xúc ấy, cuối cùng cô ấy "thấy" sợi dây khác biệt. Nó không sáng nhất, cũng không dày nhất. Chỉ là sợi dây bạc cực mảnh toả ánh ngọc dịu dàng, lơ lửng tĩnh lặng trong nền tối, không ồn ào, không phô trương, nhưng mang vẻ đẹp mỏng manh dễ gãy khiến lòng đau. Nó run nhẹ, phát ra âm vang trong trẻo buồn như chuông gió, không nghe được bằng tai nhưng linh hồn cảm nhận trực tiếp.
 
@@ -4054,7 +4438,19 @@ Giọng cô ấy rõ ràng, bình tĩnh, mang sự trấn định không chối 
 
 Cô ấy không do dự nữa, lại tập trung tinh thần, đưa "Cảm tri chân thực" vừa rút ra lại thăm dò vào trán hắn. Lần này cô ấy hao tổn thêm nhiều tinh lực, sức mạnh không còn là ánh trăng thăm dò mà là dòng ấm kiên định dịu dàng không thể chống đỡ. Nếu lúc nãy cô ấy vào là biển sâu yên tĩnh thì giờ cô ấy xông vào là đại dương bão sấm cuồng bạo. Vô số mảnh cảm xúc đau đớn sắc nhọn, bị bỏ rơi, bị chế nhạo, bị lờ đi, như băng sắc lao điên cuồng vào cảm tri của cô ấy.
 
-Nhưng sức mạnh của cô ấy không đối kháng. Nó chỉ kiên định tồn tại, như ngọn hải đăng không lay trong bão, toả ánh sáng ấm áp bền bỉ. Giọng cô ấy, ý niệm cô ấy, qua kết nối ấy truyền qua: "Bình tĩnh", "Tôi ở đây", "Cậu an toàn".
+Nhưng sức mạnh của cô ấy không đối kháng. Nó chỉ kiên định tồn tại, như ngọn hải đăng không lay trong bão, toả ánh sáng ấm áp bền bỉ. Giọng cô ấy, ý niệm cô ấy, qua kết nối ấy truyền qua:
+
+"Bình tĩnh"
+
+,
+
+"Tôi ở đây"
+
+,
+
+"Cậu an toàn"
+
+.
 
 Sức định an ấy trở thành "mỏ neo" duy nhất trong thế giới hỗn loạn của hắn.
 
@@ -4094,19 +4490,27 @@ Cô ấy chớp thời cơ hỏi bằng giọng ôn hoà tò mò, Cái gì khi�
 
 Nghe câu hỏi, thân thể Tây Nhĩ Phàm lại cứng. Đôi mắt tím thoáng cảm xúc phức tạp, đau đớn, xấu hổ, và chút… hoảng hốt vì bí mật bị thấy. Hắn im lặng lâu, ánh mắt dao động, cuối cùng dừng trên đôi tay xương xẩu đan nhau trên đầu gối.
 
-"Tôi thấy… "khán giả"."
+"Tôi thấy… "
+
+Khán giả"."
 
 Hắn nói nhẹ, như tiếng thở dài, Tôi đứng giữa sân khấu khổng lồ tráng lệ, đèn chói mắt, dùng hết kỹ thuật dệt ra ảo tượng hoàn hảo nhất… bướm, tinh tú, hoa hồng nở… tất cả thứ đẹp tôi nghĩ được.
 
 "Nhưng dưới sân không một ai. Chỉ hàng ghế trống không. Chúng chế nhạo tôi. Chế nhạo màn trình diễn… vô giá trị."
 
-"Tôi gắng sức tạo ảo tượng tráng lệ hơn, lớn hơn để lấp đầy chỗ trống, nhưng dù cố bao nhiêu chúng chỉ vỡ tan, tản đi trước mắt… cảm giác ấy như bị cả thế giới bỏ rơi. "Nghệ thuật" của tôi, tất cả của tôi, đều là trò cười…"
+"Tôi gắng sức tạo ảo tượng tráng lệ hơn, lớn hơn để lấp đầy chỗ trống, nhưng dù cố bao nhiêu chúng chỉ vỡ tan, tản đi trước mắt… cảm giác ấy như bị cả thế giới bỏ rơi. "
+
+Nghệ thuật
+
+" của tôi, tất cả của tôi, đều là trò cười…"
 
 Giọng hắn càng lúc càng thấp, cuối cùng gần như không nghe. Hắn vùi mặt vào lòng bàn tay, vai khẽ run.
 
 "Cảm giác tác phẩm không được người ta hiểu tôi cũng hiểu đại khái. Tôi từng là họa sĩ minh họa, ở thế giới cũ chúng tôi mạng rất phát triển, người xem tác phẩm không chỉ người quanh mình mà còn những lời bình luận gặp phải khi đăng lên mạng…"
 
-Nói ra trải nghiệm cũ và không thuận lợi khiến cô ấy hơi phức tạp, nhưng thấy Tây Nhĩ Phàm buồn cô ấy không thể không an ủi, dù sao hắn làm vậy cũng vì cô ấy. Dù không đáp lời, cô ấy cảm thấy hắn đang nghe, nên tiếp tục: "Nhưng Tây Nhĩ Phàm, đừng quá để ý những âm thanh ấy. Cậu là nghệ sĩ mà, nhớ không? Bướm nhỏ?"
+Nói ra trải nghiệm cũ và không thuận lợi khiến cô ấy hơi phức tạp, nhưng thấy Tây Nhĩ Phàm buồn cô ấy không thể không an ủi, dù sao hắn làm vậy cũng vì cô ấy. Dù không đáp lời, cô ấy cảm thấy hắn đang nghe, nên tiếp tục:
+
+"Nhưng Tây Nhĩ Phàm, đừng quá để ý những âm thanh ấy. Cậu là nghệ sĩ mà, nhớ không? Bướm nhỏ?"
 
 Giọng cô ấy dần phấn chấn, như không còn nói với Tây Nhĩ Phàm mà với chính mình từng bị phủ nhận.
 
@@ -4150,9 +4554,15 @@ Hắn nói nhẹ, giọng vì khóc hơi khàn nhưng bất thường kiên đ�
 
 Hắn đưa tay, đầu ngón mát lạnh run nhẹ chạm nhẹ má cô ấy, như xác nhận sự tồn tại của cô ấy.
 
-"Họa sĩ ăn lương kiếm sống… đó chỉ là "nghề" của cô, không phải "bản chất"."
+"Họa sĩ ăn lương kiếm sống… đó chỉ là "
 
-"Vừa rồi, khi tôi bị ác mộng của chính mình nuốt chửng, trên sân khấu chỉ có ghế trống sắp sụp đổ… giọng cô, sức mạnh cô như tia sáng chiếu vào. Cô trong thế giới hỗn loạn đầy tiếng hét và chế nhạo của tôi đã xây "tổ ấm" tuyệt đối yên tĩnh và an toàn chỉ thuộc về hai chúng ta."
+Nghề" của cô, không phải "bản chất"."
+
+"Vừa rồi, khi tôi bị ác mộng của chính mình nuốt chửng, trên sân khấu chỉ có ghế trống sắp sụp đổ… giọng cô, sức mạnh cô như tia sáng chiếu vào. Cô trong thế giới hỗn loạn đầy tiếng hét và chế nhạo của tôi đã xây "
+
+Tổ ấm
+
+" tuyệt đối yên tĩnh và an toàn chỉ thuộc về hai chúng ta."
 
 Đầu ngón hắn lướt xuống má cô ấy, nhẹ, mang ý nghĩa gần như thành kính, chạm môi cô ấy, như đó mới là cây cọ cô dùng để thi triển "nghệ thuật".
 
@@ -4182,7 +4592,9 @@ Giọng hắn đặc, nặng mũi, Bây giờ không được…
 
 Hắn ngẩng đầu, đôi mắt tím ướt át lấp lánh nhìn chằm chằm cô ấy, đầy cầu xin và phụ thuộc.
 
-"Bây giờ… tôi chỉ muốn ôm "khán giả" của tôi."
+"Bây giờ… tôi chỉ muốn ôm "
+
+Khán giả" của tôi."
 
 Giọng hắn rất nhẹ nhưng mang sự ngang ngạnh không thể từ chối. Hắn lại vùi mặt vào cổ cô ấy, như mèo tìm được tổ ấm nhất, tham lam hấp thụ hơi ấm và nhiệt độ của cô ấy. Cô ấy cảm thấy hơi thở ấm phả lên da, mang theo ngứa ran nhẹ. Hắn có vẻ định ôm cô ấy mãi đến khi địa ngục đóng băng.
 
@@ -4212,7 +4624,11 @@ Giọng cô ấy không lớn nhưng đủ rõ, khiến mọi người dừng ta
 
 "Tiền chúng ta không còn nhiều, cô ấy đi thẳng vấn đề, giọng nghiêm, Chỉ còn năm mươi hai hồn tệ. Karl chưa về, chúng ta không thể ngồi ăn không. Đêm nay chúng ta phải kinh doanh, làm hết sức kiếm chi phí ngày mai."
 
-Lời cô ấy mang sự quyết đoán không chối cãi. Ác ma nhìn nhau, không dám lên tiếng. Cách Lôi Cách gật đầu nặng nề, đôi mắt cháy minh hỏa lấp lánh "thề chết hoàn thành nhiệm vụ".
+Lời cô ấy mang sự quyết đoán không chối cãi. Ác ma nhìn nhau, không dám lên tiếng. Cách Lôi Cách gật đầu nặng nề, đôi mắt cháy minh hỏa lấp lánh
+
+"Thề chết hoàn thành nhiệm vụ"
+
+.
 
 "Tỉnh táo lên!"
 
@@ -4222,13 +4638,17 @@ Cô ấy ra lệnh cho ác ma, Lau sạch bàn ghế, sàn không được có v
 
 Giọng Cách Lôi Cách trầm có lực. Ác ma cũng gật đầu, hành động lập tức nhanh nhẹn. Toàn bộ 【Huyết Hồng Thánh Bôi】 dưới chỉ huy của cô ấy như cỗ máy lên dây cót, vì sinh tồn bắt đầu vận hành hiệu quả.
 
-Cô ấy hít sâu, ép mọi lo lắng tương lai và nỗi bức xúc về tiền xuống đáy lòng. Giờ cô ấy không phải kẻ nghèo chỉ còn năm mươi hai hồn tệ, cô ấy là quản lý nhân 【Huyết Hồng Thánh Bôi】, "thủ lĩnh" của Cách Lôi Cách, trụ cột của mọi nhân viên.
+Cô ấy hít sâu, ép mọi lo lắng tương lai và nỗi bức xúc về tiền xuống đáy lòng. Giờ cô ấy không phải kẻ nghèo chỉ còn năm mươi hai hồn tệ, cô ấy là quản lý nhân 【Huyết Hồng Thánh Bôi】,
+
+"Thủ lĩnh"
+
+Của Cách Lôi Cách, trụ cột của mọi nhân viên.
 
 Cô ấy tới sau quầy bar, cầm khăn sạch lau kỹ mặt quầy đã sạch. Động tác không nhanh nhưng mỗi cái đều vững có lực. Hành động im lặng ấy an định lòng người hơn bất kỳ bài diễn thuyết nào. Ba ác ma thấy cô ấy đích thân ra trận, động tác qua loa lập tức chuyên tâm, lực lau bàn ghế tăng lên.
 
 Khi cô ấy cho mọi thứ đã sẵn sàng, cô ấy ngẩng đầu, ánh mắt vượt đại sảnh gặp Cách Lôi Cách ở cửa. Cô ấy gật đầu nặng nề với hắn. Cách Lôi Cách hiểu ý. Thân hình vạm vỡ quay sang cửa, hai tay nắm vòng cửa nặng, cùng tiếng "kẽo kẹt" trầm đục, cánh cửa 【Huyết Hồng Thánh Bôi】 bị bụi phủ lâu ngày lần đầu trong giờ kinh doanh được mở hoàn toàn.
 
-Bên ngoài hoàng hôn vĩnh cửu Ảnh Hạng và sóng âm ồn ào ùa vào. Lưu huỳnh, bụi, mùi thịt nướng xa xa, tiếng gào và trò chuyện của ma quỷ pha trộn thành hơi thở đầy sức sống riêng địa ngục. Cô ấy đứng sau quầy bar, Cách Lôi Cách như tháp sắt canh bên cửa, ác ma căng thẳng đứng vị trí. họ như đội quân nhỏ sẵn sàng chờ trận chiến sinh tử đầu tiên.
+Bên ngoài hoàng hôn vĩnh cửu Ảnh Hạng và sóng âm ồn ào ùa vào. Lưu huỳnh, bụi, mùi thịt nướng xa xa, tiếng gào và trò chuyện của ma quỷ pha trộn thành hơi thở đầy sức sống riêng địa ngục. Cô ấy đứng sau quầy bar, Cách Lôi Cách như tháp sắt canh bên cửa, ác ma căng thẳng đứng vị trí. Họ như đội quân nhỏ sẵn sàng chờ trận chiến sinh tử đầu tiên.
 
 Chẳng mấy chốc vài tiểu quỷ lang thang trên phố bị ánh sáng cửa thu hút, họ do dự thò đầu, thấy Cách Lôi Cách toả hơi "đừng lại gần" ở cửa thì rõ ràng co lại. Nhưng xác nhận trong quán bar không có gì đe doạ khác, họ đẩy nhau cười đùa bước vào, trở thành khách đầu tiên đêm nay.
 
@@ -4268,7 +4688,9 @@ Cô ấy không để ý phản ứng của họ, đi vòng sau quầy bar lấy
 
 Giọng cô ấy ôn hoà nhưng mang mệnh lệnh không chối cãi, Tôi không để cậu mang mệt mỏi và vết thương tới báo cáo với tôi.
 
-Lần này Karl không cố nữa. Hắn im lặng nhìn cô ấy vài giây, ánh nhìn phức tạp khiến cô ấy trong chốc không đọc được. Cuối cùng hắn khẽ cúi mắt, với tư thế cung kính hơn mọi khi thấp giọng đáp: "… Vâng, thưa cô."
+Lần này Karl không cố nữa. Hắn im lặng nhìn cô ấy vài giây, ánh nhìn phức tạp khiến cô ấy trong chốc không đọc được. Cuối cùng hắn khẽ cúi mắt, với tư thế cung kính hơn mọi khi thấp giọng đáp:
+
+"… Vâng, thưa cô."
 
 Hắn không ngồi ngay mà trước hết mở ghế cho cô ấy, đợi cô ấy ngồi rồi mới ngồi đối diện. Hắn ngồi thẳng nhưng vai căng khi ngồi có độ cong thả lỏng khó nhận ra.
 
@@ -4286,7 +4708,11 @@ Hắn đặt ly xuống, giọng khôi phục bình tĩnh thường ngày, như 
 
 Hắn tránh câu hỏi trực tiếp về "bị thương" của cô ấy, chuyển đề tài về công việc. Thái độ chuyên nghiệp khiến cô ấy hơi bất lực nhưng càng xác định chuyến đi ấy của hắn tuyệt đối không đơn giản như hắn nói.
 
-"Tình hình Khu Ống Rỉ Sắt phức tạp hơn dự kiến, hắn bắt đầu báo cáo, tốc độ vừa phải, Xưởng "Anh Em Đầm Lầy Chua" điều kiện vệ sinh cực kỳ kém, quy trình sản xuất hỗn loạn, người phụ trách… thiếu tinh thần khế ước cơ bản. Tôi đánh giá họ không phù hợp làm nhà cung ứng dài hạn."
+"Tình hình Khu Ống Rỉ Sắt phức tạp hơn dự kiến, hắn bắt đầu báo cáo, tốc độ vừa phải, Xưởng "
+
+Anh Em Đầm Lầy Chua
+
+" điều kiện vệ sinh cực kỳ kém, quy trình sản xuất hỗn loạn, người phụ trách… thiếu tinh thần khế ước cơ bản. Tôi đánh giá họ không phù hợp làm nhà cung ứng dài hạn."
 
 Lời hắn súc tích rõ ràng, trực tiếp phủ định lựa chọn đầu.
 
@@ -4296,7 +4722,11 @@ Lời hắn súc tích rõ ràng, trực tiếp phủ định lựa chọn đầ
 
 "Vậy trước hết xem thu hoạch của cậu."
 
-Cô ấy gật cằm chỉ chiếc hộp, hỏi tiếp, "Nhà nấu rượu độc lập" ấy? Cậu đàm phán với hắn thế nào?
+Cô ấy gật cằm chỉ chiếc hộp, hỏi tiếp,
+
+"Nhà nấu rượu độc lập"
+
+Ấy? Cậu đàm phán với hắn thế nào?
 
 "Như cô mong muốn."
 
@@ -4308,13 +4738,21 @@ Karl mở khoá hộp, với hai tiếng "cạch" nhẹ nắp từ từ mở ra.
 
 Mùi kỳ lạ pha trộn kim loại, caramel và hương thực vật thanh mát toả từ hộp. Bên trong được lót đệm đen mềm chia thành vài ô, mỗi ô cố định chắc chắn một chai thủy tinh kiểu cổ. Trong chai đựng chất lỏng đủ màu, có đỏ sâu như dung nham, xanh u minh như tinh tú, và vàng trong suốt.
 
-"Nhà nấu rượu này tự xưng "Ba Long", Karl vừa giới thiệu vừa cẩn thận lấy chai vàng đặt lên bàn, Hắn là… thợ thủ công rất cứng đầu. Hắn chỉ chịu trách nhiệm tác phẩm của mình, không hứng thú hợp tác thương mại. Tôi không ký được khế ước cung ứng dài hạn."
+"Nhà nấu rượu này tự xưng "
+
+Ba Long
+
+", Karl vừa giới thiệu vừa cẩn thận lấy chai vàng đặt lên bàn, Hắn là… thợ thủ công rất cứng đầu. Hắn chỉ chịu trách nhiệm tác phẩm của mình, không hứng thú hợp tác thương mại. Tôi không ký được khế ước cung ứng dài hạn."
 
 Hắn dừng, bổ sung: , Nhưng tôi dùng năm trăm hồn tệ mua toàn bộ tồn kho hiện tại của hắn, và… công thức cùng giấy phép nấu một mẫu tác phẩm.
 
 Hắn nhẹ đẩy chai rượu vàng về phía cô ấy.
 
-"Đây là mẫu, "Liệt Dương Mạch Tửu". Theo hắn nói, làm từ loại lúa mạch đặc biệt mọc gần miệng núi lửa lưu huỳnh, có thể hấp thụ năng lượng tàn dư mặt trời."
+"Đây là mẫu, "
+
+Liệt Dương Mạch Tửu
+
+". Theo hắn nói, làm từ loại lúa mạch đặc biệt mọc gần miệng núi lửa lưu huỳnh, có thể hấp thụ năng lượng tàn dư mặt trời."
 
 "Hắn có nhắc điều kiện cung ứng dài hạn cho chúng ta không?"
 
@@ -4338,11 +4776,23 @@ Trọng tâm của cô ấy lại quay về vấn đề thực tế. Sau khi n�
 
 Karl mở tờ giấy da công thức, đẩy về phía cô ấy. Đầu ngón chỉ mấy dòng chữ kỳ dị.
 
-"Thưa cô, cốt lõi rượu này là "Liệt Dương Tàn Hài Mạch", lúa mạch đặc biệt tôi nhắc, mọc gần miệng núi lửa lưu huỳnh. Loại mạch này sản lượng ít, thu hoạch cực nguy hiểm, đây là nguồn chi phí chính. Tôi ước tính nếu mua nguyên liệu từ "Ba Long" hoặc thuê ma quỷ khác thu hoạch, chi phí nguyên liệu mỗi chai có thể cao tới ba mươi hồn tệ."
+"Thưa cô, cốt lõi rượu này là "
+
+Liệt Dương Tàn Hài Mạch
+
+", lúa mạch đặc biệt tôi nhắc, mọc gần miệng núi lửa lưu huỳnh. Loại mạch này sản lượng ít, thu hoạch cực nguy hiểm, đây là nguồn chi phí chính. Tôi ước tính nếu mua nguyên liệu từ "
+
+Ba Long
+
+" hoặc thuê ma quỷ khác thu hoạch, chi phí nguyên liệu mỗi chai có thể cao tới ba mươi hồn tệ."
 
 Ba mươi hồn tệ. Con số khiến lòng cô ấy chùng. Nghĩa là nếu định giá bốn mươi hồn tệ, biên lợi nhuận rất mỏng. Muốn lợi nhuận đáng kể, giá bán ít nhất sáu mươi hồn tệ, nhưng lại có thể làm khách tầm trung thấp e ngại.
 
-"Các phụ liệu khác như "gel keo Slime caramel" và "nước nguội suối núi lửa" ở Chợ U Ảnh hay Khu Ống Rỉ Sắt đều có nhà cung ứng tương đối ổn định, chi phí có thể khống chế trong năm hồn tệ."
+"Các phụ liệu khác như "
+
+Gel keo Slime caramel" và "nước nguội suối núi lửa
+
+" ở Chợ U Ảnh hay Khu Ống Rỉ Sắt đều có nhà cung ứng tương đối ổn định, chi phí có thể khống chế trong năm hồn tệ."
 
 Karl tiếp, Vấn đề lớn nhất vẫn là nguyên liệu chính.
 
@@ -4374,7 +4824,11 @@ Giọng cô ấy rõ ràng vững, vang trong khu vực ghế nhỏ. Cô ấy kh
 
 Khi cô ấy phân tích thiếu sức chiến đấu đội ngũ và chỉ rõ Karl cùng Tây Nhĩ Phàm không giỏi chiến đấu, biểu cảm Karl không đổi, chỉ bình tĩnh lắng nghe như đang nghe tường thuật sự thật khách quan. Tây Nhĩ Phàm phóng đại nhún vai, xoè tay làm vẻ "cô nói đúng" bất lực. Cách Lôi Cách vốn căng vì nghe "chiến đấu" dưới phân tích lý trí của cô ấy từ từ thả lỏng. Ánh mắt nhìn cô ấy bớt khát chiến đấu, thêm sự đồng cảm với "thủ lĩnh" suy nghĩ kỹ. Bảo vệ tộc quần không chỉ xung phong; tránh rủi ro không cần thiết cũng là bảo vệ.
 
-Khi cô ấy thở dài nói "nói đi nói lại chúng ta vẫn thiếu nhân lực quá", đã tổng kết cốt lõi mọi vấn đề.
+Khi cô ấy thở dài nói
+
+"Nói đi nói lại chúng ta vẫn thiếu nhân lực quá"
+
+, đã tổng kết cốt lõi mọi vấn đề.
 
 "… Tôi hiểu rồi, thưa cô."
 
@@ -4382,7 +4836,11 @@ Cuối cùng Karl phá vỡ im lặng. Hắn nhìn cô ấy, đôi mắt sâu l�
 
 "Quyết sách của cô rất ổn định. Khống chế rủi ro thấp nhất, đồng thời theo đuổi lợi nhuận tối đa, đây là phương án hợp lý nhất."
 
-"He he, tức là phương án "xa xỉ" của tôi được chấp nhận phải không?"
+"He he, tức là phương án "
+
+Xa xỉ
+
+" của tôi được chấp nhận phải không?"
 
 Tây Nhĩ Phàm lập tức đắc ý cười, cánh vỗ phấn khởi rải bụi ảo huyễn, Giao cho tôi đi ông chủ! Tôi đảm bảo đóng gói thành thánh vật mọi quý tộc giả  địa ngục mơ ước!
 
@@ -4424,7 +4882,11 @@ Hắn vừa nói vừa bước nhẹ quay lại trước mặt cô ấy. Hắn k
 
 ## Chương 19 – Tiếc nuối của Tây Nhĩ Phàm
 
-"Tây Nhĩ Phàm, chuyện chúng ta cùng tìm "một giọt tiếc nuối" hồi trước, cậu còn nhớ không?"
+"Tây Nhĩ Phàm, chuyện chúng ta cùng tìm "
+
+Một giọt tiếc nuối
+
+" hồi trước, cậu còn nhớ không?"
 
 Lời cô ấy khiến nét mặt bất cần của Tây Nhĩ Phàm trong chớp mắt đông cứng.
 
@@ -4478,7 +4940,11 @@ Cô ấy nghiêm túc.
 
 Câu bổ sung của cô ấy như chiếc chìa khoá tinh tế mở khoá phức tạp nhất trong lòng hắn.
 
-Nét mặt ngơ ngác và yếu đuối của Tây Nhĩ Phàm khi nghe "trích xuất nguyên liệu Bình Minh" trong chớp mắt đông cứng. Đôi mắt tím thẫm dao động mạnh, rồi thứ ánh sáng mới lạ sáng lên trong mắt hắn.
+Nét mặt ngơ ngác và yếu đuối của Tây Nhĩ Phàm khi nghe
+
+"Trích xuất nguyên liệu Bình Minh"
+
+Trong chớp mắt đông cứng. Đôi mắt tím thẫm dao động mạnh, rồi thứ ánh sáng mới lạ sáng lên trong mắt hắn.
 
 Hắn từ từ đứng thẳng, bàn tay cô ấy đặt trên má hắn cũng trượt xuống. Hắn không còn nhìn xuống cô ấy mà lùi nửa bước, dùng ánh mắt xem xét, mang hứng thú mới mẻ, nhìn lại cô ấy từ đầu đến chân.
 
@@ -4506,9 +4972,23 @@ Câu nghe như chê bai ấy từ miệng hắn thốt ra lại tràn ngập l�
 
 "Được."
 
-Hắn cười cong mắt, rạng rỡ như hoa quỳnh nở trong đêm tối, "Tiếc nuối" của tôi, "nghệ thuật" của tôi, "linh hồn" của tôi… miễn ngài coi trọng, miễn ngài dám nhận, tất cả đều mang đi.
+Hắn cười cong mắt, rạng rỡ như hoa quỳnh nở trong đêm tối,
 
-"Dù sao, hắn đưa ngón tay nhẹ chạm môi cô ấy, động tác nhẹ nhàng thân mật, Chúng ta là "đồng phạm", phải không?"
+"Tiếc nuối"
+
+Của tôi,
+
+"Nghệ thuật"
+
+Của tôi,
+
+"Linh hồn"
+
+Của tôi… miễn ngài coi trọng, miễn ngài dám nhận, tất cả đều mang đi.
+
+"Dù sao, hắn đưa ngón tay nhẹ chạm môi cô ấy, động tác nhẹ nhàng thân mật, Chúng ta là "
+
+Đồng phạm", phải không?"
 
 "Không phải thế, những gì tôi nói đều thật, sự thấu hiểu của tôi với tiếc nuối không được thấu hiểu của cậu cũng thật. Tôi từng thực sự là họa sĩ minh họa, trong công ty không có tương lai thăng tiến, sau đó nghỉ việc nghỉ ngơi hai tháng, gặp Karl đến nhân gian tìm tôi, hắn mời tôi xuống địa ngục làm quản lý. Tôi nghĩ trải nghiệm này thú vị, sẽ mang thay đổi cho cuộc đời tầm thường của tôi nên mới tới. Chỉ có điểm này, tôi không muốn cậu hiểu lầm. Tôi không chỉ muốn lợi dụng cậu, Cách Lôi Cách cũng vậy."
 
@@ -4562,7 +5042,11 @@ Giọng hắn hạ thêm, mang sự thân mật gần như thì thầm, Để ng
 
 Hắn nhìn cô ấy, trong đôi mắt tím sâu thẳm, tinh quái và trêu chọc dần lui, hiện lên sự cuồng nhiệt chân thành và cố chấp của nghệ sĩ.
 
-"Và nếu ngay cả "tiếc nuối" của chính tôi cũng không dám đối mặt và trưng bày, tôi có tư cách gì để dò xét và dệt nên của người khác?"
+"Và nếu ngay cả "
+
+Tiếc nuối
+
+" của chính tôi cũng không dám đối mặt và trưng bày, tôi có tư cách gì để dò xét và dệt nên của người khác?"
 
 "Vậy đừng lo nữa, ông chủ."
 
@@ -5878,15 +6362,33 @@ Cô ấy nghiêng người tới, khuỷu tay chống gối, nhìn đôi mắt s
 
 Cô ấy ví von tùy ý rồi xoè tay, bổ sung thẳng thắn, Hơn nữa bây giờ chúng ta vẫn là quán bar nghèo xác xơ, đâu có nhiều sự cầu kỳ thế.
 
-"Lý lẽ lệch lạc" ấy khiến phần phân tích về quản lý rủi ro Karl chuẩn bị sẵn đều kẹt trong cổ họng. Hắn đứng hình. Trong đôi mắt đen sâu thẳm luôn vận hành như thiết bị tinh xảo lần đầu lộ rõ vẻ… hoang mang. Thế giới quan logic chặt chẽ của hắn dường như bị "thuyết đoàn kịch tạm bợ" đơn giản thô bạo đầy tinh thần lạc quan con người của cô ấy đâm trúng. Hắn nhìn gương mặt cô ấy ghi "chúng ta nghèo nhưng chúng ta vui", khóe miệng căng có vẻ muốn giật nhưng cuối cùng nhịn được. Mấy giây sau hắn mới từ "số liệu không thể phân tích" ấy hoàn hồn, nhẹ nhàng, gần như không nghe thở dài. Trong hơi thở ấy không còn mệt mỏi trước, trái lại mang chút nuông chiều bất đắc dĩ chính hắn cũng chưa nhận ra.
+"Lý lẽ lệch lạc"
+
+Ấy khiến phần phân tích về quản lý rủi ro Karl chuẩn bị sẵn đều kẹt trong cổ họng. Hắn đứng hình. Trong đôi mắt đen sâu thẳm luôn vận hành như thiết bị tinh xảo lần đầu lộ rõ vẻ… hoang mang. Thế giới quan logic chặt chẽ của hắn dường như bị "thuyết đoàn kịch tạm bợ" đơn giản thô bạo đầy tinh thần lạc quan con người của cô ấy đâm trúng. Hắn nhìn gương mặt cô ấy ghi
+
+"Chúng ta nghèo nhưng chúng ta vui"
+
+, khóe miệng căng có vẻ muốn giật nhưng cuối cùng nhịn được. Mấy giây sau hắn mới từ
+
+"Số liệu không thể phân tích"
+
+Ấy hoàn hồn, nhẹ nhàng, gần như không nghe thở dài. Trong hơi thở ấy không còn mệt mỏi trước, trái lại mang chút nuông chiều bất đắc dĩ chính hắn cũng chưa nhận ra.
 
 "… Cô nói có lý, quản lý nhân."
 
 Giọng hắn vẫn khàn nhưng vai căng không tự chủ thả lỏng, Tôi nghĩ quá phức tạp rồi.
 
-Hắn dường như bỏ dùng logic ma quỷ để khuyên cô ấy, chuyển sang chấp nhận "triết lý ông chủ con người" độc đáo của cô ấy.
+Hắn dường như bỏ dùng logic ma quỷ để khuyên cô ấy, chuyển sang chấp nhận
 
-"Vậy để quán bar "nghèo xác xơ" của chúng ta sớm mở cửa kiếm tiền, trả lương nhân viên và bắt đầu tiết kiệm cho xưởng ông Tú Cốt…"
+"Triết lý ông chủ con người"
+
+Độc đáo của cô ấy.
+
+"Vậy để quán bar "
+
+Nghèo xác xơ
+
+" của chúng ta sớm mở cửa kiếm tiền, trả lương nhân viên và bắt đầu tiết kiệm cho xưởng ông Tú Cốt…"
 
 Hắn kéo chủ đề về vấn đề thực tế nhất, Bước tiếp theo chúng ta nên làm gì?
 
@@ -5894,7 +6396,11 @@ Hắn kéo chủ đề về vấn đề thực tế nhất, Bước tiếp theo 
 
 Lời cô ấy rõ ràng đầy tự tin, như tia sáng xua tan chút u ám trong phòng. Cô ấy đem kế hoạch của mình nói hết, mỗi mắt xích đều nối khớp vừa vặn.
 
-Karl yên lặng lắng nghe, không ngắt lời. Khi cô ấy nói để Tây Nhĩ Phàm và Cách Lôi Cách dùng "Liệt Dương Mạch Tửu" kinh doanh, hắn khẽ gật công nhận phương án vận hành cơ bản. Khi cô ấy nói đã trích được "một giọt tiếc nuối" từ Tây Nhĩ Phàm, trong đôi mắt sâu thoáng kinh ngạc khó nhận. Hắn rõ ràng không ngờ việc cô ấy vận dụng huyết mạch và xây dựng quan hệ với nhân viên đã tới mức này. Còn khi cô ấy cuối cùng tự tin nói "nghiên cứu cũng không vấn đề gì", môi Karl vốn căng tái nhợt khẽ cong lên, không phải nụ cười, mà như mặt hồ băng dưới nắng xuân nứt một khe nhỏ thoáng qua.
+Karl yên lặng lắng nghe, không ngắt lời. Khi cô ấy nói để Tây Nhĩ Phàm và Cách Lôi Cách dùng "Liệt Dương Mạch Tửu" kinh doanh, hắn khẽ gật công nhận phương án vận hành cơ bản. Khi cô ấy nói đã trích được "một giọt tiếc nuối" từ Tây Nhĩ Phàm, trong đôi mắt sâu thoáng kinh ngạc khó nhận. Hắn rõ ràng không ngờ việc cô ấy vận dụng huyết mạch và xây dựng quan hệ với nhân viên đã tới mức này. Còn khi cô ấy cuối cùng tự tin nói
+
+"Nghiên cứu cũng không vấn đề gì"
+
+, môi Karl vốn căng tái nhợt khẽ cong lên, không phải nụ cười, mà như mặt hồ băng dưới nắng xuân nứt một khe nhỏ thoáng qua.
 
 Bản thiết kế cô ấy vẽ không phải lâu đài trên không. Nó có nguồn dòng tiền ổn định (Liệt Dương Mạch Tửu), có rào cản kỹ thuật cốt lõi (công thức Bình Minh), có giải pháp nguyên liệu then chốt (trích xuất cảm xúc Tây Nhĩ Phàm), còn có hỗ trợ nhân tài đỉnh cao (kỹ thuật Tú Cốt). Đây là vòng khép kín thương mại hoàn chỉnh, khả thi và đầy tiềm năng.
 
@@ -5904,13 +6410,25 @@ Sau khi cô ấy nói hết hắn thấp giọng. Hai chữ ấy không còn man
 
 Hắn nhìn cô ấy, ánh mắt không còn chỉ là báo cáo trợ lý với cấp trên, cũng không còn là sự giám sát của người canh giữ với người thừa kế. Trong ánh mắt ấy thêm sự tập trung bình đẳng, coi cô ấy là "đối tác" thật sự và… tán thưởng.
 
-"Dùng "Liệt Dương Mạch Tửu" làm con bò tiền mặt, tích lũy vốn và danh tiếng, dọn đường cho "Bình Minh" ra đời. Đồng thời tận dụng khe kinh doanh thu thập nguyên liệu cốt lõi "Bình Minh" chi phí thấp…"
+"Dùng "Liệt Dương Mạch Tửu
+
+" làm con bò tiền mặt, tích lũy vốn và danh tiếng, dọn đường cho "
+
+Bình Minh
+
+" ra đời. Đồng thời tận dụng khe kinh doanh thu thập nguyên liệu cốt lõi "
+
+Bình Minh" chi phí thấp…"
 
 Hắn dùng ngôn ngữ logic phân minh lặp lại cốt lõi kế hoạch của cô ấy, mỗi chữ chính xác, Đây là… kế hoạch rất chu toàn, quản lý nhân.
 
 Hắn hơi nghiêng người tới, dù thương chưa lành khí trường chuyên nghiệp thuộc trợ lý đỉnh cao lại xuất hiện.
 
-"Vậy để kế hoạch này khởi động thuận lợi, hắn hỏi, trong giọng mang ý thảo luận, Về "Liệt Dương Mạch Tửu" cô định giá thế nào? Định cao đi đường tinh phẩm tích vốn nhanh? Hay định giá thân dân với tốc độ nhanh nhất chiếm thị trường mở rộng cơ sở khách?"
+"Vậy để kế hoạch này khởi động thuận lợi, hắn hỏi, trong giọng mang ý thảo luận, Về "
+
+Liệt Dương Mạch Tửu
+
+" cô định giá thế nào? Định cao đi đường tinh phẩm tích vốn nhanh? Hay định giá thân dân với tốc độ nhanh nhất chiếm thị trường mở rộng cơ sở khách?"
 
 "Giá chắc chắn không thể thấp, đó là nguồn cung rượu cậu bị thương mới đàm xuống, cậu cũng nói ly rượu ấy chúng ta ít nhất phải bán sáu mươi hồn tệ mới hợp lý hòa vốn. Muốn sản xuất chi phí thấp tự cung tự tiêu hiện không đủ điều kiện, còn phải nghĩ cách tương lai lên núi sản xuất Liệt Dương Thảo đi thảo phạt Dương Xích Trùng gì đó, không giải quyết thì chỉ mua trên thị trường, chúng ta sản xuất mỗi ly đều mất ba bốn chục hồn tệ rồi."
 
@@ -5928,7 +6446,11 @@ Hắn khẳng định phán đoán của cô ấy, Thứ tôi đổi bằng thư
 
 Hắn đứng dậy, bước chậm trong không gian chật hẹp, như năng lượng dồn nén cần thông qua vận động giải phóng.
 
-"Chi phí quyết định đường ranh của chúng ta, chất lượng quyết định trần của chúng ta. Vì "Liệt Dương Mạch Tửu" có chất lượng "cao cấp", chúng ta phải cho nó giá phù hợp thể hiện giá trị."
+"Chi phí quyết định đường ranh của chúng ta, chất lượng quyết định trần của chúng ta. Vì "
+
+Liệt Dương Mạch Tửu" có chất lượng "cao cấp
+
+", chúng ta phải cho nó giá phù hợp thể hiện giá trị."
 
 Tư duy hắn hoàn toàn khớp cô ấy, thậm chí tiến thêm, Vấn đề là khách Ảnh Hạng dựa vào đâu chấp nhận giá cao của chúng ta? Rượu 【Phi Sắc Quỷ Ảnh】 đắt vì Vi Ô Lai Khả bản thân và những Dạ Yêu Cao cấp dưới tay hắn tăng giá trị. Chúng ta có gì?
 
@@ -5950,7 +6472,11 @@ Cô ấy không cho hắn phản bác, giải thích nhanh: , Tôi biết ly rư
 
 Cô ấy nhấn mạnh giọng, ánh mắt rực rỡ nhìn hắn.
 
-"Hiện chúng ta thiếu nhất không phải hồn tệ, mà là danh tiếng! Là để ma quỷ Ảnh Hạng biết 【Huyết Hồng Thánh Bôi】 đã trở lại, và mang theo ly rượu chưa từng có, có "vị mặt trời"! Dùng lợi nhuận ngắn hạn đổi sự chú ý thị trường và cơ sở khách dài hạn, tôi nghĩ đáng!"
+"Hiện chúng ta thiếu nhất không phải hồn tệ, mà là danh tiếng! Là để ma quỷ Ảnh Hạng biết 【Huyết Hồng Thánh Bôi】 đã trở lại, và mang theo ly rượu chưa từng có, có "
+
+Vị mặt trời
+
+"! Dùng lợi nhuận ngắn hạn đổi sự chú ý thị trường và cơ sở khách dài hạn, tôi nghĩ đáng!"
 
 Cô ấy dừng cho hắn tiêu hóa rồi bổ sung: , Chỉ cần chúng ta đưa danh tiếng ra, để lô khách đầu trải nghiệm độc đáo "Liệt Dương Mạch Tửu", họ sẽ thành quảng cáo sống. Khi hoạt động kết thúc khôi phục giá gốc, tự nhiên có người sẵn lòng trả tiền cho độc đáo ấy. Chúng ta đang "đầu tư" tương lai.
 
@@ -6006,7 +6532,11 @@ Giọng khàn của cô ấy vang trong phòng yên tĩnh, mang sự yếu ớt 
 
 Nghe lời cô ấy, vai Karl vốn căng khẽ buông lỏng. Hắn yên lặng ngồi bên giường, ánh đèn mờ in bóng dài lên gương mặt góc cạnh, khiến đôi mắt sâu càng u tối. Hắn không trả lời ngay, chỉ im lặng nhìn cô ấy. Lo lắng và tự trách trong ánh mắt chưa tan hết, nhưng vì câu quan tâm của cô ấy mà nhuốm lớp ấm phức tạp chính hắn chưa nhận ra.
 
-Con người mỏng manh đã cạn hết tinh lực đáng được chăm sóc bảo vệ trong mắt hắn, lúc tỉnh dậy quan tâm không phải bản thân mà là hắn, "người bị thương". Cảm giác này… rất xa lạ.
+Con người mỏng manh đã cạn hết tinh lực đáng được chăm sóc bảo vệ trong mắt hắn, lúc tỉnh dậy quan tâm không phải bản thân mà là hắn,
+
+"Người bị thương"
+
+. Cảm giác này… rất xa lạ.
 
 "So với an nguy của cô, chuyện ấy không đáng kể."
 
@@ -6034,7 +6564,11 @@ Từ ngày mười lăm 【Huyết Hồng Thánh Bôi】 chính thức mở cu�
 
 **Ngày 15–17 (Khai trương khuyến mãi)**
 
-Theo kế hoạch, trước cửa quán treo bảng do Tây Nhĩ Phàm dùng ảo thuật chế tác, trên đó "Liệt Dương Mạch Tửu, vị mặt trời, giảm hai mươi phần trăm có hạn" toả ánh dụ dỗ.
+Theo kế hoạch, trước cửa quán treo bảng do Tây Nhĩ Phàm dùng ảo thuật chế tác, trên đó
+
+"Liệt Dương Mạch Tửu, vị mặt trời, giảm hai mươi phần trăm có hạn"
+
+Toả ánh dụ dỗ.
 
 Hiệu quả rõ ngay. Chiều ngày đầu quán vừa mở cửa đã bị ma quỷ bị "vị mặt trời" và "giảm giá" thu hút ùa đông. Cô ấy và mọi nhân viên dốc sức. Cô ấy tận tay bưng khay xuyên đám khách đông; ảo thuật Tây Nhĩ Phàm khiến mỗi khách cầm ly đều như thấy khoảnh khắc bình minh, tăng trải nghiệm uống mạnh; Cách Lôi Cách như ông Táo, chỉ đứng đó đã khiến mọi kẻ muốn gây sự im re; Lili không biết mệt dọn bàn và sàn, đảm bảo trong hỗn loạn ấy độ sạch quán vẫn chấp nhận được.
 
@@ -6052,7 +6586,15 @@ Cô ấy cùng nhân viên duy trì vận hành hàng ngày, mua rượu thức 
 
 Đồng thời đầu kia Ảnh Hạng, trong văn phòng xa hoa tầng trên quán bar 【Phi Sắc Quỷ Ảnh】. Vi Ô Lai Khả đang tựa ghế sofa nhung nghe thuộc hạ báo cáo.
 
-"… Đúng, chủ nhân. Sản phẩm mới "Liệt Dương Mạch Tửu" của họ gây chấn động không nhỏ trong Ảnh Hạng. Nghe nói uống có "vị mặt trời". Ba ngày bán sạch, hiện nhân khí 【Huyết Hồng Thánh Bôi】 cao hơn trước ít nhất ba lần."
+"… Đúng, chủ nhân. Sản phẩm mới "
+
+Liệt Dương Mạch Tửu
+
+" của họ gây chấn động không nhỏ trong Ảnh Hạng. Nghe nói uống có "
+
+Vị mặt trời
+
+". Ba ngày bán sạch, hiện nhân khí 【Huyết Hồng Thánh Bôi】 cao hơn trước ít nhất ba lần."
 
 Vi Ô Lai Khả ngừng lắc ly, trong mắt đỏ thẫm thoáng hứng thú.
 
@@ -6062,7 +6604,11 @@ Bà cười nhẹ, uống cạn ly, Hậu bối nhỏ của Lili Tư Á cuối c
 
 Bà đứng dậy đi tới cửa sổ kính khổng lồ, nhìn xuống toàn Ảnh Hạng.
 
-"Cho người đi lấy một ly… không, lấy công thức của nó. Ta muốn xem "mặt trời" gì dám mọc trong Ảnh Hạng của ta."
+"Cho người đi lấy một ly… không, lấy công thức của nó. Ta muốn xem "
+
+Mặt trời
+
+" gì dám mọc trong Ảnh Hạng của ta."
 
 ***
 
@@ -6116,7 +6662,11 @@ Hắn chủ động thừa nhận sự nôn nóng.
 
 Hắn nhanh chóng chỉnh trạng thái, lại vào vai trợ lý, Trong hai tuần đệm ấy trọng tâm chiến lược chúng ta nên đặt ở đâu?
 
-"Chúng ta sửa sang quán bar một chút, cũ quá rồi. Rồi ông Tú Cốt phiền ông trong lúc làm việc hàng ngày bắt đầu dùng trái dương quang nghiên cứu Bình Minh, còn nguyên liệu kia tuần này Tây Nhĩ Phàm cũng thu thập thêm "một giọt tiếc nuối" dùng thí nghiệm. Ngoài hai việc ấy chúng ta tiếp tục mua rượu thức ăn nguyên liệu và nấu rượu, kinh doanh bình thường."
+"Chúng ta sửa sang quán bar một chút, cũ quá rồi. Rồi ông Tú Cốt phiền ông trong lúc làm việc hàng ngày bắt đầu dùng trái dương quang nghiên cứu Bình Minh, còn nguyên liệu kia tuần này Tây Nhĩ Phàm cũng thu thập thêm "
+
+Một giọt tiếc nuối
+
+" dùng thí nghiệm. Ngoài hai việc ấy chúng ta tiếp tục mua rượu thức ăn nguyên liệu và nấu rượu, kinh doanh bình thường."
 
 Lời cô ấy lạnh lặng rõ ràng, như dòng suối mát rót vào văn phòng hơi nóng vì lợi nhuận. Cô ấy không chọn thừa thắng xông lên mà ổn định đạp phanh, đưa ánh nhìn vào rủi ro ẩn dưới mặt nước phẳng lặng.
 
@@ -6178,7 +6728,11 @@ Cô ấy không như thường lên lầu ngay mà xuyên đại sảnh đi th�
 
 Nghe khen hắn có vẻ không tự nhiên, cổ họng phát âm trầm như đáp lại hay khiêm tốn. Cô ấy không để ý phản ứng ấy, tiếp tục: , Cậu cũng thấy rồi, dạo này khách quán bar ngày càng nhiều, chỉ cậu một mình tôi lo không đủ. Vả… tình hình đêm nay cậu cũng thấy, chúng ta có thể cần lực lượng an ninh mạnh hơn. Tôi muốn nghe ý kiến cậu, chúng ta có nên tuyển thêm nhân viên an ninh không?
 
-Cách Lôi Cách im lặng lắng nghe. Trên mặt đá kiên nghị không đọc ra biểu cảm, nhưng khi cô ấy nói "lực lượng an ninh mạnh hơn" đôi mắt cháy rõ ràng sáng lên, như chạm vào lĩnh vực hắn cực quan tâm.
+Cách Lôi Cách im lặng lắng nghe. Trên mặt đá kiên nghị không đọc ra biểu cảm, nhưng khi cô ấy nói
+
+"Lực lượng an ninh mạnh hơn"
+
+Đôi mắt cháy rõ ràng sáng lên, như chạm vào lĩnh vực hắn cực quan tâm.
 
 Hắn không trả lời ngay mà dùng đôi mắt sắc bén quét một vòng đại sảnh mới sửa. Ánh mắt quét qua bàn ghế mới vững, quét qua quầy bar sáng bóng, cuối cùng dừng trên người cô ấy. Ánh nhìn ấy như đang đánh giá từng tấc lãnh địa và thủ lĩnh "tộc quần" này.
 
@@ -6186,9 +6740,17 @@ Hắn không trả lời ngay mà dùng đôi mắt sắc bén quét một vòng
 
 Hắn dừng, như đang suy nghĩ cách dùng vốn từ không giàu có diễn đạt ý phức tạp hơn.
 
-"Nhưng không phải "người" nào cũng được. Kẻ yếu sẽ thành gánh nặng. Kẻ không trung thành sẽ từ bên trong cắn thủng cổ chúng ta."
+"Nhưng không phải "
 
-Hắn dùng ví dụ nguyên thuỷ thẳng thắn nhất trình bày yêu cầu với thành viên mới, Tôi cần trợ thủ nhưng phải là… "đồng loại".
+Người
+
+" nào cũng được. Kẻ yếu sẽ thành gánh nặng. Kẻ không trung thành sẽ từ bên trong cắn thủng cổ chúng ta."
+
+Hắn dùng ví dụ nguyên thuỷ thẳng thắn nhất trình bày yêu cầu với thành viên mới, Tôi cần trợ thủ nhưng phải là…
+
+"Đồng loại"
+
+.
 
 Ngọn lửa trong mắt nhảy động, như đang mong đợi quyết định của cô ấy. Sự tôn trọng và hỏi ý của cô ấy khiến hắn cảm nhận giá trị "Vệ binh trưởng" và sẵn lòng chia sẻ kiến thức chuyên môn về "bảo vệ".
 
@@ -6242,7 +6804,11 @@ Hắn không nói sợ hãi mà dùng từ "không thoải mái". Với con bư�
 
 Hắn nhanh chóng ngẩng đầu, cố gắng muốn cô ấy yên lòng, trong đôi mắt tím ánh lên lại tinh quang,
 
-"Hôm nay… tôi đã thu thập được vài giọt "tiếc nuối" rất thuần khiết. Đại khái khách cảm thấy khoảng thời gian tươi đẹp như vậy quá ngắn ngủi."
+"Hôm nay… tôi đã thu thập được vài giọt "
+
+Tiếc nuối
+
+" rất thuần khiết. Đại khái khách cảm thấy khoảng thời gian tươi đẹp như vậy quá ngắn ngủi."
 
 Hắn trưng bày giá trị nhân viên của mình trước mặt cô ấy, tựa muốn chứng minh không vì cảm xúc mà ảnh hưởng công việc, vẻ thận trọng ấy khiến lòng cô ấy không khỏi mềm ra.
 
@@ -6258,7 +6824,11 @@ Lời cô ấy khiến Tây Nhĩ Phàm giật mình sửng sốt, đôi mắt t�
 
 Cô ấy không cho hắn cơ hội phản bác, tiếp tục dùng giọng vừa an ủi vừa tự thuyết phục mình:
 
-"Tuy nhiên đã ổn rồi. Gã ấy đã bị đuổi đi, và tôi đã nhờ Cách Lôi Cách tuyển người mới. Rất sớm thôi, "ngôi nhà" của chúng ta sẽ trở nên an toàn hơn."
+"Tuy nhiên đã ổn rồi. Gã ấy đã bị đuổi đi, và tôi đã nhờ Cách Lôi Cách tuyển người mới. Rất sớm thôi, "
+
+Ngôi nhà
+
+" của chúng ta sẽ trở nên an toàn hơn."
 
 Tác dụng của lời cô ấy xa vượt bất kỳ "đừng bận tâm" hay "không sao" nào.
 
@@ -6332,7 +6902,15 @@ Hắn vừa chọn vừa dùng giọng chuyên nghiệp giải thích cho cô �
 
 Hắn cuối cùng từ góc khuất không đáng chú ý lấy ra một chai thuỷ tinh đựng chất lỏng màu hồng nhạt. Thân chai nhỏ xinh, chất lỏng bên trong dưới ánh đèn toả sáng dịu êm.
 
-"Chính là cái này rồi. "Thấp Ngữ Hoa Mật". Loại rượu này ủ từ loài hoa chỉ mọc nơi tĩnh lặng, lấy cảm xúc "hạnh phúc nhỏ nhoi" của ác ma làm dưỡng chất, vị rất thanh ngọt, năng lượng cũng ôn hoà. Trước đây tôi đã lén nếm thử một chút, cảm thấy ngài chắc chắn sẽ thích."
+"Chính là cái này rồi. "
+
+Thấp Ngữ Hoa Mật
+
+". Loại rượu này ủ từ loài hoa chỉ mọc nơi tĩnh lặng, lấy cảm xúc "
+
+Hạnh phúc nhỏ nhoi
+
+" của ác ma làm dưỡng chất, vị rất thanh ngọt, năng lượng cũng ôn hoà. Trước đây tôi đã lén nếm thử một chút, cảm thấy ngài chắc chắn sẽ thích."
 
 Hắn đặt chai rượu cẩn thận lên quầy bar, trên mặt mang nụ cười hơi đắc ý.
 
@@ -6350,9 +6928,17 @@ Cô ấy dùng giọng nhẹ nhàng thân thiết, mang chút phàn nàn nhỏ n
 
 Câu đùa của cô ấy khiến sắc mặt lạnh lùng vạn năm không đổi của Karl xuất hiện tia lung lay cực nhỏ. Ánh mắt hắn nhìn cô ấy có vẻ có cảm xúc gì thoáng qua, nhanh đến mức cô ấy không bắt kịp. Hắn không trực tiếp đáp lại sự trêu chọc của cô ấy, mà chuyển ánh mắt sang ly rượu trên tay cô ấy, dùng giọng nghiêm túc như đọc báo cáo vốn có của mình:
 
-"Quản lý nhân, trước khi chưa xác định thể chất ngài có thể thích ứng với cấu trúc năng lượng địa ngục hay không, tuỳ tiện để ngài uống đồ uống chưa biết thuộc hành vi rủi ro cao. Bây giờ, sau quan sát và đánh giá, xác nhận dao động năng lượng của "Thấp Ngữ Hoa Mật" nằm trong ngưỡng an toàn, là lựa chọn phù hợp."
+"Quản lý nhân, trước khi chưa xác định thể chất ngài có thể thích ứng với cấu trúc năng lượng địa ngục hay không, tuỳ tiện để ngài uống đồ uống chưa biết thuộc hành vi rủi ro cao. Bây giờ, sau quan sát và đánh giá, xác nhận dao động năng lượng của "
 
-Hắn dùng chuỗi thuật ngữ chuyên môn giải thích hoàn hảo vì sao mãi đến bây giờ mới cho cô ấy uống rượu, ý là "không phải không cho uống, mà là trước đây không an toàn". Vẻ nghiêm túc khiến cô ấy không nhịn được cười.
+Thấp Ngữ Hoa Mật
+
+" nằm trong ngưỡng an toàn, là lựa chọn phù hợp."
+
+Hắn dùng chuỗi thuật ngữ chuyên môn giải thích hoàn hảo vì sao mãi đến bây giờ mới cho cô ấy uống rượu, ý là
+
+"Không phải không cho uống, mà là trước đây không an toàn"
+
+. Vẻ nghiêm túc khiến cô ấy không nhịn được cười.
 
 Cô ấy không trêu hắn nữa, chuyển sang nâng ly rượu trên tay, vành ly thuỷ tinh trong trẻo dưới ánh đèn khúc xạ ánh sáng ấm áp. Trong đại sảnh ánh mắt tất cả nhân viên đều tập trung về phía cô ấy.
 
@@ -6378,7 +6964,9 @@ Nghe lời khen của cô ấy mắt Tây Nhĩ Phàm sáng như hai ngôi sao t�
 
 Vị ngọt của "Thấp Ngữ Hoa Mật" trong miệng cô ấy chưa hoàn toàn tan đi, cô ấy mang chút tò mò say say chuyển ánh mắt sang Tây Nhĩ Phàm đang phấn khích vì lời khen của cô ấy.
 
-"Tây Nhĩ Phàm, đã có rượu ủ từ "hạnh phúc nhỏ nhoi", vậy có rượu ủ từ "đại hoan hỉ" hay "tình yêu cuồng nhiệt" không?"
+"Tây Nhĩ Phàm, đã có rượu ủ từ "
+
+Hạnh phúc nhỏ nhoi", vậy có rượu ủ từ "đại hoan hỉ" hay "tình yêu cuồng nhiệt" không?"
 
 Cô ấy cười hỏi.
 
@@ -6390,17 +6978,35 @@ Tây Nhĩ Phàm kích động nghiêng người về phía trước, đôi cánh
 
 Hắn nhanh chóng thu lại chút phấn khích, chuyển sang dùng giọng chuyên nghiệp hơn, mang phần nghiêm túc giải thích:
 
-"Tuy nhiên cảm xúc thuần khiết mãnh liệt như "đại hoan hỉ" giống như sao băng vạch qua bầu trời đêm, rực rỡ chói lọi nhưng cũng thoáng qua. Bắt được khoảnh khắc thuần khiết nhất của nó rất khó, phần lớn lúc phản ứng được thì nó đã pha tạp nỗi lo "sợ mất" hay tạp chất "kiêu ngạo tự mãn", không còn thuần khiết nữa."
+"Tuy nhiên cảm xúc thuần khiết mãnh liệt như "
+
+Đại hoan hỉ
+
+" giống như sao băng vạch qua bầu trời đêm, rực rỡ chói lọi nhưng cũng thoáng qua. Bắt được khoảnh khắc thuần khiết nhất của nó rất khó, phần lớn lúc phản ứng được thì nó đã pha tạp nỗi lo "
+
+Sợ mất" hay tạp chất "kiêu ngạo tự mãn
+
+", không còn thuần khiết nữa."
 
 Hắn ngừng lại, thần sắc trở nên trầm trọng hơn, thậm chí mang tia kính sợ.
 
-"Còn "tình yêu cuồng nhiệt"… thì càng… càng nguy hiểm hơn. Ở địa ngục tình cảm yêu thương thuần khiết vốn đã hiếm hơn ma tinh. Một khi tình cảm ấy trở nên cuồng nhiệt, nó và chấp niệm sâu nhất, dục vọng chiếm hữu điên cuồng nhất thường chỉ cách một ranh giới. Rượu ủ từ cảm xúc này là cấm phẩm đẳng cấp cao nhất. Người uống có thể thấy ảo ảnh thiên đường, nhưng xác suất lớn hơn là sẽ trực tiếp thiêu cháy lý trí của mình, sa vào điên cuồng không thể cứu vãn."
+"Còn "tình yêu cuồng nhiệt
+
+"… thì càng… càng nguy hiểm hơn. Ở địa ngục tình cảm yêu thương thuần khiết vốn đã hiếm hơn ma tinh. Một khi tình cảm ấy trở nên cuồng nhiệt, nó và chấp niệm sâu nhất, dục vọng chiếm hữu điên cuồng nhất thường chỉ cách một ranh giới. Rượu ủ từ cảm xúc này là cấm phẩm đẳng cấp cao nhất. Người uống có thể thấy ảo ảnh thiên đường, nhưng xác suất lớn hơn là sẽ trực tiếp thiêu cháy lý trí của mình, sa vào điên cuồng không thể cứu vãn."
 
 Hắn hạ giọng, tựa đang nói về điều cấm kỵ.
 
 Đúng lúc này Karl vốn im lặng thưởng rượu dùng giọng bình ổn không mang cảm xúc bổ sung chú thích lạnh lùng cho luận thuật của Tây Nhĩ Phàm:
 
-"Hắn nói đúng sự thật. Thuật luyện kim lấy cảm xúc tích cực mãnh liệt làm trung tâm, sự không chắc chắn của nó xa vượt cảm xúc tiêu cực. Theo ghi chép của "Vạn Điển Chi Đình", Kỷ nguyên thứ ba từng có một nữ nhà ủ rượu mị ma nổi tiếng thành công ủ ra ba chai "Nước mắt Thần Ái Tình". Một chai tạo nên một quân vương, hai chai kia… hủy diệt hai quốc gia."
+"Hắn nói đúng sự thật. Thuật luyện kim lấy cảm xúc tích cực mãnh liệt làm trung tâm, sự không chắc chắn của nó xa vượt cảm xúc tiêu cực. Theo ghi chép của "
+
+Vạn Điển Chi Đình
+
+", Kỷ nguyên thứ ba từng có một nữ nhà ủ rượu mị ma nổi tiếng thành công ủ ra ba chai "
+
+Nước mắt Thần Ái Tình
+
+". Một chai tạo nên một quân vương, hai chai kia… hủy diệt hai quốc gia."
 
 Sự trình bày sự thật lạnh lùng của Karl và mô tả đầy kính sợ của Tây Nhĩ Phàm khiến bầu không khí nhẹ nhàng quanh quầy bar trong nháy mắt trầm xuống vài phần. Cô ấy nhìn chất lỏng hồng vô hại trong ly nhất thời cảm thấy có chút nóng tay.
 
@@ -6414,7 +7020,19 @@ Lời cô ấy mang màu sắc lãng mạn của chuyện tình yêu nhân gian,
 
 Tây Nhĩ Phàm nghe lời cô ấy trước tiên sửng sốt, sau đó trong đôi mắt tím lộ tia cười không nhịn được. Hắn cảm thấy suy nghĩ ngây thơ của cô ấy lúc này đáng yêu vô cùng.
 
-"Quản lý, đó là suy nghĩ rất… rất của con người. Tình yêu thật sự không thể được ủ ra. Loại cấm dược ấy, nó không "tạo ra" tình yêu, nó chỉ đem chút "khao khát" hay "dục vọng chiếm hữu" nhỏ nhất trong lòng người uống phóng đại gấp vạn lần, biến thành chấp niệm hủy diệt không thể thoát khỏi. Đó không phải đắm trong tình yêu, mà là tự mặc cho mình gông cùm mang tên "yêu", đau khổ nhất."
+"Quản lý, đó là suy nghĩ rất… rất của con người. Tình yêu thật sự không thể được ủ ra. Loại cấm dược ấy, nó không "
+
+Tạo ra
+
+" tình yêu, nó chỉ đem chút "
+
+Khao khát" hay "dục vọng chiếm hữu
+
+" nhỏ nhất trong lòng người uống phóng đại gấp vạn lần, biến thành chấp niệm hủy diệt không thể thoát khỏi. Đó không phải đắm trong tình yêu, mà là tự mặc cho mình gông cùm mang tên "
+
+Yêu
+
+", đau khổ nhất."
 
 Hắn cười giải thích, giọng dịu dàng hơn nhiều, như đang giải thích chân lý thế giới cho đứa trẻ đầy tò mò.
 
@@ -6452,11 +7070,25 @@ Hắn đắm đuối nhìn cô ấy, đôi mắt tím luôn lưu chuyển ánh s
 
 Hắn thất thần lặp lại từ ấy, rồi trên mặt nở ra nụ cười rạng rỡ chưa từng có, hỗn tạp giữa cuồng nhiệt và say đắm, nụ cười khiến đôi cánh bướm đẹp kia cũng phấn khích run rẩy.
 
-"Không… quản lý nhân, điểm này không hề tham lam. Ngài có biết không? Ở địa ngục chúng tôi theo đuổi sức mạnh, theo đuổi của cải, theo đuổi vĩnh sinh… chúng tôi theo đuổi mọi thứ "có giá trị", duy chỉ… duy chỉ không theo đuổi "niềm vui" bản thân. Vì "niềm vui" là quá trình, không phải kết quả, nó không có thực thể, không thể định lượng, không thể tích trữ… nó "không đáng một xu"."
+"Không… quản lý nhân, điểm này không hề tham lam. Ngài có biết không? Ở địa ngục chúng tôi theo đuổi sức mạnh, theo đuổi của cải, theo đuổi vĩnh sinh… chúng tôi theo đuổi mọi thứ "
+
+Có giá trị
+
+", duy chỉ… duy chỉ không theo đuổi "
+
+Niềm vui" bản thân. Vì "niềm vui
+
+" là quá trình, không phải kết quả, nó không có thực thể, không thể định lượng, không thể tích trữ… nó "
+
+Không đáng một xu"."
 
 Hắn dùng giọng điệu gần như ngâm vịnh, tràn đầy nhiệt huyết nghệ sĩ nói.
 
-"Nhưng ngài… ngài lại thẳng thắn đem thứ "không đáng một xu" ấy làm theo đuổi tham lam nhất suốt đời. Điều này… điều này đơn giản là… tác phẩm nghệ thuật xa xỉ nhất, ngang ngạnh nhất, đẹp đẽ nhất mà tôi từng thấy!"
+"Nhưng ngài… ngài lại thẳng thắn đem thứ "
+
+Không đáng một xu
+
+" ấy làm theo đuổi tham lam nhất suốt đời. Điều này… điều này đơn giản là… tác phẩm nghệ thuật xa xỉ nhất, ngang ngạnh nhất, đẹp đẽ nhất mà tôi từng thấy!"
 
 Hắn nhìn vào mắt cô ấy, ánh mắt sáng lạ thường.
 
@@ -6472,13 +7104,23 @@ Cô ấy mang chút e thẹn và nụ cười nhìn Tây Nhĩ Phàm vẫn đầy
 
 Lời bổ sung tuyên bố "ly kinh bạn đạo" hơn nữa của cô ấy như đổ thêm một thùng dầu sôi lên ngọn lửa tên "nghệ thuật" của Tây Nhĩ Phàm.
 
-"Không! Không phóng đại! Không hề phóng đại! Quản lý ngài không hiểu! "Không làm việc, không cần suy nghĩ gì", ở địa ngục đây là giấc mơ xa xỉ hơn cả trở thành quân vương! Ý nghĩa là tự do tuyệt đối và an toàn tuyệt đối! Đây là… là ảo tưởng tối cao của mọi linh hồn đang vùng vẫy trong khe hở khế ước và pháp tắc! Ngài lại… lại dễ dàng như vậy thốt ra, còn đem nó làm "mục tiêu"!"
+"Không! Không phóng đại! Không hề phóng đại! Quản lý ngài không hiểu! "
+
+Không làm việc, không cần suy nghĩ gì
+
+", ở địa ngục đây là giấc mơ xa xỉ hơn cả trở thành quân vương! Ý nghĩa là tự do tuyệt đối và an toàn tuyệt đối! Đây là… là ảo tưởng tối cao của mọi linh hồn đang vùng vẫy trong khe hở khế ước và pháp tắc! Ngài lại… lại dễ dàng như vậy thốt ra, còn đem nó làm "
+
+Mục tiêu"!"
 
 Tây Nhĩ Phàm lắc đầu mạnh, trong đôi mắt tím ánh lên tia sáng gần như tín đồ cuồng nhiệt.
 
 Hắn nhìn cô ấy như nhìn thần tích đi bộ. Đối với hắn cuộc sống "nằm dài" cô ấy mô tả là sự xa xỉ cấp cao nhất mà sinh vật địa ngục không thể tưởng tượng nổi.
 
-"Đẹp quá… sự theo đuổi thuần khiết không trang sức gì đối với "hư vô"… đơn giản là… thiên sử thi cuối cùng của chủ nghĩa hư vô!"
+"Đẹp quá… sự theo đuổi thuần khiết không trang sức gì đối với "
+
+Hư vô
+
+"… đơn giản là… thiên sử thi cuối cùng của chủ nghĩa hư vô!"
 
 Hắn say đắm nhắm mắt, tựa đang thưởng thức "tính nghệ thuật" vô song trong lời cô ấy.
 
@@ -6486,7 +7128,15 @@ Các ác ma khác bên quầy bar, Lili và hai ác ma, dù không hiểu "chủ
 
 Còn Karl hắn cuối cùng ngẩng mắt lên từ trầm tư. Hắn không nhìn Tây Nhĩ Phàm đang kích động mà đặt ánh mắt lên người cô ấy. Ánh mắt ấy rất bình tĩnh, lại như xuyên qua cơ thể cô ấy đang xem xét chất lượng linh hồn cô ấy.
 
-"Quản lý nhân, "tự do" ngài theo đuổi và "trật tự" Lili Tư Á đại nhân theo đuổi, về bản chất có lẽ không xung đột. Chỉ là con đường đến mục tiêu ngài, có thể cần xây dựng trên một "trật tự" đủ mạnh để bỏ qua mọi quy tắc."
+"Quản lý nhân, "
+
+Tự do" ngài theo đuổi và "trật tự
+
+" Lili Tư Á đại nhân theo đuổi, về bản chất có lẽ không xung đột. Chỉ là con đường đến mục tiêu ngài, có thể cần xây dựng trên một "
+
+Trật tự
+
+" đủ mạnh để bỏ qua mọi quy tắc."
 
 Hắn mở miệng, giọng vẫn bình ổn như mọi khi nhưng mang ý vị dò hỏi chưa từng có, nghiêm túc.
 
@@ -6528,7 +7178,9 @@ Hắn trước tiên đọc tên cô ấy, rồi mới như sửa chương trìn
 
 Nhìn ánh mắt gần như cuồng nhiệt của Tây Nhĩ Phàm và vẻ Karl đang chìm trong trầm tư sâu sắc, cô ấy cảm thấy chủ đề này đã đi đến hướng siêu hình vượt tầm kiểm soát. Cô ấy hơi bất lực, hơi buồn cười vẫy tay, quyết định ép con xe sắp chạy lên thiên không triết học kéo về mặt đất.
 
-"Thôi thôi, đừng nói những chủ đề chán nản này nữa. Trễ rồi, mọi người cũng mệt cả ngày rồi. Hôm nay ăn mừng đến đây. Đi nghỉ đi, ngày mai chúng ta còn phải tiếp tục đấu tranh cho "tự do" của mình."
+"Thôi thôi, đừng nói những chủ đề chán nản này nữa. Trễ rồi, mọi người cũng mệt cả ngày rồi. Hôm nay ăn mừng đến đây. Đi nghỉ đi, ngày mai chúng ta còn phải tiếp tục đấu tranh cho "
+
+Tự do" của mình."
 
 Giọng cô ấy không lớn nhưng như tiếng vỗ tay trong trẻo, trong nháy mắt phá vỡ bầu không khí quỷ dị hỗn tạp giữa cuồng tưởng nghệ thuật và bão logic tại hiện trường.
 
@@ -6628,17 +7280,29 @@ Rất lâu sau hắn cuối cùng mở miệng, giọng trầm hơn bất kỳ l
 
 Hắn vẫn dùng khuôn khổ logic nghiêm ngặt đến lạnh lùng, nhưng lần này hắn không liệt kê bất kỳ dữ liệu nào.
 
-"Trong tháng này ngài đã chuyển quán bar từ trạng thái tài sản âm sang cơ thể thương mại bình thường có dòng tiền ổn định và kỳ vọng sinh lợi. Ngài từ con số không bắt đầu, xây dựng đội ngũ hạt nhân đặc sắc và có mức độ trung thành cực cao. Ngài thành công ứng phó đe doạ thương mại từ "Xưởng Nấu Rượu Hài Cốt" và "Phi Sắc Quỷ Ảnh". Ngài không chỉ bảo toàn tài sản quán bar mà còn qua cải tạo khiến giá trị tăng lên."
+"Trong tháng này ngài đã chuyển quán bar từ trạng thái tài sản âm sang cơ thể thương mại bình thường có dòng tiền ổn định và kỳ vọng sinh lợi. Ngài từ con số không bắt đầu, xây dựng đội ngũ hạt nhân đặc sắc và có mức độ trung thành cực cao. Ngài thành công ứng phó đe doạ thương mại từ "
+
+Xưởng Nấu Rượu Hài Cốt" và "Phi Sắc Quỷ Ảnh
+
+". Ngài không chỉ bảo toàn tài sản quán bar mà còn qua cải tạo khiến giá trị tăng lên."
 
 Mỗi câu hắn nói nhịp tim cô ấy tăng thêm một chút. Vì cô ấy biết đây chỉ là khúc dạo đầu.
 
 Hắn ngừng lại, trong đôi mắt sâu thẳm kia có gì đang phá băng.
 
-"Vì vậy nếu chỉ với tư cách "quản lý thực tập"…"
+"Vì vậy nếu chỉ với tư cách "
+
+Quản lý thực tập"…"
 
 Hắn hơi nghiêng người về phía trước, trên gương mặt luôn hoàn hảo như điêu khắc lần đầu lộ ra cảm xúc gần như… dịu dàng.
 
-"Biểu hiện của ngài không có gì để chê. Nhưng quản lý nhân Lâm Vãn… những gì ngài làm đã vượt xa phạm trù "quản lý". Ngài khiến nơi này… lại có dáng vẻ "ngôi nhà"."
+"Biểu hiện của ngài không có gì để chê. Nhưng quản lý nhân Lâm Vãn… những gì ngài làm đã vượt xa phạm trù "
+
+Quản lý
+
+". Ngài khiến nơi này… lại có dáng vẻ "
+
+Ngôi nhà"."
 
 Hắn dùng giọng chỉ cô ấy nghe được, gần như thì thầm, nói ra kết luận cuối cùng.
 
@@ -6744,7 +7408,11 @@ Nhìn Karl đã phấn chấn lại, khôi phục bình tĩnh và tập trung, t
 
 Cô ấy cố ý nhấn mạnh hai chữ "trợ lý", giọng đầy chế nhạo. Ngay sau đó cô ấy đưa tay ra phía hắn, lòng bàn tay ngửa, ngón tay còn tinh nghịch vẫy vẫy.
 
-"Quản lý nhân Lâm Vãn, tôi không phải cố vấn nhân sự của ngài. Tôi là trợ lý của ngài. Còn lương của ngài… theo quy tắc thương mại địa ngục và thân phận chủ sở hữu duy nhất 【Huyết Hồng Thánh Bôi】 của ngài, toàn bộ lợi nhuận ròng của quán bar đều thuộc về ngài. Vì vậy ngài muốn bây giờ rút "lương" tháng này từ tài sản của ngài không?"
+"Quản lý nhân Lâm Vãn, tôi không phải cố vấn nhân sự của ngài. Tôi là trợ lý của ngài. Còn lương của ngài… theo quy tắc thương mại địa ngục và thân phận chủ sở hữu duy nhất 【Huyết Hồng Thánh Bôi】 của ngài, toàn bộ lợi nhuận ròng của quán bar đều thuộc về ngài. Vì vậy ngài muốn bây giờ rút "
+
+Lương
+
+" tháng này từ tài sản của ngài không?"
 
 Karl không chạm vào tay cô ấy giơ ra mà quay người đi đến chiếc hộp gỗ cổ kính đựng hồn tệ sau quầy bar.
 
@@ -6752,7 +7420,19 @@ Karl không chạm vào tay cô ấy giơ ra mà quay người đi đến chiế
 
 Cô ấy nhìn vẻ bối rối của hắn vội vẫy tay, giải thích logic của cô ấy rõ hơn.
 
-"Tôi hiểu rồi. Tồn tại một số… kênh. Hệ thống kinh tế địa ngục phức tạp hơn bề ngoài nhiều. Có những tổ chức đi trong vùng xám chuyên xử lý chuyển đổi giá trị xuyên chiều. Họ có thể thông qua nghi thức và khế ước cụ thể, "chiếu" năng lượng hồn tệ thành vật tương đương giới phàm nhân. Nếu ngài cần, tôi có thể điều tra "Sở giao dịch Hắc Kim" ở "Khu Ống Rỉ". Theo tài liệu tôi có, họ là cơ quan xử lý loại nghiệp vụ này "đáng tin" nhất ở Ảnh Hạng."
+"Tôi hiểu rồi. Tồn tại một số… kênh. Hệ thống kinh tế địa ngục phức tạp hơn bề ngoài nhiều. Có những tổ chức đi trong vùng xám chuyên xử lý chuyển đổi giá trị xuyên chiều. Họ có thể thông qua nghi thức và khế ước cụ thể, "
+
+Chiếu
+
+" năng lượng hồn tệ thành vật tương đương giới phàm nhân. Nếu ngài cần, tôi có thể điều tra "
+
+Sở giao dịch Hắc Kim" ở "Khu Ống Rỉ
+
+". Theo tài liệu tôi có, họ là cơ quan xử lý loại nghiệp vụ này "
+
+Đáng tin
+
+" nhất ở Ảnh Hạng."
 
 Karl ngẩng đầu, nhìn lại cô ấy, ánh mắt đã khôi phục bình tĩnh và tập trung.
 
@@ -6806,11 +7486,11 @@ Cô ấy đi xuống lầu, băng qua Lili và các ác ma đang quét dọn, đ
 
 Tú Cốt thân hình lực lưỡng đang quay lưng lại, cái lưng rộng của hắn gần như che khuất toàn bộ ánh sáng. Hắn đang chuyên tâm điều chỉnh một bộ thiết bị chưng cất bằng đồng thau trông cực kỳ phức tạp, trên thiết bị nối với nhiều ống thủy tinh to nhỏ khác nhau, bên trong có chất lỏng màu sắc khác nhau đang sôi ì ạch, tuần hoàn, phát ra tiếng "ục ục".
 
-Cô ấy bước lại gần, mới ngửi thấy trong không khí ngoài những mùi lạ đó, còn xen lẫn chút... vị đắng cháy khét của trái cây.
+Cô ấy bước lại gần, mới ngửi thấy trong không khí ngoài những mùi lạ đó, còn xen lẫn chút... Vị đắng cháy khét của trái cây.
 
 "Thưa Tú Cốt,"
 
-cô ấy lên tiếng hỏi.
+Cô ấy lên tiếng hỏi.
 
 "'Bình Minh' nghiên cứu còn thuận lợi không?"
 
@@ -6842,7 +7522,7 @@ Cô ấy nhìn những trái Dương Quang bị đốt thành than, rồi nhìn 
 
 "Chuyện thiết bị có thể còn phải hai tuần nữa,"
 
-cô ấy thành thật nói, vấn đề thiếu vốn là vấn đề thực tế.
+Cô ấy thành thật nói, vấn đề thiếu vốn là vấn đề thực tế.
 
 "Anh xem giờ chỉ cần nghiên cứu ra, không đòi hỏi sản xuất hàng loạt thì tôi có thể giúp được gì không?"
 
@@ -6866,11 +7546,11 @@ Hắn giải thích bằng giọng ồm ồm.
 
 Hắn giơ đôi bàn tay to như bàn chân gấu, đầy chai sạn và dầu mỡ.
 
-"Tay tôi dùng để cầm búa và kẹp lửa. Loại điều khiển năng lượng tinh tế hơn cả sợi tóc, phải hoàn thành trong nháy mắt... tôi làm không được."
+"Tay tôi dùng để cầm búa và kẹp lửa. Loại điều khiển năng lượng tinh tế hơn cả sợi tóc, phải hoàn thành trong nháy mắt... Tôi làm không được."
 
-Cuối cùng hắn nhìn lại cô ấy, đôi mắt đang cháy lần đầu tiên mang theo chút... kỳ vọng miễn cưỡng.
+Cuối cùng hắn nhìn lại cô ấy, đôi mắt đang cháy lần đầu tiên mang theo chút... Kỳ vọng miễn cưỡng.
 
-"Anh nói anh có thể cảm nhận năng lượng. Nếu anh có thể khi tôi điều khiển van, nói cho tôi biết khoảnh khắc dòng năng lượng ổn định nhất... chính lúc nó sắp đạt đỉnh nhưng chưa tràn ra..."
+"Anh nói anh có thể cảm nhận năng lượng. Nếu anh có thể khi tôi điều khiển van, nói cho tôi biết khoảnh khắc dòng năng lượng ổn định nhất... Chính lúc nó sắp đạt đỉnh nhưng chưa tràn ra..."
 
 Hắn cầm một trái Dương Quang nguyên vẹn và một lọ nhỏ chứa "một giọt Hối Tiếc", cẩn thận đặt vào khe tương ứng của thiết bị.
 
@@ -6888,13 +7568,17 @@ Trong nháy mắt, cô ấy "nhìn thấy" một thế giới hoàn toàn khác 
 
 Một luồng năng lượng nhiệt thô bạo, cuồng cuồng từ đáy thiết bị bốc lên - đây là "nước lũ" mà Tú Cốt nói. Bên trái buồng phản ứng là một đám năng lượng vàng đỏ cháy rừng rực như mặt trời nhỏ - đó là "Trái Dương Quang". Bên phải là một điểm năng lượng xanh lam u tối, sắc bén như băng tinh thể, tỏa ra nỗi buồn vô tận - đó là "một giọt Hối Tiếc".
 
-Tú Cốt bắt đầu từ từ xoay van, "nước lũ" nóng bỏng bắt đầu được dẫn vào buồng phản ứng.
+Tú Cốt bắt đầu từ từ xoay van,
+
+"Nước lũ"
+
+Nóng bỏng bắt đầu được dẫn vào buồng phản ứng.
 
 Cô ấy cảm nhận rõ ràng luồng năng lượng đó cực kỳ không ổn định, lúc mạnh lúc yếu, như con thú điên cuồng.
 
 "Chưa đến..."
 
-cô ấy nói nhẹ, trán rỉ mồ hôi hạt nhỏ.
+Cô ấy nói nhẹ, trán rỉ mồ hôi hạt nhỏ.
 
 Năng lượng nóng bỏng ngày càng mạnh, năng lượng Trái Dương Quang trong buồng phản ứng bắt đầu dao động dữ dội, còn điểm "Hối Tiếc" thì như ngọn nến trong gió lay động, bất cứ lúc nào cũng có thể tắt. Tinh thần cô ấy tập trung cao độ, cảm nhận từng biến động tinh tế trong dòng chảy đó.
 
@@ -6948,11 +7632,11 @@ Hắn quay đầu đột ngột, tránh ánh mắt cô ấy, dùng bàn tay to n
 
 Hắn nói bằng giọng ồm ồm, thấp hơn bình thường nhiều, như đang nói với chính mình.
 
-"Không có cảm tri của anh... thiết bị tốt đến đâu cũng vô dụng."
+"Không có cảm tri của anh... Thiết bị tốt đến đâu cũng vô dụng."
 
 Hắn không nhận hết lời khen của cô ấy, mà với sự trung thực đơn giản nhất của thợ thủ công, chia phân nửa công lao cho cô ấy. Đây là cách cao nhất hắn bày tỏ sự công nhận.
 
-Hắn nhìn lại giọt chất lỏng vàng, đôi mắt đang cháy ngoài niềm vui còn thêm chút... ánh sáng gần như dịu dàng thuộc về kẻ sáng tạo nhìn tạo vật hoàn mỹ của mình.
+Hắn nhìn lại giọt chất lỏng vàng, đôi mắt đang cháy ngoài niềm vui còn thêm chút... Ánh sáng gần như dịu dàng thuộc về kẻ sáng tạo nhìn tạo vật hoàn mỹ của mình.
 
 Cô ấy nén xúc động trong lòng, chuyển sự chú ý sang vấn đề thực tế hơn. Rốt cuộc, tác phẩm huyền thoại nếu không chuyển hóa thành giá trị, cũng chỉ là đồ trang trí đẹp mắt.
 
@@ -6966,9 +7650,9 @@ Nghe câu hỏi thương mại nửa đầu của cô ấy, đôi mắt đang ch
 
 "Hừ,"
 
-hắn phun một luồng hơi nóng từ mũi, quay người từ chiếc bình đất nung đánh dấu "Nước suối Vong Ưu Hà" dùng ống nhỏ giọt thủy tinh tinh tế hút một chút chất lỏng trong suốt,
+Hắn phun một luồng hơi nóng từ mũi, quay người từ chiếc bình đất nung đánh dấu "Nước suối Vong Ưu Hà" dùng ống nhỏ giọt thủy tinh tinh tế hút một chút chất lỏng trong suốt,
 
-"Giọt này dùng nước suối Vong Ưu Hà tinh khiết nhất pha loãng, khoảng được mười ly. Mỗi ly... đủ để một linh hồn sa đọa trăm năm, nhìn thấy lại một tia sáng."
+"Giọt này dùng nước suối Vong Ưu Hà tinh khiết nhất pha loãng, khoảng được mười ly. Mỗi ly... Đủ để một linh hồn sa đọa trăm năm, nhìn thấy lại một tia sáng."
 
 Lời hắn tràn đầy tự tin tuyệt đối với tác phẩm của mình.
 
@@ -6976,7 +7660,7 @@ Hắn lấy chiếc ly thủy tinh nhỏ gọn sạch sẽ, trước hết cẩn
 
 Nguyên dịch vàng trong nước suối trong vắt từ từ tan ra, không bị pha loãng, ngược lại như thắp sáng cả ly. Cả ly rượu tỏa ra quầng sáng ấm áp dịu dàng như mặt trời buổi sớm, mùi thơm pha trộn ánh nắng, lúa mạch và cỏ xanh sau mưa càng thêm đậm đà, chỉ ngửi thôi đã khiến cô ấy tinh thần phấn chấn.
 
-"Cơ thể con người... rất mong manh."
+"Cơ thể con người... Rất mong manh."
 
 Hắn đưa ly rượu cho cô ấy, giọng cẩn trọng chưa từng có.
 
@@ -6996,7 +7680,7 @@ Cô ấy cảm thấy như đang ở giữa biển vàng ấm áp, vô số hìn
 
 Nhưng ngay sau đó, niềm vui vô tận như thủy triều rút đi, thay vào đó là nỗi buồn sâu lắng, tĩnh lặng như biển sâu.
 
-Đó không phải đau khổ, cũng không phải tuyệt vọng, mà là... nỗi hối tiếc mang sự giải thoát. Cô ấy thấy bóng lưng người chiến sĩ không giữ được đồng đội, sự cô đơn của nghệ sĩ khi màn hạ trên sân khấu không người, vô số khoảnh khắc "giá như lúc đó". Những nỗi buồn đó không đau đớn, ngược lại như bản tang ca xa xôi, rửa sạch linh hồn cô ấy, khiến cô ấy cảm nhận rõ những thứ quý giá hơn vì mất mát trong đời.
+Đó không phải đau khổ, cũng không phải tuyệt vọng, mà là... Nỗi hối tiếc mang sự giải thoát. Cô ấy thấy bóng lưng người chiến sĩ không giữ được đồng đội, sự cô đơn của nghệ sĩ khi màn hạ trên sân khấu không người, vô số khoảnh khắc "giá như lúc đó". Những nỗi buồn đó không đau đớn, ngược lại như bản tang ca xa xôi, rửa sạch linh hồn cô ấy, khiến cô ấy cảm nhận rõ những thứ quý giá hơn vì mất mát trong đời.
 
 Vui sướng và buồn bã, ánh nắng và bóng tối, hy vọng và hối tiếc. Hai cảm xúc cực đoan đối lập, đan xen va chạm trong sâu thẳm linh hồn cô ấy, cuối cùng hóa thành cảm động phức tạp khó lời.
 
@@ -7014,13 +7698,13 @@ Cô ấy đưa ly thủy tinh trên tay, cẩn thận đặt trước mặt hắ
 
 "Anh cũng nếm thử đi,"
 
-giọng cô ấy vì vừa trải qua cơn lũ tình cảm mang theo chút khàn nhẹ mềm mại,
+Giọng cô ấy vì vừa trải qua cơn lũ tình cảm mang theo chút khàn nhẹ mềm mại,
 
 "Đây là kỳ tích chúng ta cùng tạo ra."
 
 Tú Cốt nhìn ly cô ấy đưa, rồi nhìn đôi mắt trong veo còn vết nước mắt của cô ấy. Hắn không nhận ngay, đôi bàn tay to lớn đầy chai sạn dường như không biết đặt đâu.
 
-"Tôi đã thấy... ánh nắng, và... một nỗi buồn rất đẹp."
+"Tôi đã thấy... Ánh nắng, và... Một nỗi buồn rất đẹp."
 
 Cô ấy cố gắng sắp xếp ngôn ngữ, cố gắng mô tả cho hắn cảm giác không thể dùng lời diễn tả,
 
@@ -7040,13 +7724,13 @@ Tuy nhiên, câu nói này của cô ấy khiến động tác của Tú Cốt d
 
 Hắn im lặng một lát, rồi bằng giọng trầm như đang kể lại lịch sử bị lãng quên, khàn khàn nói:
 
-"Rượu của Lili Tư Á... không gọi là 'Bình Minh'."
+"Rượu của Lili Tư Á... Không gọi là 'Bình Minh'."
 
 "Rượu của bà gọi là 'Hoàng Hôn'. Vị nặng nề hơn, tràn đầy hối tiếc không thể cứu vãn. Như tro tàn của tang lễ lớn."
 
 Hắn cúi đầu, nhìn chất lỏng vàng trong ly, đôi mắt đang cháy phản chiếu ánh sáng phức tạp.
 
-"Cái này... là mới."
+"Cái này... Là mới."
 
 Nói xong, hắn đưa mép ly lên môi, như hoàn thành nghi thức thiêng liêng, nhẹ nhàng, thành kính nếm một ngụm nhỏ.
 
@@ -7084,17 +7768,17 @@ Hắn lặp lại tên này bằng giọng thấp, mang theo sự khàn đặc n
 
 Hắn dừng lại, dường như đang sắp xếp ngôn ngữ về quá khứ đã han rỉ.
 
-"Vị... khác."
+"Vị... Khác."
 
 Hắn nói.
 
-"Bình Minh của anh là mặt trời sau mưa, tuy mang buồn nhưng cuối cùng ấm áp, khiến người ta muốn sống tiếp. Còn 'Hoàng Hôn'... là cùng đường. Là tro tàn sau khi thiêu rụi tất cả. Nó không cho hy vọng, chỉ khiến người ta nhìn rõ mọi hối tiếc của mình, rồi mang theo những hối tiếc đó đi về kết thúc."
+"Bình Minh của anh là mặt trời sau mưa, tuy mang buồn nhưng cuối cùng ấm áp, khiến người ta muốn sống tiếp. Còn 'Hoàng Hôn'... Là cùng đường. Là tro tàn sau khi thiêu rụi tất cả. Nó không cho hy vọng, chỉ khiến người ta nhìn rõ mọi hối tiếc của mình, rồi mang theo những hối tiếc đó đi về kết thúc."
 
 Mô tả của hắn khiến cô ấy rùng mình.
 
-"Những kẻ đến uống 'Hoàng Hôn' đều là lão già sống quá lâu, mạnh đến nhàm chán. Họ không tìm sự an ủi, chỉ tìm kích thích. Họ muốn trong rượu Lili Tư Á, hồi tưởng lại sai lầm khiến họ hối tiếc nhất, nếm trải nỗi đau vĩnh viễn không thể cứu vãn đó... để chứng minh mình vẫn 'còn sống'."
+"Những kẻ đến uống 'Hoàng Hôn' đều là lão già sống quá lâu, mạnh đến nhàm chán. Họ không tìm sự an ủi, chỉ tìm kích thích. Họ muốn trong rượu Lili Tư Á, hồi tưởng lại sai lầm khiến họ hối tiếc nhất, nếm trải nỗi đau vĩnh viễn không thể cứu vãn đó... Để chứng minh mình vẫn 'còn sống'."
 
-"Lili Tư Á... bà ấy cũng uống."
+"Lili Tư Á... Bà ấy cũng uống."
 
 Giọng Tú Cốt càng thấp hơn,
 
@@ -7102,7 +7786,7 @@ Giọng Tú Cốt càng thấp hơn,
 
 Nói xong hắn không nói thêm, chỉ im lặng đứng đó như tượng tưởng nhớ quá khứ.
 
-Cô ấy lặng nghe, trong lòng dâng sóng lớn. Người phụ nữ tự pha cho mình loại rượu đó và chìm đắm trong đó... tổ tiên của cô ấy Lili Tư Á, bà ấy đã trải qua những gì?
+Cô ấy lặng nghe, trong lòng dâng sóng lớn. Người phụ nữ tự pha cho mình loại rượu đó và chìm đắm trong đó... Tổ tiên của cô ấy Lili Tư Á, bà ấy đã trải qua những gì?
 
 Đúng lúc này, cô ấy hoàn toàn không chú ý, bóng dáng Karl đã xuất hiện lặng lẽ ở đầu cầu thang tầng hai quán bar.
 
@@ -7110,9 +7794,9 @@ Hắn không đi xuống, chỉ đứng yên trong bóng tối. Mùi thơm kỳ 
 
 Ánh mắt hắn vượt qua sảnh trống, chính xác rơi vào chiếc ly thủy tinh tỏa ánh sáng dịu nhẹ phía sau quầy bar. Biểu cảm hắn không thay đổi, nhưng đôi mắt đen luôn sâu thẳm đó lại cuộn sóng dòng chảy ngầm phức tạp mãnh liệt hơn cả cơn bão tình cảm cô ấy vừa trải nghiệm.
 
-Là... mùi của ánh sáng.
+Là... Mùi của ánh sáng.
 
-Nhưng lại không phải... mùi của bà.
+Nhưng lại không phải... Mùi của bà.
 
 Câu "là của chúng ta" của Tú Cốt như viên đá ném vào mặt hồ, gợn sóng trong lòng cô ấy một vòng rồi một vòng. Cô ấy nhìn đôi mắt được tôi luyện trong lửa nghìn năm của hắn, lần đầu đọc ra tình hữu nghị gần như "chiến hữu".
 
@@ -7120,7 +7804,7 @@ Nhưng rượu "Hoàng Hôn" của Lili Tư Á, ly rượu tràn đầy hối ti
 
 "Tôi nghĩ chúng ta cũng không nên phủ nhận hoàn toàn di sản Lili Tư Á để lại,"
 
-cô ấy nhìn Tú Cốt, giọng bình tĩnh chân thành.
+Cô ấy nhìn Tú Cốt, giọng bình tĩnh chân thành.
 
 "Dù sao quán bar này cũng từng huy hoàng, có mấy trăm năm lịch sử. Chúng ta nghiên cứu sản phẩm mới và phục hiện hàng hóa xưa không mâu thuẫn, vứt hết thật quá đáng tiếc. Anh cũng có thể lấy cảm hứng từ chúng."
 
@@ -7128,7 +7812,7 @@ Lời cô ấy khiến thân hình đồ sộ của Tú Cốt run mạnh lần n
 
 Hắn ngẩng đầu đột ngột, đôi mắt đang cháy nhìn chằm chằm cô ấy như muốn xuyên thấu linh hồn. Hắn không ngờ cô ấy - con người trẻ tuổi này, sau khi tạo ra kiệt tác vượt quá khứ, không những không vội xóa bỏ dấu vết tiền nhân, mà còn chủ động đề xuất tôn trọng và học hỏi quá khứ nặng nề đó.
 
-Đôi bàn tay thô ráp đầy dầu mỡ và chai sạn của hắn vô ý thức cọ xát trên thiết bị kim loại phía trước, phát tiếng "xào xạc" nhẹ. Ngọn lửa trong mắt hắn dao động mãnh liệt, có chấn động, có không hiểu, nhưng nhiều hơn là... giải thoát được chạm sâu và thấu hiểu.
+Đôi bàn tay thô ráp đầy dầu mỡ và chai sạn của hắn vô ý thức cọ xát trên thiết bị kim loại phía trước, phát tiếng "xào xạc" nhẹ. Ngọn lửa trong mắt hắn dao động mãnh liệt, có chấn động, có không hiểu, nhưng nhiều hơn là... Giải thoát được chạm sâu và thấu hiểu.
 
 Hắn im lặng rất lâu, lâu đến mức không khí như đông cứng.
 
@@ -7138,7 +7822,7 @@ Hắn ép ra một âm tiết đục đặc từ sâu cổ họng, rồi từ t�
 
 "Anh là ông chủ, anh nói sao thì vậy."
 
-Dù lời vẫn là giọng điệu không chịu nghe ai, nhưng cô ấy rõ ràng nghe ra trong giọng khàn đặc đó bớt đi một phần cô lập, thêm một phần... công nhận.
+Dù lời vẫn là giọng điệu không chịu nghe ai, nhưng cô ấy rõ ràng nghe ra trong giọng khàn đặc đó bớt đi một phần cô lập, thêm một phần... Công nhận.
 
 Karl đứng trong bóng tối đầu cầu thang tầng hai, thu vào tầm mắt mọi thứ.
 
@@ -7146,13 +7830,13 @@ Khi nghe cô ấy nói tôn trọng di sản Lili Tư Á, thân hình luôn th�
 
 Nhưng cô ấy không.
 
-Cô ấy chọn con đường khó khăn nhất, nhưng cũng... mạnh mẽ nhất.
+Cô ấy chọn con đường khó khăn nhất, nhưng cũng... Mạnh mẽ nhất.
 
 Kế thừa, rồi vượt qua.
 
 Hắn nhìn cô ấy đứng bên Tú Cốt, thân hình nhỏ bé nhưng dường như tỏa ánh sáng không thể bỏ qua. Ánh sáng đó có ấm áp của "Bình Minh", cũng có nặng nề của "Hoàng Hôn".
 
-Trong đôi mắt đen luôn sâu thẳm của hắn, có thứ gì đó đang triệt để, không thể đảo ngược... sụp đổ, rồi tái tổ chức.
+Trong đôi mắt đen luôn sâu thẳm của hắn, có thứ gì đó đang triệt để, không thể đảo ngược... Sụp đổ, rồi tái tổ chức.
 
 Cô ấy nhìn vị đại sư nấu rượu đang chìm vào suy tư vì lời cô ấy, quyết định đem suy nghĩ, "đạo" của mình bày tỏ triệt để hơn với hắn, cũng với chính mình.
 
@@ -7160,7 +7844,7 @@ Cô ấy đặt nhẹ ly thủy tinh trên tay xuống quầy bar, chất lỏng
 
 "Thật sự, dù các anh luôn nói Lili Tư Á thế nào thế nào, nhưng điều này không liên quan gì đến tôi,"
 
-giọng cô ấy bình tĩnh rõ ràng, từng chữ như định ra chuẩn mực không lay chuyển cho chuyến đi địa ngục của mình,
+Giọng cô ấy bình tĩnh rõ ràng, từng chữ như định ra chuẩn mực không lay chuyển cho chuyến đi địa ngục của mình,
 
 "Tôi chỉ là con người bình thường thôi, tôi và bà ấy không quen biết, bà ấy dù giỏi đến đâu cũng không liên quan gì đến tôi."
 
@@ -7168,7 +7852,7 @@ giọng cô ấy bình tĩnh rõ ràng, từng chữ như định ra chuẩn m�
 
 "Nhưng,"
 
-cô ấy chuyển hướng, ánh mắt lấp lánh sắc sảo thuộc về thương nhân và quản lý.
+Cô ấy chuyển hướng, ánh mắt lấp lánh sắc sảo thuộc về thương nhân và quản lý.
 
 "Vì giờ tôi kế thừa quán bar, đương nhiên tài nguyên dùng được đều phải dùng hết."
 
@@ -7184,7 +7868,7 @@ Hắn thốt ra một chữ khàn đặc.
 
 "Đúng là phải thế."
 
-Với thợ thủ công như hắn, thái độ gạt bỏ mọi tình cảm hư ảo, chỉ chuyên tâm vào giá trị bản thân sự vật, xa đáng tin và... tôn trọng hơn bất kỳ sự cộng hưởng cảm tính nào.
+Với thợ thủ công như hắn, thái độ gạt bỏ mọi tình cảm hư ảo, chỉ chuyên tâm vào giá trị bản thân sự vật, xa đáng tin và... Tôn trọng hơn bất kỳ sự cộng hưởng cảm tính nào.
 
 Trong bóng tối tầng hai, Karl đứng im lặng, nghe rõ từng lời cô ấy.
 
@@ -7200,15 +7884,15 @@ Thì ra là vậy.
 
 Không phải kế thừa, cũng không phải vượt qua.
 
-Trong mắt bà, cuộc đời Lili Tư Á tràn đầy hối tiếc và huy hoàng, quá khứ khiến vô số ác ma say mê, khiến hắn hiến dâng tất cả... chỉ là "tài nguyên" có thể lợi dụng.
+Trong mắt bà, cuộc đời Lili Tư Á tràn đầy hối tiếc và huy hoàng, quá khứ khiến vô số ác ma say mê, khiến hắn hiến dâng tất cả... Chỉ là "tài nguyên" có thể lợi dụng.
 
-Sao mà... lạnh lùng.
+Sao mà... Lạnh lùng.
 
-Sao mà... đúng đắn.
+Sao mà... Đúng đắn.
 
-Nỗi đau sắc nhọn bị phủ nhận triệt để trong nháy mắt bủa vây hắn. Nhưng ngay sau đó, trên đống đổ nát đau khổ đó, cảm giác nhẹ nhàng như trút nghìn cân... không tưởng tượng nổi bỗng bốc lên.
+Nỗi đau sắc nhọn bị phủ nhận triệt để trong nháy mắt bủa vây hắn. Nhưng ngay sau đó, trên đống đổ nát đau khổ đó, cảm giác nhẹ nhàng như trút nghìn cân... Không tưởng tượng nổi bỗng bốc lên.
 
-Cuối cùng hắn... không cần phải qua bóng Lili Tư Á để nhìn bà nữa.
+Cuối cùng hắn... Không cần phải qua bóng Lili Tư Á để nhìn bà nữa.
 
 Vì bà tự tay xé nát bóng đó.
 
@@ -7218,7 +7902,7 @@ Cô ấy hít sâu, nén dư vị cơn bão tình cảm to lớn đó, đưa s�
 
 "Thôi,"
 
-cô ấy quay người, mặt mang nụ cười rạng rỡ tự tin, giọng không lớn nhưng đủ khiến nhân viên đang bận rộn trong sảnh dừng tay,
+Cô ấy quay người, mặt mang nụ cười rạng rỡ tự tin, giọng không lớn nhưng đủ khiến nhân viên đang bận rộn trong sảnh dừng tay,
 
 "Tôi cũng phải nói tin tốt với mọi người!"
 
@@ -7254,7 +7938,7 @@ Cô ấy hít sâu, nén dư vị cơn bão tình cảm to lớn đó, đưa s�
 
 "Thôi,"
 
-cô ấy quay người, mặt mang nụ cười rạng rỡ tự tin, giọng không lớn nhưng đủ khiến nhân viên đang bận rộn trong sảnh dừng tay,
+Cô ấy quay người, mặt mang nụ cười rạng rỡ tự tin, giọng không lớn nhưng đủ khiến nhân viên đang bận rộn trong sảnh dừng tay,
 
 "Tôi cũng phải nói tin tốt với mọi người!"
 
@@ -7306,7 +7990,7 @@ Cô ấy hít sâu, không khí pha trộn lưu huỳnh, bụi và mùi thức �
 
 Karl như mọi khi đi bên cạnh cô ấy lùi nửa bước, vừa dẫn đường vừa luôn ứng phó tình huống đột phát.
 
-họ không đi xuyên đường tắt, mà đi không vội không chậm trên đường chính rộng hơn của Ảnh Hạng. Trên phố đã có không ít ác ma tấp nập - tiểu quỷ đưa tin vội vã, lính đánh thuê Địa Ngục Khuyển năm ba người cười nói to, vài nữ ma mị trang điểm tinh tế đang ngáp từ hội quán chơi thâu đêm bước ra.
+Họ không đi xuyên đường tắt, mà đi không vội không chậm trên đường chính rộng hơn của Ảnh Hạng. Trên phố đã có không ít ác ma tấp nập - tiểu quỷ đưa tin vội vã, lính đánh thuê Địa Ngục Khuyển năm ba người cười nói to, vài nữ ma mị trang điểm tinh tế đang ngáp từ hội quán chơi thâu đêm bước ra.
 
 Cô ấy vừa đi vừa tò mò nhìn thế giới kỳ lạ đủ màu này, cảm nhận sức sống và hỗn loạn của nó.
 
@@ -7318,7 +8002,7 @@ Là chủ biên A-sa-giới của Tuần san 《Phi Sắc Quỷ Ảnh》. Sau l�
 
 "Ồ, chào buổi sáng, hàng xóm yêu quý của tôi,"
 
-giọng A-sa-giới hoa lệ trơn tru như lụa tẩm mật,
+Giọng A-sa-giới hoa lệ trơn tru như lụa tẩm mật,
 
 "Vội thế này đi đâu vậy?"
 
@@ -7330,7 +8014,7 @@ Không đợi cô ấy trả lời, Karl đã bước nửa bước lên, ánh m
 
 A-sa-giới không để ý cảnh báo của Karl, ánh mắt vẫn dính vào cô ấy, mũi còn phóng đại đánh hơi trong không khí,
 
-"Tôi chỉ là... ngửi thấy mùi bất thường, mang 'tin tức trang đầu'."
+"Tôi chỉ là... Ngửi thấy mùi bất thường, mang 'tin tức trang đầu'."
 
 Ánh mắt hắn cuối cùng rơi vào chiếc hộp đồng thau trong lòng cô ấy, nụ cười càng thêm ý vị.
 
@@ -7340,7 +8024,7 @@ A-sa-giới không để ý cảnh báo của Karl, ánh mắt vẫn dính vào 
 
 "Chủ biên nói đùa rồi,"
 
-giọng cô ấy ôn hòa thành khẩn, vừa nâng hắn vừa khéo léo làm mờ hạt nhân chủ đề,
+Giọng cô ấy ôn hòa thành khẩn, vừa nâng hắn vừa khéo léo làm mờ hạt nhân chủ đề,
 
 "Hiện tại chúng tôi còn chưa sản xuất hàng loạt được, đây chỉ là sản phẩm thử nghiệm nhất thời của tôi và người nấu rượu thôi."
 
@@ -7352,7 +8036,7 @@ Lời cô ấy hoàn hảo. Vừa dùng "chưa sản xuất hàng loạt" làm c
 
 Quả nhiên, nghe lời cô ấy, biểu cảm chắc thắng trên mặt A-sa-giới chuyển thành thất vọng phóng đại kịch tính. Hắn dùng chiếc bút lông vũ hoa lệ nhẹ gõ cằm.
 
-"Ồ... chưa sản xuất hàng loạt?"
+"Ồ... Chưa sản xuất hàng loạt?"
 
 Hắn kéo dài âm điệu, vest tím dưới ánh hoàng hôn trông càng lòe loẹt.
 
@@ -7384,7 +8068,7 @@ Cô ấy nói thấp với Karl, bước chân không tự chủ nhanh hơn.
 
 Giọng Karl bên cạnh vang lên, bình ổn lạnh lẽo, mang theo chút cảnh giác khó nhận ra.
 
-họ tăng tốc, rẽ vào con hẻm hẹp hơn, tối tăm hơn. Ồn ào đường chính bị vứt lại phía sau, thay vào là tiếng nước nhỏ giọt từ ống phía trên, cùng ánh sáng yếu ớt tỏa ra từ rêu phát sáng góc tường. Không khí trở nên ẩm ướt lạnh lẽo, pha trộn đất, thực vật thối rữa và mùi gia vị không tên.
+Họ tăng tốc, rẽ vào con hẻm hẹp hơn, tối tăm hơn. Ồn ào đường chính bị vứt lại phía sau, thay vào là tiếng nước nhỏ giọt từ ống phía trên, cùng ánh sáng yếu ớt tỏa ra từ rêu phát sáng góc tường. Không khí trở nên ẩm ướt lạnh lẽo, pha trộn đất, thực vật thối rữa và mùi gia vị không tên.
 
 Cô ấy ôm chiếc hộp trong lòng, vừa đi vừa hỏi nhẹ:
 
@@ -7400,7 +8084,7 @@ Giọng hắn thấp hơn vừa rồi vài phần,
 
 Hắn không giải thích thêm, chỉ bổ sung.
 
-"Hắn là... tồn tại rất cổ xưa. Khi giao dịch với hắn, xin quản lý hãy cẩn thận, quản lý Lâm Vãn."
+"Hắn là... Tồn tại rất cổ xưa. Khi giao dịch với hắn, xin quản lý hãy cẩn thận, quản lý Lâm Vãn."
 
 Vừa dứt lời, họ đã đến cuối con hẻm. Cửa tiệm quen thuộc bị rễ cây khổng lồ quấn quanh đứng im lặng trước mặt. Không khí tràn ngập mùi đất và thực vật kỳ lạ, như thế giới biệt lập với đời.
 
@@ -7458,7 +8142,7 @@ Hắn im lặng rất lâu, lâu đến mức cô ấy gần như muốn mở l�
 
 Hắn lặp lại từ này bằng giọng thấp, mang theo chút chế nhạo khó nắm bắt.
 
-"Con ơi, con chắc chắn thứ con mang đến là kết thúc của 'lời hứa', chứ không phải... khởi đầu của 'hối tiếc' mới sao?"
+"Con ơi, con chắc chắn thứ con mang đến là kết thúc của 'lời hứa', chứ không phải... Khởi đầu của 'hối tiếc' mới sao?"
 
 Cô ấy đón ánh mắt như xuyên thấu tất cả của hắn, không chút lùi bước. Cô ấy từ lời hắn nghe ra chút thử thách thiền cơ, cũng nghe ra chút nhạy cảm gần như ám ảnh với từ "hối tiếc".
 
@@ -7472,7 +8156,7 @@ Giọng cô ấy không lớn nhưng vang rõ trong cửa tiệm tĩnh lặng n�
 
 Đáp án của cô ấy như giọt nước trong vắt nhỏ vào đôi mắt đục như ngưng đọng nghìn năm của hắn.
 
-Trong đôi mắt giếng cổ bất động đó lần đầu dậy sóng nhẹ. Không phải kinh ngạc mà là... sự xem xét tìm được đồng loại, mang chút tán thưởng.
+Trong đôi mắt giếng cổ bất động đó lần đầu dậy sóng nhẹ. Không phải kinh ngạc mà là... Sự xem xét tìm được đồng loại, mang chút tán thưởng.
 
 Hắn im lặng nhìn cô ấy, dường như đang nhai kỹ sức nặng đằng sau câu cô ấy. Cô ấy không chỉ hoàn thành một công thức, cô ấy hiểu hạt nhân thực sự của công thức - tính mở của tình cảm.
 
@@ -7492,11 +8176,11 @@ Thời gian như đông cứng trong khoảnh khắc này. Cô ấy thậm chí 
 
 Rất lâu, hắn mới từ từ mở mắt, đôi mắt đục đó lại thêm chút ánh sáng hiếm có, sáng rỡ.
 
-"Tuy non nớt, tuy tràn đầy... ngây thơ kiểu con người,"
+"Tuy non nớt, tuy tràn đầy... Ngây thơ kiểu con người,"
 
 Hắn đánh giá, giọng bớt sự xa cách trước đây, thêm chút phán xét của bậc trưởng bối.
 
-"Nhưng... là sống."
+"Nhưng... Là sống."
 
 "Con đã qua, hậu nhân của Lili Tư Á."
 
@@ -7564,7 +8248,7 @@ Giọng hắn như mọi khi bình ổn nhưng mang sự công nhận hoàn toà
 
 Hắn dừng, bổ sung.
 
-"Còn nhân viên mua sắm... thị trường tuyển dụng U Hồn có thể giải quyết thiếu hụt nhân viên phục vụ, nhưng nhân viên mua sắm đáng tin, hiểu rõ mọi kênh cung ứng Ảnh Hạng... không dễ tìm. Cần may mắn, hoặc... đường đặc biệt."
+"Còn nhân viên mua sắm... Thị trường tuyển dụng U Hồn có thể giải quyết thiếu hụt nhân viên phục vụ, nhưng nhân viên mua sắm đáng tin, hiểu rõ mọi kênh cung ứng Ảnh Hạng... Không dễ tìm. Cần may mắn, hoặc... Đường đặc biệt."
 
 "Giờ chúng ta đã có Trái Dương Quang, rượu lúa mạch Liệt Dương thành phẩm hai chuỗi cung ứng, cần người phụ trách mua định kỳ, vật tư rượu thức ăn thường quy khác cũng phải tiếp tục mua. Rượu lúa mạch Liệt Dương tự sản tự tiêu thì cũng cần mua lúa mạch Liệt Dương. Anh có ý tưởng gì không?"
 
@@ -7598,13 +8282,13 @@ Hắn dừng bước, trong bóng tối hẻm tối nhìn cô ấy, giọng th�
 
 Hắn giải thích.
 
-"Họ bị lưu đày vì các 'sự cố khế ước', mất danh phận và địa vị. Nhưng sự ám ảnh với quy tắc, con số và logic đã khắc vào linh hồn. Nếu quản lý có thể thỏa mãn... nhu cầu đặc biệt của họ, họ sẽ là người thực thi đáng tin nhất, không biến thông, cứng nhắc nhất. Luật Ma đủ tư cách có thể tiết kiệm từng hồn tệ không nên chi cho quản lý."
+"Họ bị lưu đày vì các 'sự cố khế ước', mất danh phận và địa vị. Nhưng sự ám ảnh với quy tắc, con số và logic đã khắc vào linh hồn. Nếu quản lý có thể thỏa mãn... Nhu cầu đặc biệt của họ, họ sẽ là người thực thi đáng tin nhất, không biến thông, cứng nhắc nhất. Luật Ma đủ tư cách có thể tiết kiệm từng hồn tệ không nên chi cho quản lý."
 
 "Luật Ma?"
 
 Cô ấy lặp lại từ này, trong đầu lập tức hiện ra cô bé kỳ quặc tự xưng "Lili" gặp ở thị trường tuyển dụng trước đây. Bộ trang phục Goth Lolita không hợp thời của cô, cách hiểu ám ảnh với khế ước đều quá không hợp.
 
-"Anh nói... ác ma giống Lili?"
+"Anh nói... Ác ma giống Lili?"
 
 Cô ấy kinh ngạc nhìn Karl.
 
@@ -7616,7 +8300,7 @@ Karl lắc đầu, đôi mắt đen trong hẻm tối trông càng sâu thẳm.
 
 "Thực ra rất hiếm. Sự ra đời của mỗi Luật Ma có nghĩa là một lần củng cố nhỏ quy tắc tầng đáy địa ngục. Còn việc họ bị trục xuất thường đại diện cho 'sự cố' lớn đủ làm lung lay một phần quy tắc."
 
-Giải thích của hắn khiến cô ấy tò mò sâu hơn về quá khứ Lili và chủng tộc này. Chủng tộc bị cơ quan khế ước tối cao trục xuất vì "sự cố" nghe đầy câu chuyện và... rắc rối.
+Giải thích của hắn khiến cô ấy tò mò sâu hơn về quá khứ Lili và chủng tộc này. Chủng tộc bị cơ quan khế ước tối cao trục xuất vì "sự cố" nghe đầy câu chuyện và... Rắc rối.
 
 "Sự khao khát trật tự của họ gần như cơn đói."
 
@@ -7642,7 +8326,7 @@ Cách diễn đạt vẫn kính trọng nhưng nội dung là sửa chính rõ r
 
 "Không phải mọi Luật Ma đều như Lili, đổ ám ảnh trật tự vào 'dọn dẹp'. Đó chỉ là 'điểm neo' cô ấy chọn cho mình."
 
-"Hạt nhân Luật Ma là sự đói khát tuyệt đối logic, con số, quy tắc. Đặc tính này có thể áp dụng bất kỳ lĩnh vực cần tính toán chính xác và thực thi nghiêm ngặt - tài chính, kho bãi, logistics... và mua sắm."
+"Hạt nhân Luật Ma là sự đói khát tuyệt đối logic, con số, quy tắc. Đặc tính này có thể áp dụng bất kỳ lĩnh vực cần tính toán chính xác và thực thi nghiêm ngặt - tài chính, kho bãi, logistics... Và mua sắm."
 
 Hắn giải thích.
 
@@ -7662,7 +8346,7 @@ Hắn đã hoàn toàn định vị mình vai "người thực thi" và "ngườ
 
 Cô ấy quyết đoán ngay, không chần chừ. Đã xác định mục tiêu thì hành động ngay.
 
-Karl gật đầu nhẹ, công nhận quyết đoán của cô ấy. họ quay người rời con hẻm sâu thẳm, trở lại dòng người ác ma đủ màu chảy không ngừng của Ảnh Hạng.
+Karl gật đầu nhẹ, công nhận quyết đoán của cô ấy. Họ quay người rời con hẻm sâu thẳm, trở lại dòng người ác ma đủ màu chảy không ngừng của Ảnh Hạng.
 
 Thị trường tuyển dụng U Hồn không xa lắm, qua vài con phố treo biển cũ nát và đèn neon nhấp nháy là đến. Nơi này đông đúc ồn ào hơn đường chính Ảnh Hạng, không khí tràn ngập mùi phức tạp tuyệt vọng, kỳ vọng, mồ hôi và đồ uống năng lượng kém chất lượng.
 
@@ -7680,7 +8364,7 @@ Karl vừa không động thanh không động sắc cách ly những ác ma tr�
 
 "Huấn luyện viên nghề nghiệp thường không xuất hiện nơi này, quản lý. Họ giống cố vấn độc lập, cần đặt lịch qua kênh đặc định, phí cao. Nhưng chúng ta có thể chú ý trước, thị trường đôi khi cũng có học viên huấn luyện thất bại tìm cơ hội."
 
-họ đến khoảng trống giữa thị trường, nơi thông tin tập trung nhất. Cô ấy nhìn thấy tấm bảng tuyển dụng công cộng quen thuộc do xương khổng lồ dựng nên. Vô số da cừu phát sáng u ám dán trên đó, dày đặc viết đủ loại thông tin tìm việc và tuyển dụng.
+Họ đến khoảng trống giữa thị trường, nơi thông tin tập trung nhất. Cô ấy nhìn thấy tấm bảng tuyển dụng công cộng quen thuộc do xương khổng lồ dựng nên. Vô số da cừu phát sáng u ám dán trên đó, dày đặc viết đủ loại thông tin tìm việc và tuyển dụng.
 
 Cô ấy áp dụng phương án thực dụng hiệu quả này. Đã xác định mục tiêu rõ ràng, không trì hoãn thêm.
 
@@ -7700,7 +8384,11 @@ Karl vừa cách ly sự chen lấn không tốt ý vừa bình ổn đáp.
 
 "Nhưng chúng ta có thể chú ý trước."
 
-họ không xem tấm bảng tuyển dụng công cộng thông tin hỗn tạp đó, thông tin trên đó phần lớn hào nhoáng không thực. Theo hướng dẫn của Karl, họ tránh các trung gian đông người, đi về vùng rìa tương đối hẻo lánh. Theo kinh nghiệm Karl, "hàng tốt" thực sự có năng lực nhưng sa cơ thường ẩn nấp góc không người chú ý.
+Họ không xem tấm bảng tuyển dụng công cộng thông tin hỗn tạp đó, thông tin trên đó phần lớn hào nhoáng không thực. Theo hướng dẫn của Karl, họ tránh các trung gian đông người, đi về vùng rìa tương đối hẻo lánh. Theo kinh nghiệm Karl,
+
+"Hàng tốt"
+
+Thực sự có năng lực nhưng sa cơ thường ẩn nấp góc không người chú ý.
 
 Cô ấy nhắm mắt, tập trung tinh lực, phát động năng lực "Chân Thực Cảm Tri".
 
@@ -7710,7 +8398,7 @@ Nhưng nhanh chóng, trong vùng "tiềm năng" Karl đã sàng lọc cho cô �
 
 Một tín hiệu như viên obsidian được cắt hoàn hảo, không tì vết. Nó lạnh lẽo, cứng rắn, đối xứng tuyệt đối, tỏa cảm giác trật tự thuần khiết nghẹt thở. Mọi năng lượng hỗn loạn xung quanh khi đến gần đều bị vặn xoắn, sắp xếp vô hình. Hơi thở này khiến cô ấy lập tức nghĩ đến "Luật Ma" trong miệng Karl.
 
-Tín hiệu kia như đám bụi vàng phát sáng nhạt quay cực nhanh. Nó tràn đầy sức sống, lo lắng và... sự chăm chỉ muốn đốt cháy hết mình. Nó không mạnh, thậm chí hơi yếu, nhưng mỗi hạt "bụi" đều rung ở tần số cực cao, tràn đầy khao khát được "sử dụng".
+Tín hiệu kia như đám bụi vàng phát sáng nhạt quay cực nhanh. Nó tràn đầy sức sống, lo lắng và... Sự chăm chỉ muốn đốt cháy hết mình. Nó không mạnh, thậm chí hơi yếu, nhưng mỗi hạt "bụi" đều rung ở tần số cực cao, tràn đầy khao khát được "sử dụng".
 
 Cô ấy mở mắt, nhìn theo hướng cảm tri.
 
@@ -7750,7 +8438,7 @@ Nói xong Luật Ma, ánh mắt hắn chuyển sang tiểu ác ma gầy còm.
 
 "Còn người kia,"
 
-giọng hắn thêm chút phán xét của ác ma thượng vị không che giấu,
+Giọng hắn thêm chút phán xét của ác ma thượng vị không che giấu,
 
 "Tiểu ác ma thường. Trong Ảnh Hạng, linh hồn như hắn nhiều hơn bụi đất."
 
@@ -7816,7 +8504,7 @@ Với kẻ lưu đày trôi dạt trong địa ngục hỗn loạn, chịu đói
 
 Cô thất thần lẩm bẩm, đôi mắt lạnh lùng lần đầu bùng ngọn lửa khao khát.
 
-"Điểm neo... hoàn hảo."
+"Điểm neo... Hoàn hảo."
 
 Cô đứng dậy đột ngột, nhìn thẳng cô ấy.
 
@@ -7834,7 +8522,7 @@ Cô ấy đến trước mặt hắn, cố gắng khiến giọng mình ôn hòa
 
 Vừa dứt lời, tiểu ác ma ngẩng đầu đột ngột, đôi mắt vì suy dinh dưỡng trông đặc biệt to lập tức tràn đầy niềm vui khó tin. Hắn không dám tin tai mình, lắp bắp hỏi:
 
-"Bao... bao ăn... bao ở?"
+"Bao... Bao ăn... Bao ở?"
 
 "Đúng."
 
@@ -7848,7 +8536,7 @@ Hắn kích động không nói nên lời, ngay tại chỗ quỳ xuống, ôm 
 
 "Karl,"
 
-giọng cô ấy hơi khàn,
+Giọng cô ấy hơi khàn,
 
 "Anh đi hỏi thăm có tin tức huấn luyện viên không. Không cần thường trú trong quán, chỉ cần tính phí theo đầu người hoặc theo lần."
 
@@ -7860,7 +8548,7 @@ Hắn lập tức hiểu ý cô ấy - với chi phí nhỏ nhất, thực hiệ
 
 Hắn gật đầu nhẹ, hoàn toàn không hoang mang vì "ý tưởng kỳ quặc"
 
-của cô ấy, ngược lại như cỗ máy vận hành hiệu quả lập tức cung cấp giải pháp.
+Của cô ấy, ngược lại như cỗ máy vận hành hiệu quả lập tức cung cấp giải pháp.
 
 "Huấn luyện viên độc lập tính phí theo lần hoặc đầu người thực sự tồn tại. Họ thường khinh thường xuất đầu lộ diện thị trường tuyển dụng, mà thông qua 'người môi giới tri thức' phát thông tin dịch vụ, hoặc trong hàng hội đặc định như 'Lò Rèn Thợ Thủ Công' hoặc 'Tập Hội Thì Thầm' treo bảng. Họ không nhận thuê dài hạn, chỉ ký 'khế ước truyền thụ kỹ năng' có thời hạn."
 
@@ -7946,7 +8634,7 @@ Cô ấy không vòng vo, thẳng vào chủ đề.
 
 "Việc tôi nhờ anh trước đó có tiến triển chưa? 500 hồn tệ đó đủ dùng không?"
 
-Nghe câu hỏi của cô ấy, khuôn mặt luôn không biểu cảm của Cách Lôi Cách lần đầu lộ chút... có thể gọi là "khoe công".
+Nghe câu hỏi của cô ấy, khuôn mặt luôn không biểu cảm của Cách Lôi Cách lần đầu lộ chút... Có thể gọi là "khoe công".
 
 "Tiền dùng hết nửa."
 
@@ -7956,7 +8644,7 @@ Hắn trả lời ngắn gọn, giọng trầm mang chút tự hào khó nhận 
 
 Hắn dừng, dường như cân nhắc từ ngữ,
 
-"Cần ngài tự xem. Trung thành của họ... cần sức mạnh ngài xác nhận."
+"Cần ngài tự xem. Trung thành của họ... Cần sức mạnh ngài xác nhận."
 
 "Kể cho tôi nghe năng lực, nền tảng và sở trường của họ. Không vấn đề thì nhận việc. Tôi tin phán đoán của anh."
 
@@ -8036,11 +8724,11 @@ Hắn im lặng, ngón tay thô to vô ý thức xoa xoa, dường như đang hi
 
 Vài giây sau, tư duy đơn giản của hắn hình như cuối cùng chuyển kịp. Hắn gật đầu nặng nề, nhìn cô ấy ngoài trung thành còn thêm kính phục chân thành.
 
-"Tôi... hiểu, thủ lĩnh."
+"Tôi... Hiểu, thủ lĩnh."
 
 Hắn đáp bằng giọng trầm, mang theo chút giác ngộ.
 
-"Tôi sẽ dạy họ. Với kẻ địch dùng móng vuốt và răng. Với khách... thu lại."
+"Tôi sẽ dạy họ. Với kẻ địch dùng móng vuốt và răng. Với khách... Thu lại."
 
 Hắn tiếp nhận chỉ thị của cô ấy và chủ động đảm nhận trách nhiệm đào tạo.
 
@@ -8102,7 +8790,7 @@ Hắn rót chút năng lượng ảo thuật mang mùi bạc hà nhẹ vào ly n
 
 Hắn cười nhẹ nói.
 
-"Nhưng cũng như... tướng quân sắp lên đường xa hơn."
+"Nhưng cũng như... Tướng quân sắp lên đường xa hơn."
 
 ---
 
@@ -8122,7 +8810,7 @@ Cô ấy cười nhìn hắn, ánh mắt quét sảnh quán bar đã đổi mớ
 
 Nghe lời cô ấy, đôi mắt tím của Tây Nhĩ Phàm cong thành trăng khuyết đẹp. Hắn không trả lời trực tiếp mà giơ một ngón tay lắc nhẹ.
 
-"Ừm... cách nói này không hoàn toàn chính xác đâu, nghệ sĩ yêu quý của tôi."
+"Ừm... Cách nói này không hoàn toàn chính xác đâu, nghệ sĩ yêu quý của tôi."
 
 Hắn sát lại, giọng hạ thấp, mang chút thân mật ranh mãnh.
 
@@ -8134,7 +8822,7 @@ Hắn hất cằm về hướng cửa, ý chỉ Cách Lôi Cách.
 
 Hắn thu ánh mắt, lại nhìn chằm chằm cô ấy, trong đôi mắt đó ảo ảnh lưu quang dường như đều dừng lại trong khoảnh khắc này, chỉ rõ ràng phản chiếu bóng cô ấy,
 
-"Nơi này thực sự... là tấm vải vẽ phai màu. Tràn đầy hối tiếc cũ kỹ không ai hỏi, xám xịt như bức tranh bị lãng quên trên gác xép."
+"Nơi này thực sự... Là tấm vải vẽ phai màu. Tràn đầy hối tiếc cũ kỹ không ai hỏi, xám xịt như bức tranh bị lãng quên trên gác xép."
 
 Hắn đưa tay, dùng đầu ngón nhẹ vuốt qua sợi tóc bên tai cô ấy, động tác dịu như bướm đậu cánh hoa.
 
@@ -8160,7 +8848,7 @@ Câu hỏi của cô ấy như chìa khóa chính xác mở cánh cửa nội t�
 
 Đôi mắt tím của hắn lập tức sáng lên, như tìm được tri âm phù hợp nhất. Hắn sát lại, giọng hạ thấp, mang sự thân mật và hưng phấn chia sẻ bí mật.
 
-"Lần đầu... lúc tôi bị 'hối tiếc' nơi đây thu hút,"
+"Lần đầu... Lúc tôi bị 'hối tiếc' nơi đây thu hút,"
 
 Hắn giơ một ngón tay vẽ nhẹ trong không trung, một dải sáng xám thoáng qua xuất hiện,
 
@@ -8176,7 +8864,7 @@ Biểu cảm mặt hắn bỗng sáng sủa như mây tan. Hắn dang tay, đôi
 
 Giọng hắn tràn đầy nhiệt huyết.
 
-"Cách Lôi Cách là đỏ thổ hoàng cháy trầm ổn, Tú Cốt là vàng cam rực rỡ nhất trong lò rèn, Lili trắng thuần khiết như tuyết, Linh đen lý tính tuyệt đối, Bíp họ vàng chanh đầy sức sống... mỗi màu đều rõ ràng, độc đáo!"
+"Cách Lôi Cách là đỏ thổ hoàng cháy trầm ổn, Tú Cốt là vàng cam rực rỡ nhất trong lò rèn, Lili trắng thuần khiết như tuyết, Linh đen lý tính tuyệt đối, Bíp họ vàng chanh đầy sức sống... Mỗi màu đều rõ ràng, độc đáo!"
 
 Hắn thu ánh mắt, lại nhìn chằm chằm cô ấy, trong đôi mắt ảo ảnh lưu quang như dừng lại.
 
@@ -8190,7 +8878,7 @@ Giọng hắn trở nên vô cùng dịu dàng, mang sự ca ngợi chân thành
 
 Hắn đá mắt tinh nghịch.
 
-"Nó không còn 'tốt hơn' nữa rồi, nó là... tái sinh."
+"Nó không còn 'tốt hơn' nữa rồi, nó là... Tái sinh."
 
 Câu trả lời đầy chất thơ của Tây Nhĩ Phàm khiến cô ấy cảm động sâu sắc. Cô ấy nhìn hắn - con bướm ảo thuật luôn liên hệ tình cảm với màu sắc - bỗng cũng hứng thú với thế giới trong mắt hắn.
 
@@ -8226,7 +8914,7 @@ Trong khi cô ấy hoàn toàn chìm đắm vũ trụ trong lòng bàn tay, Tây
 
 "Ngài không phải bất kỳ màu nào, nghệ sĩ yêu quý của tôi."
 
-"Ngài là... tấm vải vàng khiến mọi màu sắc tìm được chỗ về."
+"Ngài là... Tấm vải vàng khiến mọi màu sắc tìm được chỗ về."
 
 Lời thì thầm như tình nhân của Tây Nhĩ Phàm cùng câu "tấm vải vàng" khiến cô ấy sững người. Cô ấy cúi nhìn mu bàn tay như còn sót lại vân tinh ấm áp biến đổi đó.
 
@@ -8252,7 +8940,7 @@ Hắn lặp lại từ này, giọng đầy phủ nhận đau khổ thiết tha.
 
 Hơi thở hắn phả lên mặt cô ấy, mang mùi hoa giống mộng đẹp đặc trưng của hắn.
 
-"Chính vì ngài không thấy ánh sáng của mình nên nó mới càng... thuần khiết, càng rực rỡ."
+"Chính vì ngài không thấy ánh sáng của mình nên nó mới càng... Thuần khiết, càng rực rỡ."
 
 Đôi đồng tử tím đó phản chiếu gương mặt mê mang của cô ấy, giọng hắn hạ cực thấp, tràn đầy sức mạnh mê hoặc,
 
@@ -8266,7 +8954,7 @@ Hắn cúi đầu, đôi môi mềm mại luôn mang ý cười nhẹ nhàng, th
 
 Hắn dựa trán vào trán cô ấy, nhắm mắt, thì thầm nhẹ.
 
-"Điều đó sẽ khiến tôi... tan nát."
+"Điều đó sẽ khiến tôi... Tan nát."
 
 Trán còn sót lại cảm giác mềm ấm đôi môi hắn, trong mũi đầy mùi hoa giống mộng đẹp đặc trưng của hắn. Sự thân mật gần như tỏ tình đột ngột này của Tây Nhĩ Phàm khiến tim cô ấy nhảy lỡ nhịp, má cũng không tự chủ ửng đỏ.
 
@@ -8278,11 +8966,11 @@ Cô ấy cảm thấy não hơi đơ, đối mặt đôi mắt tím đầy thàn
 
 Cô ấy nhẹ nhàng, hơi không tự nhiên cười, lùi nửa bước, kéo ra chút khoảng cách.
 
-"Anh này... nụ hôn thật nhiệt tình."
+"Anh này... Nụ hôn thật nhiệt tình."
 
 Cô ấy mở lời, giọng mang chút nhẹ nhàng cố che giấu căng thẳng mà chính mình cũng chưa nhận ra,
 
-"Chưa ai làm việc như vậy với tôi gần thế, hay... địa ngục đều cởi mở thế?"
+"Chưa ai làm việc như vậy với tôi gần thế, hay... Địa ngục đều cởi mở thế?"
 
 Lời đùa của cô ấy như viên đá ném vào mặt hồ tĩnh lặng, trong nháy mắt phá vỡ tư thế nghệ sĩ trang nghiêm thiêng liêng của hắn.
 
@@ -8298,7 +8986,7 @@ Hắn nghiêng đầu, ngón tay thon dài nhẹ cuộn sợi tóc cô ấy, đ�
 
 Hắn sát thêm, hơi thở ấm gần như phả lên môi cô ấy, giọng cực thấp như thì thầm tình nhân, mỗi chữ mang ma lực mê hoặc,
 
-"Đây gọi là... không thể kìm nén."
+"Đây gọi là... Không thể kìm nén."
 
 "Không phải cởi mở mà là không thể kìm nén?"
 
@@ -8328,7 +9016,7 @@ Hắn đưa ngón tay thon dài nhẹ nâng cằm cô ấy, khiến cô ấy kh�
 
 Giọng hắn, bản chất mê hoặc của bướm ảo thuật chơi đùa lòng người cuối cùng không che giấu lộ ra,
 
-"Mà là ngài, nghệ sĩ duy nhất của tôi, đã sẵn sàng... đón nhận sự cúng bái cuồng nhiệt nhất của khán giả duy nhất chưa?"
+"Mà là ngài, nghệ sĩ duy nhất của tôi, đã sẵn sàng... Đón nhận sự cúng bái cuồng nhiệt nhất của khán giả duy nhất chưa?"
 
 Lời Tây Nhĩ Phàm gần như sát môi cô ấy khiến tim cô ấy co thắt. Hơi thở nguy hiểm ngọt ngào đó như tấm lưới vô hình ôm chặt cô ấy, không chỗ thoát.
 
@@ -8336,7 +9024,7 @@ Cô ấy nhìn đôi mắt tím đầy chiếm hữu và yêu đắm đuối g�
 
 Cô ấy không biết nói sao. Từ chối hắn? Từ chối ác ma đầu tiên gọi cô ấy là "nghệ sĩ", đầu tiên nhìn thấu mọi ngụy trang của cô ấy và bày tỏ sự sùng bái thuần túy không giữ lại nhất? Cô ấy không làm được.
 
-Nhưng chấp nhận hắn? Cô ấy với hắn thực sự có thứ tình cảm nam nữ không? Có vẻ... cũng không. Nhiều hơn là cảm động, phụ thuộc, an ủi tìm được tri âm.
+Nhưng chấp nhận hắn? Cô ấy với hắn thực sự có thứ tình cảm nam nữ không? Có vẻ... Cũng không. Nhiều hơn là cảm động, phụ thuộc, an ủi tìm được tri âm.
 
 Cuối cùng cô ấy chọn cách chân thành nhất, cũng tàn nhẫn nhất.
 
@@ -8344,7 +9032,7 @@ Cuối cùng cô ấy chọn cách chân thành nhất, cũng tàn nhẫn nhất
 
 Giọng cô ấy hơi khô, mang chút mê mang chưa nhận ra,
 
-"Tôi sẽ không từ chối sự thích của anh, nhưng... tôi với anh không có tình cảm nam nữ."
+"Tôi sẽ không từ chối sự thích của anh, nhưng... Tôi với anh không có tình cảm nam nữ."
 
 Câu này vừa thốt ra, cô ấy rõ ràng thấy đôi mắt sáng như thạch anh tím của Tây Nhĩ Phàm trong nháy mắt tối đi. Màu xám đại diện hối tiếc của chính hắn lần đầu hiện rõ trong đáy mắt, khiến nụ cười trên mặt cũng cứng đơ.
 
@@ -8386,7 +9074,7 @@ Hắn lại hôn trán cô ấy, giọng dịu nhưng mang quyết đoán không
 
 Cô ấy vùi mặt vào cổ hắn, cảm nhận mùi hoa giống mộng đẹp đặc trưng và nhịp tim mạnh mẽ ổn định trong ngực hắn. Vòng tay này vững chắc ấm áp, khiến cô ấy có chút an tâm có thể buông mọi phòng vệ đã lâu không có.
 
-"Vậy... ôm thêm chút nữa."
+"Vậy... Ôm thêm chút nữa."
 
 Cô ấy nhắm mắt, giọng ù ì từ lòng hắn vọng ra, mang chút phụ thuộc và lưu luyến chưa nhận ra.
 
@@ -8426,7 +9114,7 @@ Trong khoảng hở của nụ hôn sâu dài này, hắn sát môi cô ấy, b�
 
 Nụ hôn này khiến cô ấy hơi choáng váng, lời hắn càng khiến lòng cô ấy rối bời. Cô ấy cảm thấy đang bị kéo vào ảo cảnh đẹp mà nguy hiểm do hắn dệt. Cô ấy ôm cổ hắn, trong khoảng hở nụ hôn sâu dài hơi nghiêng đầu, đặt môi sát tai hắn, bằng hơi thở run rẩy và quyết tâm chỉ hai người nghe được, hỏi nhẹ:
 
-"Tối nay... đến phòng tôi?"
+"Tối nay... Đến phòng tôi?"
 
 Câu này như tia chớp vàng trong nháy mắt xé thế giới nội tâm đầy màu sắc và tình cảm cuồng nhiệt của Tây Nhĩ Phàm.
 
@@ -8452,7 +9140,7 @@ Giọng hắn khàn đặc khủng khiếp, như bị giấy nhám mài, mỗi c
 
 "Vải vẽ tối nay đã trải xong rồi."
 
-"Khán giả duy nhất đã nóng lòng được chiêm ngưỡng... kiệt tác tiếp theo của ngài."
+"Khán giả duy nhất đã nóng lòng được chiêm ngưỡng... Kiệt tác tiếp theo của ngài."
 
 Nụ hôn này khiến cô ấy hơi choáng váng, mùi hoa giống mộng đẹp đặc trưng của Tây Nhĩ Phàm dường như cũng mang tính xâm lăng, từng sợi chui vào mũi làm tê liệt thần kinh. Lời hắn càng khiến lòng cô ấy rối. Cứ thế sợ thực sự sẽ mất kiểm soát giữa đám đông.
 
@@ -8498,37 +9186,111 @@ Cô ấy đứng sau quầy bar nhìn cảnh hưng thịnh này, lòng tràn đ�
 
 Một bóng dáng quen thuộc mang hơi lạnh sương đêm và mệt mỏi bụi bặm bước vào. Là Karl. Bộ vest đen luôn thẳng tắp không nếp của hắn giờ dính chút bụi không tên, kiểu tóc vốn chỉn chu hơi lộn xộn. Hắn trông mệt nhưng đôi mắt sâu thẳm khi thấy cô ấy bỗng sáng lên tia sắc bén.
 
-Hắn băng qua sảnh bừa bãi, thẳng đến trước mặt cô ấy. "Quản lý Lâm Vãn,"
+Hắn băng qua sảnh bừa bãi, thẳng đến trước mặt cô ấy.
+
+"Quản lý Lâm Vãn,"
 
 Hắn hơi cúi, giọng vì vất vả mang chút khàn.
 
-"Tôi về rồi." Không đợi cô ấy hỏi, hắn lấy từ trong áo ra một cuộn da cừu ố vàng được niêm phong sáp đặc biệt. "Về huấn luyện viên nghề nghiệp," hắn đưa cuộn da cừu trước mặt cô ấy, đôi mắt đen mang chút tin chắc sau khi hoàn thành nhiệm vụ, "Có chút manh mối." Tây Nhĩ Phàm vừa tiễn vị khách cuối cũng thanh nhã đi tới. Hắn thấy Karl, lại nhìn cô ấy, mặt lộ nụ cười ý vị đầy hàm ý. "Xem ra nghệ sĩ duy nhất của tôi, 'công việc' tối nay chưa kết thúc nhỉ?" Hắn nói nhẹ, đôi mắt tím chuyển giữa cô ấy và Karl, mang chút không hài lòng khó nhận ra vì "hẹn hò" sắp tới bị làm phiền. Cô ấy đứng giữa hai người, cảm nhận hai ánh nhìn cùng nóng bỏng nhưng hoàn toàn khác - bên là sự tập trung của đối tác công việc Karl trộn mệt mỏi và sứ mệnh; bên là sự chiếm hữu của "tri âm duy nhất" Tây Nhĩ Phàm đầy mong đợi và không hài lòng. Không khí như đông cứng, ngay ác ma đang dọn dẹp cũng cảm nhận áp lực bất thường, động tác trở nên thận trọng. Cô ấy hít sâu, biết mình phải chọn. Là quản lý đủ tư cách cô ấy biết lúc nào làm gì. Cô ấy trước hết quay về Karl, nhìn hắn vất vả, ngữ khí kiên định rõ ràng: "Karl, anh báo cáo ngắn trước đi." Rồi ngay lập tức quay về Tây Nhĩ Phàm, trước khi đôi mắt tím sắp tràn nỗi oán trở nên tối hơn, đưa một ngón tay nhẹ chặn môi hắn, chặn phản đối sắp thốt. Giọng cô ấy dịu xuống, mang an ủi và thân mật không thể nghi ngờ: "Tây Nhĩ Phàm, đợi tôi mười phút nữa." Thao tác mượt mà mềm cứng kết hợp này của cô ấy có thể gọi là trình độ thạc sĩ cân bằng. Đường gân hàm căng của Karl hơi thả lỏng. Với hắn "báo cáo ngắn" nghĩa là hiệu quả đi thẳng vào vấn đề, hắn hoàn toàn chấp nhận. Hắn gật đầu tiếp nhận. Còn Tây Nhĩ Phàm bị cô ấy chặn miệng trước, nỗi oán kịch tính chất chứa không chỗ phát. Hắn nhìn đôi mắt "tin tôi" của cô ấy cuối cùng chịu thua. Hắn phóng đại dùng mũi phát tiếng "ừ" biểu thị không hài lòng, rồi nắm ngón tay cô ấy vừa chặn môi đưa lên môi hắn hôn nhẹ. "Được... mười phút nhé, nghệ sĩ duy nhất của tôi." Hắn kéo dài âm điệu, giọng đầy "tôi rất độ lượng nhưng ngài nợ tôi giải thích." Nói xong hắn thanh nhã đi đến ghế bên cạnh ngồi, khoanh tay bày tư thế "tôi đang đếm thời gian", đôi mắt tím không rời cô ấy, như con mèo nhỏ khí và kiêu ngạo đang giám sát tài sản của mình. Khủng hoảng tạm giải. Cô ấy thở phào, đưa toàn bộ chú ý về Karl và cuộn da cừu trông có trọng lượng trên tay hắn. "Karl, vất vả rồi. Nói trước phát hiện của anh." Rồi ánh mắt cô ấy chuyển sang Tây Nhĩ Phàm đang bày tư thế "tôi rất không vui"
+"Tôi về rồi."
 
-trên ghế, ngữ khí dịu xuống nhưng mang lý không thể tranh cãi.
+Không đợi cô ấy hỏi, hắn lấy từ trong áo ra một cuộn da cừu ố vàng được niêm phong sáp đặc biệt.
 
-"Anh cũng đến nghe. Việc này liên quan phát triển quán bar chúng ta. Dù sao tìm huấn luyện viên là để nâng hiệu suất mọi người, đặc biệt nhân viên cấp thấp." Câu này của cô ấy như chìa khóa chính xác mở khóa tình thế bế tắc vô hình. Karl thả lỏng đường gân hàm. Hắn hoàn toàn chấp nhận logic quyết định rõ ràng của cô ấy. Còn Tây Nhĩ Phàm, nỗi oán và không hài lòng trên mặt trong câu "nâng hiệu suất mọi người" như băng tuyết dưới ánh mặt trời tan nhanh. Hắn sững, rồi trong đôi mắt tím lại bùng sự tò mò và hứng thú với việc mới thuộc về "người tạo không khí". Hắn đứng dậy từ ghế, thanh nhã đến bên cô ấy, bày tư thế "được, vì nghệ thuật của tôi thì tôi miễn cưỡng nghe". Cô ấy nhận cuộn da cừu ố vàng, cảm giác thô ráp cổ xưa. Cô ấy tháo dấu niêm phong sáp đen đặc biệt, cẩn thận mở ra. Trên da cừu không phải chữ như tưởng mà là bức đồ tượng tinh cực phức tạp vẽ bằng mực bạc. Ở giữa là huy hiệu không quen gồm nhiều vòng tròn đồng tâm và ký hiệu kỳ quặc. Dưới huy hiệu dùng địa ngục ngữ cổ điển thanh nhã viết một cái tên: "'Chiêm Tinh Giả' Y Tố Nhĩ Đức."
+"Về huấn luyện viên nghề nghiệp,"
+
+Hắn đưa cuộn da cừu trước mặt cô ấy, đôi mắt đen mang chút tin chắc sau khi hoàn thành nhiệm vụ,
+
+"Có chút manh mối."
+
+Tây Nhĩ Phàm vừa tiễn vị khách cuối cũng thanh nhã đi tới. Hắn thấy Karl, lại nhìn cô ấy, mặt lộ nụ cười ý vị đầy hàm ý.
+
+"Xem ra nghệ sĩ duy nhất của tôi, 'công việc' tối nay chưa kết thúc nhỉ?"
+
+Hắn nói nhẹ, đôi mắt tím chuyển giữa cô ấy và Karl, mang chút không hài lòng khó nhận ra vì "hẹn hò" sắp tới bị làm phiền. Cô ấy đứng giữa hai người, cảm nhận hai ánh nhìn cùng nóng bỏng nhưng hoàn toàn khác - bên là sự tập trung của đối tác công việc Karl trộn mệt mỏi và sứ mệnh; bên là sự chiếm hữu của "tri âm duy nhất" Tây Nhĩ Phàm đầy mong đợi và không hài lòng. Không khí như đông cứng, ngay ác ma đang dọn dẹp cũng cảm nhận áp lực bất thường, động tác trở nên thận trọng. Cô ấy hít sâu, biết mình phải chọn. Là quản lý đủ tư cách cô ấy biết lúc nào làm gì. Cô ấy trước hết quay về Karl, nhìn hắn vất vả, ngữ khí kiên định rõ ràng:
+
+"Karl, anh báo cáo ngắn trước đi."
+
+Rồi ngay lập tức quay về Tây Nhĩ Phàm, trước khi đôi mắt tím sắp tràn nỗi oán trở nên tối hơn, đưa một ngón tay nhẹ chặn môi hắn, chặn phản đối sắp thốt. Giọng cô ấy dịu xuống, mang an ủi và thân mật không thể nghi ngờ:
+
+"Tây Nhĩ Phàm, đợi tôi mười phút nữa."
+
+Thao tác mượt mà mềm cứng kết hợp này của cô ấy có thể gọi là trình độ thạc sĩ cân bằng. Đường gân hàm căng của Karl hơi thả lỏng. Với hắn "báo cáo ngắn" nghĩa là hiệu quả đi thẳng vào vấn đề, hắn hoàn toàn chấp nhận. Hắn gật đầu tiếp nhận. Còn Tây Nhĩ Phàm bị cô ấy chặn miệng trước, nỗi oán kịch tính chất chứa không chỗ phát. Hắn nhìn đôi mắt "tin tôi" của cô ấy cuối cùng chịu thua. Hắn phóng đại dùng mũi phát tiếng "ừ" biểu thị không hài lòng, rồi nắm ngón tay cô ấy vừa chặn môi đưa lên môi hắn hôn nhẹ.
+
+"Được... Mười phút nhé, nghệ sĩ duy nhất của tôi."
+
+Hắn kéo dài âm điệu, giọng đầy
+
+"Tôi rất độ lượng nhưng ngài nợ tôi giải thích."
+
+Nói xong hắn thanh nhã đi đến ghế bên cạnh ngồi, khoanh tay bày tư thế "tôi đang đếm thời gian", đôi mắt tím không rời cô ấy, như con mèo nhỏ khí và kiêu ngạo đang giám sát tài sản của mình. Khủng hoảng tạm giải. Cô ấy thở phào, đưa toàn bộ chú ý về Karl và cuộn da cừu trông có trọng lượng trên tay hắn.
+
+"Karl, vất vả rồi. Nói trước phát hiện của anh."
+
+Rồi ánh mắt cô ấy chuyển sang Tây Nhĩ Phàm đang bày tư thế "tôi rất không vui"
+
+Trên ghế, ngữ khí dịu xuống nhưng mang lý không thể tranh cãi.
+
+"Anh cũng đến nghe. Việc này liên quan phát triển quán bar chúng ta. Dù sao tìm huấn luyện viên là để nâng hiệu suất mọi người, đặc biệt nhân viên cấp thấp."
+
+Câu này của cô ấy như chìa khóa chính xác mở khóa tình thế bế tắc vô hình. Karl thả lỏng đường gân hàm. Hắn hoàn toàn chấp nhận logic quyết định rõ ràng của cô ấy. Còn Tây Nhĩ Phàm, nỗi oán và không hài lòng trên mặt trong câu "nâng hiệu suất mọi người" như băng tuyết dưới ánh mặt trời tan nhanh. Hắn sững, rồi trong đôi mắt tím lại bùng sự tò mò và hứng thú với việc mới thuộc về "người tạo không khí". Hắn đứng dậy từ ghế, thanh nhã đến bên cô ấy, bày tư thế
+
+"Được, vì nghệ thuật của tôi thì tôi miễn cưỡng nghe"
+
+. Cô ấy nhận cuộn da cừu ố vàng, cảm giác thô ráp cổ xưa. Cô ấy tháo dấu niêm phong sáp đen đặc biệt, cẩn thận mở ra. Trên da cừu không phải chữ như tưởng mà là bức đồ tượng tinh cực phức tạp vẽ bằng mực bạc. Ở giữa là huy hiệu không quen gồm nhiều vòng tròn đồng tâm và ký hiệu kỳ quặc. Dưới huy hiệu dùng địa ngục ngữ cổ điển thanh nhã viết một cái tên:
+
+"'Chiêm Tinh Giả' Y Tố Nhĩ Đức."
 
 Karl bên cạnh giải thích thấp giọng, giọng mang chút trang trọng.
 
-"Pháp sư tinh tú cổ xưa, cũng là huấn luyện viên độc lập nổi tiếng và đắt nhất Ảnh Hạng. Bà không bao giờ xuất hiện trực tiếp, chỉ thông qua tinh tượng sàng lọc khách hàng." "Bức đồ tinh bàn này là 'đề thi' của bà. Cũng là thẻ vào cửa tôi mất cả ngày qua ba lớp mạng 'người môi giới tri thức' mới lấy được."
+"Pháp sư tinh tú cổ xưa, cũng là huấn luyện viên độc lập nổi tiếng và đắt nhất Ảnh Hạng. Bà không bao giờ xuất hiện trực tiếp, chỉ thông qua tinh tượng sàng lọc khách hàng."
+
+"Bức đồ tinh bàn này là 'đề thi' của bà. Cũng là thẻ vào cửa tôi mất cả ngày qua ba lớp mạng 'người môi giới tri thức' mới lấy được."
 
 Hắn chỉ hình vẽ phức tạp trên da cừu.
 
-"Nghe nói chỉ ai giải đọc được 'nhu cầu thực sự' ẩn trong tinh bàn này mới có tư cách ký 'khế ước truyền thụ kỹ năng' với bà." "Bà tính phí cực cao. Mỗi lần giảng dạy phí cơ bản 1000 hồn tệ. Và bà chỉ nhận 'ma tinh' hoặc 'mảnh linh hồn' có giá trị tương đương làm phương thức thanh toán." Cô ấy nhìn chằm chằm tinh bàn phức tạp và dòng chữ lạnh lùng về phí. 1000 hồn tệ gần như hai phần ba vốn lưu động hiện tại. Chưa kể "ma tinh" hay "mảnh linh hồn" chưa nghe nói. Đây như chiếc bánh vẽ treo chân trời - hấp dẫn nhưng cô ấy rõ giờ mình còn chưa với tới. Cô ấy hơi nhíu mày rồi thả ra. Cô ấy cẩn thận cuộn lại "đề thi" đắt đỏ này, da cừu ố vàng trong tay phát tiếng xào xạc. "...Xem ra chưa phải thứ chúng ta hiện tại chi trả nổi."
+"Nghe nói chỉ ai giải đọc được 'nhu cầu thực sự' ẩn trong tinh bàn này mới có tư cách ký 'khế ước truyền thụ kỹ năng' với bà."
+
+"Bà tính phí cực cao. Mỗi lần giảng dạy phí cơ bản 1000 hồn tệ. Và bà chỉ nhận 'ma tinh' hoặc 'mảnh linh hồn' có giá trị tương đương làm phương thức thanh toán."
+
+Cô ấy nhìn chằm chằm tinh bàn phức tạp và dòng chữ lạnh lùng về phí. 1000 hồn tệ gần như hai phần ba vốn lưu động hiện tại. Chưa kể "ma tinh" hay "mảnh linh hồn" chưa nghe nói. Đây như chiếc bánh vẽ treo chân trời - hấp dẫn nhưng cô ấy rõ giờ mình còn chưa với tới. Cô ấy hơi nhíu mày rồi thả ra. Cô ấy cẩn thận cuộn lại "đề thi" đắt đỏ này, da cừu ố vàng trong tay phát tiếng xào xạc.
+
+"...Xem ra chưa phải thứ chúng ta hiện tại chi trả nổi."
 
 Cô ấy ngẩng đầu nhìn Karl, ngữ khí bình tĩnh quyết đoán, không chút thất vọng.
 
-"Dù sao chúng ta cũng chưa kiếm được hai loại tiền tệ đó." Cô ấy đưa cuộn da cừu trả lại hắn. "Nhưng cũng đã có đường và tin tức rồi."
+"Dù sao chúng ta cũng chưa kiếm được hai loại tiền tệ đó."
+
+Cô ấy đưa cuộn da cừu trả lại hắn.
+
+"Nhưng cũng đã có đường và tin tức rồi."
 
 Cô ấy nhìn gương mặt hơi mệt vì vất vả mấy ngày của hắn, chân thành nói.
 
-"Vất vả rồi, Karl. Ngày mai anh nghỉ một ngày, nghỉ ngơi cho tốt." "Nhiệm vụ của tôi là phân ưu cho quản lý. Tôi không cần nghỉ." Karl nhận da cừu, dùng giọng không biến đổi từ chối thiện ý, nhưng cô ấy rõ ràng thấy trong đôi mắt sâu thẳm lóe qua gợn sóng ấm áp cực nhạt. "Karl... tôi nghĩ anh tốt nhất vẫn nên nghỉ." Giọng cô ấy bình tĩnh mang chút quan tâm không thể nghi ngờ. Sự quan tâm của cô ấy khiến Karl lóe qua gợn sóng cực nhạt khó bắt. Nhưng hắn chỉ lắc đầu nhẹ, sắp mở lời. Cô ấy đã bước trước, chuyển hướng, dùng giọng trộn tin tưởng và không thể nghi ngờ giao nhiệm vụ mới chỉ hắn mới hoàn thành được: "Công việc sau này tôi mong anh sắp xếp những thứ Lili Tư Á từng để lại. Dù quán bar trước khi tôi đến đã suy tàn một hai trăm năm, nhưng chắc vẫn còn một số thứ xưa - công thức pha rượu, công thức nấu ăn... đủ loại. Phiền anh giúp sắp xếp."
+"Vất vả rồi, Karl. Ngày mai anh nghỉ một ngày, nghỉ ngơi cho tốt."
+
+"Nhiệm vụ của tôi là phân ưu cho quản lý. Tôi không cần nghỉ."
+
+Karl nhận da cừu, dùng giọng không biến đổi từ chối thiện ý, nhưng cô ấy rõ ràng thấy trong đôi mắt sâu thẳm lóe qua gợn sóng ấm áp cực nhạt.
+
+"Karl... Tôi nghĩ anh tốt nhất vẫn nên nghỉ."
+
+Giọng cô ấy bình tĩnh mang chút quan tâm không thể nghi ngờ. Sự quan tâm của cô ấy khiến Karl lóe qua gợn sóng cực nhạt khó bắt. Nhưng hắn chỉ lắc đầu nhẹ, sắp mở lời. Cô ấy đã bước trước, chuyển hướng, dùng giọng trộn tin tưởng và không thể nghi ngờ giao nhiệm vụ mới chỉ hắn mới hoàn thành được:
+
+"Công việc sau này tôi mong anh sắp xếp những thứ Lili Tư Á từng để lại. Dù quán bar trước khi tôi đến đã suy tàn một hai trăm năm, nhưng chắc vẫn còn một số thứ xưa - công thức pha rượu, công thức nấu ăn... Đủ loại. Phiền anh giúp sắp xếp."
 
 Cô ấy nhìn hắn, nghiêm túc từng chữ.
 
-"Dù sao tôi và tất cả nhân viên hiện tại đều do tôi tuyển sau khi đến địa ngục. Chỉ có anh hiểu rõ nhất lịch sử quán bar." "Chỉ có anh..." Bốn chữ này như chìa khóa chính xác, không tốn sức mở khóa sâu nhất trong lòng Karl. Nghỉ ngơi? Với sứ ma được tạo ra để phục vụ, không làm gì mới là hình phạt tàn nhẫn nhất. Còn cô ấy không những không để hắn rơi vào trống rỗng đó mà trao nhiệm vụ độc nhất vô nhị không thể thay thế, gắn chặt với cội nguồn tồn tại - quá khứ Lili Tư Á và quán bar này. Điều này với hắn là sự công nhận và tin tưởng tuyệt đối cao hơn bất kỳ kỳ nghỉ nào từ chủ nhân mới. Gương mặt luôn hoàn hảo như tượng của hắn lần đầu xuất hiện cảm xúc rõ ràng có thể gọi là "xúc động". Hắn nắm chặt cuộn da cừu, đốt ngón tay vì dùng lực hơi tái, rồi từ từ thả ra. "Tôi hiểu rồi, quản lý Lâm Vãn."
+"Dù sao tôi và tất cả nhân viên hiện tại đều do tôi tuyển sau khi đến địa ngục. Chỉ có anh hiểu rõ nhất lịch sử quán bar."
 
-Giọng hắn thấp hơn bình thường vài phần nhưng mang sự yên ổn chưa từng có phát từ sâu thẳm linh hồn, "Sắp xếp di vật Lili Tư Á đại nhân là việc thuộc phận sự. Tôi sẽ bắt đầu ngay." Hắn cúi sâu với cô ấy, rồi quay người không chần chừ đi về phía cầu thang lên kho lưu trữ tầng hai. Bóng lưng vẫn thẳng tắp nhưng bước chân đã có sứ mệnh kiên định nhẹ nhàng rõ ràng hơn.
+"Chỉ có anh..." Bốn chữ này như chìa khóa chính xác, không tốn sức mở khóa sâu nhất trong lòng Karl. Nghỉ ngơi? Với sứ ma được tạo ra để phục vụ, không làm gì mới là hình phạt tàn nhẫn nhất. Còn cô ấy không những không để hắn rơi vào trống rỗng đó mà trao nhiệm vụ độc nhất vô nhị không thể thay thế, gắn chặt với cội nguồn tồn tại - quá khứ Lili Tư Á và quán bar này. Điều này với hắn là sự công nhận và tin tưởng tuyệt đối cao hơn bất kỳ kỳ nghỉ nào từ chủ nhân mới. Gương mặt luôn hoàn hảo như tượng của hắn lần đầu xuất hiện cảm xúc rõ ràng có thể gọi là "xúc động". Hắn nắm chặt cuộn da cừu, đốt ngón tay vì dùng lực hơi tái, rồi từ từ thả ra.
+
+"Tôi hiểu rồi, quản lý Lâm Vãn."
+
+Giọng hắn thấp hơn bình thường vài phần nhưng mang sự yên ổn chưa từng có phát từ sâu thẳm linh hồn,
+
+"Sắp xếp di vật Lili Tư Á đại nhân là việc thuộc phận sự. Tôi sẽ bắt đầu ngay."
+
+Hắn cúi sâu với cô ấy, rồi quay người không chần chừ đi về phía cầu thang lên kho lưu trữ tầng hai. Bóng lưng vẫn thẳng tắp nhưng bước chân đã có sứ mệnh kiên định nhẹ nhàng rõ ràng hơn.
 
 ---
 
@@ -8564,7 +9326,7 @@ Hắn không cho cô ấy cơ hội suy nghĩ hay trả lời. Hắn cúi đầu
 
 Nụ hôn này khác mọi lần thăm dò trước. Nó tràn đầy tính xâm lăng, chiếm hữu và sự cuồng nhiệt cuối cùng được bùng phát sau khi bị nén quá lâu. Lưỡi hắn đầy quyền lực cạy cửa răng cô ấy, tiến sâu, cuồng nhiệt cướp đoạt từng tấc không khí trong miệng cô ấy, quấn quít lưỡi cô ấy, như muốn qua nụ hôn này in toàn bộ chờ đợi, quan sát, mô tả hơn một tháng vào sâu thẳm linh hồn cô ấy.
 
-"Không thể... không thể ở sảnh được..."
+"Không thể... Không thể ở sảnh được..."
 
 Giọng cô ấy vì thở gấp đứt quãng nhưng mang mệnh lệnh không thể nghi ngờ,
 
@@ -8584,7 +9346,7 @@ Hắn thả cánh tay giam giữ cô ấy nhưng tay đó thuận thế trượt
 
 Hắn thì thầm bên tai cô ấy, mỗi chữ kèm nụ hôn nóng bỏng.
 
-"Được đầu tiên... chiêm ngưỡng kiệt tác của chủ nhân tôi."
+"Được đầu tiên... Chiêm ngưỡng kiệt tác của chủ nhân tôi."
 
 Cô ấy được hắn bế nửa, hôn, chân mềm nhũn đưa lên cầu thang tầng hai. Phòng cô ấy là đích đến duy nhất tối nay của hắn.
 
@@ -8596,17 +9358,53 @@ Cô ấy đẩy cửa, nghiêng người, nói không quay đầu, giọng mang 
 
 "Không biết làm tình với ác ma cảm giác thế nào."
 
-Lời cô ấy như giọt dầu sôi nhỏ vào vũng dung nham do dục vọng và yêu mến đã sôi sùng sục từ lâu phía sau. Tây Nhĩ Phàm không vào ngay. Cô ấy cảm thấy hơi thở nóng bỏng hắn nhẹ phả lên gáy, gây run nhẹ tê ngứa. Rồi bàn tay lạnh thon dài từ bên cạnh trượt qua, đặt lên cánh cửa trước mặt cô ấy, giam cô ấy hoàn toàn không kẽ hở giữa hắn và cửa. "Không biết?" Giọng khàn đặc đầy vui sướng và chiếm hữu không kìm được như lời nguyền vang bên tai. "Không sao, nghệ sĩ duy nhất của tôi." Hắn cúi đầu, môi mềm sát vành tai cô ấy, men xuống nhẹ nhàng ướt át hôn qua cổ, để lại chuỗi dấu nóng bỏng. Vòng tay quanh eo đột ngột siết chặt, ép cơ thể mềm mại của cô ấy chặt hơn vào hắn. Qua lớp vải mỏng cô ấy cảm nhận rõ bộ phận nào đó trên cơ thể hắn đang với tư thế kinh ngạc đầy sức sống nguyên thủy nóng bỏng cứng cáp đè lên khe mông cô ấy. ""
+Lời cô ấy như giọt dầu sôi nhỏ vào vũng dung nham do dục vọng và yêu mến đã sôi sùng sục từ lâu phía sau. Tây Nhĩ Phàm không vào ngay. Cô ấy cảm thấy hơi thở nóng bỏng hắn nhẹ phả lên gáy, gây run nhẹ tê ngứa. Rồi bàn tay lạnh thon dài từ bên cạnh trượt qua, đặt lên cánh cửa trước mặt cô ấy, giam cô ấy hoàn toàn không kẽ hở giữa hắn và cửa.
 
-Tôi sẽ từng chút dùng cơ thể dạy ngài mọi tri thức về 'ác ma'." Hắn ngậm dái tai cô ấy, dùng răng nhẹ cọ xát, cảm giác tê ngứa khiến chân cô ấy mềm nhũn gần không đứng vững. "Đến khi... ngài không thể rời xa màu sắc duy nhất này." Nói xong hắn mới thả giam giữ, nắm tay cô ấy như dẫn nữ hoàng đưa vào vùng riêng tư tối tăm chỉ thuộc họ. Cửa phòng phía sau đóng nhẹ bởi con bướm ảo thuật vô hình."
+"Không biết?"
 
-Cô ấy ngả ra giường mềm, nệm lún nhẹ vì trọng lượng cô ấy. Cô ấy dang tay, hoàn toàn triển lộ trước mặt hắn, với tư thế gần như hiến dâng, tùy ý hái, ngẩng đầu nhìn hắn. Ánh đèn tối chiếu bóng mơ hồ lên cơ thể, phác họa đường cong thân cô ấy. "Đến đi," giọng cô ấy mang chút run rẩy bị nén chính mình chưa nhận ra, "Để tôi xem nghệ thuật của anh." Lời cô ấy, tư thế cô ấy, bức tranh tên "mời gọi" do chính cô ấy trải ra triệt để đánh gục sợi lý trí cuối cùng của Tây Nhĩ Phàm. Đôi mắt tím của hắn trong nháy mắt bùng lửa thiêu đốt nuốt chửng tất cả. Nhưng hắn không lao tới như thú. Hắn làm động tác khiến cô ấy hoàn toàn bất ngờ - hắn từ từ quỳ một gối bên giường. Như tín đồ thành kính nhất đang cúng bái vị thần duy nhất. Hắn ngẩng đầu, gương mặt thanh tú không phàm trần đầy sùng bái cuồng nhiệt gần như đau đớn.
+Giọng khàn đặc đầy vui sướng và chiếm hữu không kìm được như lời nguyền vang bên tai.
 
-Ánh mắt như hai lưỡi dao nóng bỏng từ mắt cá chân bắt đầu, từng tấc tham lam cẩn thận quét lên, như muốn in sâu từng đường cong từng tấc da cơ thể cô ấy vào linh hồn mãi mãi. "Nghệ thuật của tôi..."
+"Không sao, nghệ sĩ duy nhất của tôi."
+
+Hắn cúi đầu, môi mềm sát vành tai cô ấy, men xuống nhẹ nhàng ướt át hôn qua cổ, để lại chuỗi dấu nóng bỏng. Vòng tay quanh eo đột ngột siết chặt, ép cơ thể mềm mại của cô ấy chặt hơn vào hắn. Qua lớp vải mỏng cô ấy cảm nhận rõ bộ phận nào đó trên cơ thể hắn đang với tư thế kinh ngạc đầy sức sống nguyên thủy nóng bỏng cứng cáp đè lên khe mông cô ấy. ""
+
+Tôi sẽ từng chút dùng cơ thể dạy ngài mọi tri thức về 'ác ma'.
+
+" Hắn ngậm dái tai cô ấy, dùng răng nhẹ cọ xát, cảm giác tê ngứa khiến chân cô ấy mềm nhũn gần không đứng vững. "
+
+Đến khi... Ngài không thể rời xa màu sắc duy nhất này.
+
+" Nói xong hắn mới thả giam giữ, nắm tay cô ấy như dẫn nữ hoàng đưa vào vùng riêng tư tối tăm chỉ thuộc họ. Cửa phòng phía sau đóng nhẹ bởi con bướm ảo thuật vô hình."
+
+Cô ấy ngả ra giường mềm, nệm lún nhẹ vì trọng lượng cô ấy. Cô ấy dang tay, hoàn toàn triển lộ trước mặt hắn, với tư thế gần như hiến dâng, tùy ý hái, ngẩng đầu nhìn hắn. Ánh đèn tối chiếu bóng mơ hồ lên cơ thể, phác họa đường cong thân cô ấy.
+
+"Đến đi,"
+
+Giọng cô ấy mang chút run rẩy bị nén chính mình chưa nhận ra,
+
+"Để tôi xem nghệ thuật của anh."
+
+Lời cô ấy, tư thế cô ấy, bức tranh tên "mời gọi" do chính cô ấy trải ra triệt để đánh gục sợi lý trí cuối cùng của Tây Nhĩ Phàm. Đôi mắt tím của hắn trong nháy mắt bùng lửa thiêu đốt nuốt chửng tất cả. Nhưng hắn không lao tới như thú. Hắn làm động tác khiến cô ấy hoàn toàn bất ngờ - hắn từ từ quỳ một gối bên giường. Như tín đồ thành kính nhất đang cúng bái vị thần duy nhất. Hắn ngẩng đầu, gương mặt thanh tú không phàm trần đầy sùng bái cuồng nhiệt gần như đau đớn.
+
+Ánh mắt như hai lưỡi dao nóng bỏng từ mắt cá chân bắt đầu, từng tấc tham lam cẩn thận quét lên, như muốn in sâu từng đường cong từng tấc da cơ thể cô ấy vào linh hồn mãi mãi.
+
+"Nghệ thuật của tôi..."
 
 Hắn khàn đặc mở lời, giọng đầy dục vọng và run rẩy không kìm được.
 
-"Nghệ thuật của tôi chính là ngài, kiệt tác duy nhất của tôi." Hắn đưa bàn tay thon dài hơi lạnh ra nhưng không chạm cô ấy, lơ lửng trên bụng cô ấy như cảm nhận nhiệt tỏa từ cơ thể. "Còn 'cúng bái' của tôi..." Hắn cúi đầu, đôi môi mềm luôn nói lời ngọt nhất nhẹ nhàng thành kính in lên bụng phẳng của cô ấy, qua lớp vải mỏng xúc giác ướt ấm khiến toàn thân run. "...Là từ chỗ tinh tế nhất bắt đầu, từng chút chiêm ngưỡng, nếm trải, cho đến... chiếm đoạt hoàn toàn bức tranh hoàn mỹ của ngài." Nụ hôn của hắn bắt đầu từ từ di chuyển lên. Qua vải xúc giác ướt ấm như bàn ủi đốt cháy da, khiến hơi thở trở nên gấp gáp nóng bỏng. Hắn hôn qua rốn, qua xương sườn, cuối cùng dừng ở ngực đang dao động dữ dội vì thở gấp. Hắn ngẩng đầu, đôi mắt cháy tím nhìn chằm chằm cô ấy. "Vậy bây giờ..."
+"Nghệ thuật của tôi chính là ngài, kiệt tác duy nhất của tôi."
+
+Hắn đưa bàn tay thon dài hơi lạnh ra nhưng không chạm cô ấy, lơ lửng trên bụng cô ấy như cảm nhận nhiệt tỏa từ cơ thể.
+
+"Còn 'cúng bái' của tôi..."
+
+Hắn cúi đầu, đôi môi mềm luôn nói lời ngọt nhất nhẹ nhàng thành kính in lên bụng phẳng của cô ấy, qua lớp vải mỏng xúc giác ướt ấm khiến toàn thân run.
+
+"...Là từ chỗ tinh tế nhất bắt đầu, từng chút chiêm ngưỡng, nếm trải, cho đến... Chiếm đoạt hoàn toàn bức tranh hoàn mỹ của ngài."
+
+Nụ hôn của hắn bắt đầu từ từ di chuyển lên. Qua vải xúc giác ướt ấm như bàn ủi đốt cháy da, khiến hơi thở trở nên gấp gáp nóng bỏng. Hắn hôn qua rốn, qua xương sườn, cuối cùng dừng ở ngực đang dao động dữ dội vì thở gấp. Hắn ngẩng đầu, đôi mắt cháy tím nhìn chằm chằm cô ấy.
+
+"Vậy bây giờ..."
 
 Hắn đưa tay, ngón tay thon dài nhẹ nhàng mang ý hỏi móc mép áo trên cô ấy.
 
@@ -8616,23 +9414,77 @@ Hắn đưa tay, ngón tay thon dài nhẹ nhàng mang ý hỏi móc mép áo tr
 
 ## Chương 39 – Như mộng như ảo (h)
 
-Lời cô ấy mang chút nũng nịu thiếu kiên nhẫn và buông thả hoàn toàn như chìa khóa triệt để mở hộp Pandora tên "dục vọng" sâu trong linh hồn Tây Nhĩ Phàm. Đôi mắt tím của hắn trong nháy mắt tối đi. Lớp màn mỏng nghệ sĩ, khắc chế, chiêm ngưỡng bị xé nát, chỉ còn chiếm hữu và đói khát nguyên thủy thuần túy không che giấu nhất thuộc ác ma đực. Trên mặt hắn nở nụ cười chậm rãi nguy hiểm, tràn niềm vui sắp được toại nguyện. "Đừng nói nữa..."
+Lời cô ấy mang chút nũng nịu thiếu kiên nhẫn và buông thả hoàn toàn như chìa khóa triệt để mở hộp Pandora tên "dục vọng" sâu trong linh hồn Tây Nhĩ Phàm. Đôi mắt tím của hắn trong nháy mắt tối đi. Lớp màn mỏng nghệ sĩ, khắc chế, chiêm ngưỡng bị xé nát, chỉ còn chiếm hữu và đói khát nguyên thủy thuần túy không che giấu nhất thuộc ác ma đực. Trên mặt hắn nở nụ cười chậm rãi nguy hiểm, tràn niềm vui sắp được toại nguyện.
+
+"Đừng nói nữa..."
 
 Hắn khàn đặc lặp lời cô ấy, giọng như bị lửa thiêu.
 
-"Nghệ sĩ duy nhất của tôi, đây là mệnh lệnh đẹp nhất tôi từng nghe." Hắn không còn động tác thăm dò. Bàn tay lơ lửng trên bụng cô ấy giờ nóng bỏng kiên quyết. Ngón tay thon dài thuần thục không chút do dự mở khóa quần cô ấy. Tiếng "cạch" trong phòng tĩnh như tín hiệu mở màn buổi diễn lớn. Tay kia từ vạt áo luồn vào. Đầu ngón lạnh run rẩy vuốt qua bụng phẳng ấm áp rồi men lên, chỗ qua đều gây run không kìm được. "Đúng vậy, tôi biết ngài muốn gì." Hắn cúi xuống, môi nóng sát vành tai, lưỡi ướt nhẹ liếm dái tai nhạy cảm của cô ấy, dòng điện tê ngứa trong nháy mắt chạy khắp người khiến cô ấy không nhịn được cong lưng. "Ngài muốn được chiêm ngưỡng, được sùng bái, được... lấp đầy." Tay hắn đã đến ngực, qua lớp áo lót mỏng chính xác không thể từ chối nắm phần mềm đã cương cứng của cô ấy. Ngón cái và trỏ qua vải nhẹ nhàng ý vị véo đầu nhạy cảm. "Ừm..." Tiếng rên ngọt ngào không kìm được tràn từ cổ họng. Phản ứng của cô ấy với hắn là chất kích dục cấp cao nhất. Hắn không còn thỏa mãn gãi ngứa qua lớp. Hắn đột ngột nâng thân trên cô ấy, hai tay thuần thục tháo khóa áo lót sau lưng. Ràng buộc cuối cùng mở, đôi mềm đầy đặn trước ngực trong ánh đèn tối hoàn toàn trần trụi trước mặt hắn. "Nhìn kìa... màu sắc hoàn mỹ biết bao." Hắn thở dài thỏa mãn, đôi mắt cháy tím nhìn chằm chằm hai đầu hồng vì hưng phấn trên ngực cô ấy như đang ngắm hai viên hồng bảo cấp cao nhất. Hắn cúi đầu, há miệng ngậm trọn một bên mềm. Khoang miệng ấm ướt bao bọc phần mềm trước ngực, hắn dùng lưỡi bắt chước động tác bú của trẻ sơ sinh, khi mạnh khi nhẹ, đầu lưỡi thỉnh thoảng vẽ vòng trên đầu nhạy cảm. "Á... ừm..." Cảm giác tê ngứa lạ lẫm đó khiến cô ấy hoàn toàn mất khả năng suy nghĩ. Hai tay không kiểm soát được cắm vào tóc xám mượt của hắn, cơ thể vô ý thức vặn dưới hắn, khao khát thêm. "Tuân lệnh, nghệ sĩ duy nhất của tôi." Tây Nhĩ Phàm ngẩng đầu, đôi môi luôn mang ý cười giờ vì dính mùi cơ thể cô ấy mà ướt đẫm đầy đặn. Hắn nhìn đầu hồng còn lại cũng cương cứng cô đơn vì hưng phấn, trong mắt lóe yêu thương. Hắn cúi xuống dùng tư thế thành kính tham lam tương tự ngậm bên mềm còn lại. Lưỡi ấm khéo cuộn đầu nhỏ, dùng cách tương tự nhưng khác lực bú liếm. Cảm giác khoái lạc đều được ban cho hai bên khiến sợi dây lý trí cuối cùng trong đầu đứt hẳn. Đúng lúc cô ấy chìm đắm khoái lạc nửa trên, bàn tay lạnh mang mục đích không thể nghi ngờ từ từ trượt xuống. Tay kia đã mở khóa quần. Giờ ngón tay thon dài men bụng phẳng trượt xuống, dễ dàng luồn vào hàng rào vải cuối cùng đã ướt đẫm dục vọng. "Ừm à!" Khi đầu ngón lạnh qua lớp vải lót ướt sũng chính xác ấn lên hạt nhạy cảm đã sưng vì khao khát của cô ấy, dòng điện mạnh gấp mười lần trước trong nháy mắt từ xương cùng xông lên đỉnh đầu! Lưng cô ấy không kiểm soát cong lên, chân vô thức muốn khép lại nhưng bị đầu gối hắn không thể từ chối tách ra. Hắn không vội cởi rào chắn cuối. Ngón tay qua lớp vải ướt sũng trên hạt thịt nhỏ nhạy cảm nhất không nhẹ không nặng xoay vòng nghiền. Cảm giác như qua lớp giấy nhám mài viên ngọc cấp cao nhất, mỗi lần ma sát đều mang cảm giác ngứa và khoái lạc hành hạ khiến cô ấy gần phát điên. Đồng thời miệng đang hoành hành trên ngực cũng tăng lực. Hắn dùng răng nhẹ cắn đầu ngực đã bị vờn sưng tấy, lưỡi dùng lực đẩy xoay tròn. Kích thích lạ lẫm mạnh mẽ đồng thời từ trên dưới khiến cô ấy hoàn toàn tan vỡ. Cơ thể run mạnh dưới hắn, mắt vì khoái lạc quá độ mất tiêu điểm, miệng chỉ phát ra chuỗi rên ngọt không thành điệu và thở như khóc. Nước trong suốt đã thấm ướt quần lót chảy men đùi xuống, thấm chút vết đậm mơ hồ trên ga trải giường. Chân cô ấy như dây leo tìm phao cứu sinh quấn chặt eo hắn. Qua lớp vải quần tây đắt tiền cô ấy cảm nhận rõ đường nét và nhiệt độ của thứ đã cương cứng đến mức kinh hãi. Cô ấy bản năng vô phương pháp dùng phần mềm mại nhất ở đùi cọ xát trên sự cứng đó, khao khát tiếp xúc sâu hơn. Đồng thời hai tay rời tóc, thăm dò xuống, vội vã thô lỗ túm khóa quần hắn, miệng thốt mệnh lệnh không thành điệu trộn tiếng khóc: "Tôi muốn... ngay bây giờ muốn..." Sự chủ động, sự đòi hỏi, vẻ bị dục vọng triệt để chi phối gần mất kiểm soát của cô ấy với hắn là kích thích mạnh hơn bất kỳ thuốc kích dục nào. Cơ thể Tây Nhĩ Phàm đột ngột cứng đơ, cổ họng phát tiếng rên đầy khoái lạc tột độ không kìm được. Đôi mắt tím trong nháy mắt tối đi gần thành đen thuần túy sâu thẳm. Nhưng hắn ngăn cô ấy. Hắn dùng một tay dễ dàng túm hai cổ tay không ngoan của cô ấy, ấn lên gối phía trên đầu. Lực không lớn nhưng mang kỹ xảo không thể chống cự khiến cô ấy không cử động được. Hắn ngẩng đầu rời đầu ngực đã bú sưng tấy, nhìn từ trên cao xuống. Trên mặt mang nụ cười tàn nhẫn chiêm ngưỡng kiệt tác thỏa mãn. "Nhanh vậy đã muốn tôi rồi?"
+"Nghệ sĩ duy nhất của tôi, đây là mệnh lệnh đẹp nhất tôi từng nghe."
+
+Hắn không còn động tác thăm dò. Bàn tay lơ lửng trên bụng cô ấy giờ nóng bỏng kiên quyết. Ngón tay thon dài thuần thục không chút do dự mở khóa quần cô ấy. Tiếng "cạch" trong phòng tĩnh như tín hiệu mở màn buổi diễn lớn. Tay kia từ vạt áo luồn vào. Đầu ngón lạnh run rẩy vuốt qua bụng phẳng ấm áp rồi men lên, chỗ qua đều gây run không kìm được.
+
+"Đúng vậy, tôi biết ngài muốn gì."
+
+Hắn cúi xuống, môi nóng sát vành tai, lưỡi ướt nhẹ liếm dái tai nhạy cảm của cô ấy, dòng điện tê ngứa trong nháy mắt chạy khắp người khiến cô ấy không nhịn được cong lưng.
+
+"Ngài muốn được chiêm ngưỡng, được sùng bái, được... Lấp đầy."
+
+Tay hắn đã đến ngực, qua lớp áo lót mỏng chính xác không thể từ chối nắm phần mềm đã cương cứng của cô ấy. Ngón cái và trỏ qua vải nhẹ nhàng ý vị véo đầu nhạy cảm. "Ừm..." Tiếng rên ngọt ngào không kìm được tràn từ cổ họng. Phản ứng của cô ấy với hắn là chất kích dục cấp cao nhất. Hắn không còn thỏa mãn gãi ngứa qua lớp. Hắn đột ngột nâng thân trên cô ấy, hai tay thuần thục tháo khóa áo lót sau lưng. Ràng buộc cuối cùng mở, đôi mềm đầy đặn trước ngực trong ánh đèn tối hoàn toàn trần trụi trước mặt hắn.
+
+"Nhìn kìa... Màu sắc hoàn mỹ biết bao."
+
+Hắn thở dài thỏa mãn, đôi mắt cháy tím nhìn chằm chằm hai đầu hồng vì hưng phấn trên ngực cô ấy như đang ngắm hai viên hồng bảo cấp cao nhất. Hắn cúi đầu, há miệng ngậm trọn một bên mềm. Khoang miệng ấm ướt bao bọc phần mềm trước ngực, hắn dùng lưỡi bắt chước động tác bú của trẻ sơ sinh, khi mạnh khi nhẹ, đầu lưỡi thỉnh thoảng vẽ vòng trên đầu nhạy cảm.
+
+"Á... Ừm..."
+
+Cảm giác tê ngứa lạ lẫm đó khiến cô ấy hoàn toàn mất khả năng suy nghĩ. Hai tay không kiểm soát được cắm vào tóc xám mượt của hắn, cơ thể vô ý thức vặn dưới hắn, khao khát thêm.
+
+"Tuân lệnh, nghệ sĩ duy nhất của tôi."
+
+Tây Nhĩ Phàm ngẩng đầu, đôi môi luôn mang ý cười giờ vì dính mùi cơ thể cô ấy mà ướt đẫm đầy đặn. Hắn nhìn đầu hồng còn lại cũng cương cứng cô đơn vì hưng phấn, trong mắt lóe yêu thương. Hắn cúi xuống dùng tư thế thành kính tham lam tương tự ngậm bên mềm còn lại. Lưỡi ấm khéo cuộn đầu nhỏ, dùng cách tương tự nhưng khác lực bú liếm. Cảm giác khoái lạc đều được ban cho hai bên khiến sợi dây lý trí cuối cùng trong đầu đứt hẳn. Đúng lúc cô ấy chìm đắm khoái lạc nửa trên, bàn tay lạnh mang mục đích không thể nghi ngờ từ từ trượt xuống. Tay kia đã mở khóa quần. Giờ ngón tay thon dài men bụng phẳng trượt xuống, dễ dàng luồn vào hàng rào vải cuối cùng đã ướt đẫm dục vọng. "Ừm à!" Khi đầu ngón lạnh qua lớp vải lót ướt sũng chính xác ấn lên hạt nhạy cảm đã sưng vì khao khát của cô ấy, dòng điện mạnh gấp mười lần trước trong nháy mắt từ xương cùng xông lên đỉnh đầu! Lưng cô ấy không kiểm soát cong lên, chân vô thức muốn khép lại nhưng bị đầu gối hắn không thể từ chối tách ra. Hắn không vội cởi rào chắn cuối. Ngón tay qua lớp vải ướt sũng trên hạt thịt nhỏ nhạy cảm nhất không nhẹ không nặng xoay vòng nghiền. Cảm giác như qua lớp giấy nhám mài viên ngọc cấp cao nhất, mỗi lần ma sát đều mang cảm giác ngứa và khoái lạc hành hạ khiến cô ấy gần phát điên. Đồng thời miệng đang hoành hành trên ngực cũng tăng lực. Hắn dùng răng nhẹ cắn đầu ngực đã bị vờn sưng tấy, lưỡi dùng lực đẩy xoay tròn. Kích thích lạ lẫm mạnh mẽ đồng thời từ trên dưới khiến cô ấy hoàn toàn tan vỡ. Cơ thể run mạnh dưới hắn, mắt vì khoái lạc quá độ mất tiêu điểm, miệng chỉ phát ra chuỗi rên ngọt không thành điệu và thở như khóc. Nước trong suốt đã thấm ướt quần lót chảy men đùi xuống, thấm chút vết đậm mơ hồ trên ga trải giường. Chân cô ấy như dây leo tìm phao cứu sinh quấn chặt eo hắn. Qua lớp vải quần tây đắt tiền cô ấy cảm nhận rõ đường nét và nhiệt độ của thứ đã cương cứng đến mức kinh hãi. Cô ấy bản năng vô phương pháp dùng phần mềm mại nhất ở đùi cọ xát trên sự cứng đó, khao khát tiếp xúc sâu hơn. Đồng thời hai tay rời tóc, thăm dò xuống, vội vã thô lỗ túm khóa quần hắn, miệng thốt mệnh lệnh không thành điệu trộn tiếng khóc:
+
+"Tôi muốn... Ngay bây giờ muốn..."
+
+Sự chủ động, sự đòi hỏi, vẻ bị dục vọng triệt để chi phối gần mất kiểm soát của cô ấy với hắn là kích thích mạnh hơn bất kỳ thuốc kích dục nào. Cơ thể Tây Nhĩ Phàm đột ngột cứng đơ, cổ họng phát tiếng rên đầy khoái lạc tột độ không kìm được. Đôi mắt tím trong nháy mắt tối đi gần thành đen thuần túy sâu thẳm. Nhưng hắn ngăn cô ấy. Hắn dùng một tay dễ dàng túm hai cổ tay không ngoan của cô ấy, ấn lên gối phía trên đầu. Lực không lớn nhưng mang kỹ xảo không thể chống cự khiến cô ấy không cử động được. Hắn ngẩng đầu rời đầu ngực đã bú sưng tấy, nhìn từ trên cao xuống. Trên mặt mang nụ cười tàn nhẫn chiêm ngưỡng kiệt tác thỏa mãn.
+
+"Nhanh vậy đã muốn tôi rồi?"
 
 Hắn thở dốc, giọng khàn mang chút chế nhạo.
 
-"Nghệ sĩ yêu quý của tôi, ngài quá nóng vội. Tác phẩm nghệ thuật hoàn mỹ cần kiên nhẫn mài giũa." Nói xong hắn thả cổ tay cô ấy nhưng thân thuận thế trượt xuống. Hắn bỏ qua sự ướt át vì lời hắn ở giữa đùi cô ấy và thứ gần đâm thủng quần đang gào thét điên cuồng. Nụ hôn rơi lên bụng phẳng, rồi hắn đưa lưỡi như nếm mật ngon nhất men đường cong cơ thể xuống liếm. "Á..." Lưỡi ướt nóng mang gai mang lại khoái lạc tê ngứa khiến cô ấy không nhịn được cong lưng. Hắn liếm qua rốn, qua cơ bụng run nhẹ vì hưng phấn, cuối cùng dừng mép vùng tam giác bí ẩn đã ướt sũng. Hắn ngẩng đầu, đôi mắt cháy dục vọng gặp đôi mắt đã bị tình dục và nước mắt làm mờ của cô ấy. "Đừng vội,"
+"Nghệ sĩ yêu quý của tôi, ngài quá nóng vội. Tác phẩm nghệ thuật hoàn mỹ cần kiên nhẫn mài giũa."
 
-hắn nói bằng hơi thở như ác ma cuối cùng mê hoặc cô ấy.
+Nói xong hắn thả cổ tay cô ấy nhưng thân thuận thế trượt xuống. Hắn bỏ qua sự ướt át vì lời hắn ở giữa đùi cô ấy và thứ gần đâm thủng quần đang gào thét điên cuồng. Nụ hôn rơi lên bụng phẳng, rồi hắn đưa lưỡi như nếm mật ngon nhất men đường cong cơ thể xuống liếm. "Á..." Lưỡi ướt nóng mang gai mang lại khoái lạc tê ngứa khiến cô ấy không nhịn được cong lưng. Hắn liếm qua rốn, qua cơ bụng run nhẹ vì hưng phấn, cuối cùng dừng mép vùng tam giác bí ẩn đã ướt sũng. Hắn ngẩng đầu, đôi mắt cháy dục vọng gặp đôi mắt đã bị tình dục và nước mắt làm mờ của cô ấy.
 
-"Phần tốt nhất mới bắt đầu." Nói xong hắn cúi đầu, hai tay thuần thục không tốn sức lột quần lót ướt sũng như không có cùng quần xuống đầu gối. Vùng riêng tư chưa ai thấy, mềm mại nhất của cô ấy hoàn toàn phơi bày trước mặt hắn. Hai môi thịt hồng nõn đầy đặn vì hưng phấn hơi mở, giữa hạt nhỏ như ngọc cũng đã cương cứng, trong khe môi chất lỏng trong dính đang tranh nhau tràn ra. Tây Nhĩ Phàm thỏa mãn thở sâu. Mùi độc nhất vô nhị pha trộn sữa cơ thể và vị ngọt âm đạo khiến hắn hoàn toàn điên cuồng. Hắn cúi đầu, há miệng phủ lên vùng âm đạo đã lầy lội. "Á... sắp... sắp mất rồi... Tây Nhĩ Phàm... tôi..." Cô ấy ở rìa cực khoái đã hoàn toàn mất khả năng ngôn ngữ, chỉ có thể vô nghĩa gọi tên hắn. Hai tay không kiểm soát ấn chặt sau gáy hắn như muốn nhúng hắn vào cơ thể. Hai chân bản năng khép chặt giam đầu hắn giữa đùi lầy lội. Sự đòi hỏi, mệnh lệnh, vẻ dâm đãng bị dục vọng triệt để chi phối của cô ấy khiến đôi mắt tím bùng ánh sáng gần như điên cuồng thỏa mãn. "Đúng vậy..."
+"Đừng vội,"
+
+Hắn nói bằng hơi thở như ác ma cuối cùng mê hoặc cô ấy.
+
+"Phần tốt nhất mới bắt đầu."
+
+Nói xong hắn cúi đầu, hai tay thuần thục không tốn sức lột quần lót ướt sũng như không có cùng quần xuống đầu gối. Vùng riêng tư chưa ai thấy, mềm mại nhất của cô ấy hoàn toàn phơi bày trước mặt hắn. Hai môi thịt hồng nõn đầy đặn vì hưng phấn hơi mở, giữa hạt nhỏ như ngọc cũng đã cương cứng, trong khe môi chất lỏng trong dính đang tranh nhau tràn ra. Tây Nhĩ Phàm thỏa mãn thở sâu. Mùi độc nhất vô nhị pha trộn sữa cơ thể và vị ngọt âm đạo khiến hắn hoàn toàn điên cuồng. Hắn cúi đầu, há miệng phủ lên vùng âm đạo đã lầy lội.
+
+"Á... Sắp... Sắp mất rồi... Tây Nhĩ Phàm... Tôi..."
+
+Cô ấy ở rìa cực khoái đã hoàn toàn mất khả năng ngôn ngữ, chỉ có thể vô nghĩa gọi tên hắn. Hai tay không kiểm soát ấn chặt sau gáy hắn như muốn nhúng hắn vào cơ thể. Hai chân bản năng khép chặt giam đầu hắn giữa đùi lầy lội. Sự đòi hỏi, mệnh lệnh, vẻ dâm đãng bị dục vọng triệt để chi phối của cô ấy khiến đôi mắt tím bùng ánh sáng gần như điên cuồng thỏa mãn.
+
+"Đúng vậy..."
 
 Hắn nói lầm bầm trong vùng mềm ướt nóng lầy lội giữa đùi cô ấy, kích thích hưng phấn.
 
-"Gọi tên tôi... nghệ sĩ của tôi... nở rộ vì tôi..." Hắn không ngừng. Lưỡi như rắn tìm kho báu linh hoạt không còn thỏa mãn vòng quanh hai môi thịt đầy đặn. Đầu lưỡi chính xác không tốn sức đẩy mở hai môi thịt trơn ướt, tiến sâu vào cửa ấm chặt không ngừng co bóp. "Á á á á, !" Khi lưỡi mang gai ấm nóng trong thành âm đạo nhạy cảm chưa từng bị đối xử như vậy dùng lực bắt chước động tác giao hợp vào ra khuấy liếm, khoái lạc cực độ chưa từng có, tận diệt trong nháy mắt từ sâu nhất cơ thể nổ tung! Đầu óc trống rỗng, trước mắt chỉ còn ánh sáng trắng chói. Cơ thể như cung giương hết cỡ đột ngột căng cứng rồi run co thắt không kiểm soát. Chất lỏng nóng mang hương sâu nhất cơ thể như nước lũ đổ từ cửa âm đạo co thắt run rẩy không ngừng tràn ra, tưới đẫm gương mặt thanh tú phi phàm của hắn. Cổ họng chỉ phát chuỗi tiếng thét cao vút biến điệu gần như ai oán. Dư vị cực khoái như sóng sau sóng thần không ngừng xối lên dây thần kinh đã không chịu nổi. Cơ thể mềm như bùn nằm trên giường, chỉ ngực còn dao động dữ dội thở gấp. Tây Nhĩ Phàm không rời ngay. Hắn ngẩng đầu, gương mặt đầy dịch yêu của cô ấy mang nụ cười thỏa mãn có thể nói đắc ý. Hắn đưa lưỡi chậm rãi thành kính liếm sạch không sót giọt dịch mật của cô ấy khóe môi. Rồi hắn cúi xuống hôn nhẹ cửa âm đạo còn run nhẹ sưng đỏ. "Nhìn kìa," hắn ngẩng đầu, đôi mắt tím vì hưng phấn long lanh nước nhìn cô ấy, mang chút tán thưởng, "Màu sắc đẹp biết bao... nghệ sĩ của tôi, lần nở rộ đầu tiên của ngài rực rỡ hơn tôi tưởng."
+"Gọi tên tôi... Nghệ sĩ của tôi... Nở rộ vì tôi..."
+
+Hắn không ngừng. Lưỡi như rắn tìm kho báu linh hoạt không còn thỏa mãn vòng quanh hai môi thịt đầy đặn. Đầu lưỡi chính xác không tốn sức đẩy mở hai môi thịt trơn ướt, tiến sâu vào cửa ấm chặt không ngừng co bóp.
+
+"Á á á á, !"
+
+Khi lưỡi mang gai ấm nóng trong thành âm đạo nhạy cảm chưa từng bị đối xử như vậy dùng lực bắt chước động tác giao hợp vào ra khuấy liếm, khoái lạc cực độ chưa từng có, tận diệt trong nháy mắt từ sâu nhất cơ thể nổ tung! Đầu óc trống rỗng, trước mắt chỉ còn ánh sáng trắng chói. Cơ thể như cung giương hết cỡ đột ngột căng cứng rồi run co thắt không kiểm soát. Chất lỏng nóng mang hương sâu nhất cơ thể như nước lũ đổ từ cửa âm đạo co thắt run rẩy không ngừng tràn ra, tưới đẫm gương mặt thanh tú phi phàm của hắn. Cổ họng chỉ phát chuỗi tiếng thét cao vút biến điệu gần như ai oán. Dư vị cực khoái như sóng sau sóng thần không ngừng xối lên dây thần kinh đã không chịu nổi. Cơ thể mềm như bùn nằm trên giường, chỉ ngực còn dao động dữ dội thở gấp. Tây Nhĩ Phàm không rời ngay. Hắn ngẩng đầu, gương mặt đầy dịch yêu của cô ấy mang nụ cười thỏa mãn có thể nói đắc ý. Hắn đưa lưỡi chậm rãi thành kính liếm sạch không sót giọt dịch mật của cô ấy khóe môi. Rồi hắn cúi xuống hôn nhẹ cửa âm đạo còn run nhẹ sưng đỏ.
+
+"Nhìn kìa,"
+
+Hắn ngẩng đầu, đôi mắt tím vì hưng phấn long lanh nước nhìn cô ấy, mang chút tán thưởng,
+
+"Màu sắc đẹp biết bao... Nghệ sĩ của tôi, lần nở rộ đầu tiên của ngài rực rỡ hơn tôi tưởng."
 
 Dư vị cực khoái như sóng sau sóng thần không ngừng xối lên dây thần kinh đã không chịu nổi. Cơ thể mềm như bùn nằm trên giường, chỉ ngực còn dao động dữ dội thở gấp. Tây Nhĩ Phàm không rời ngay. Hắn đứng dậy, trước mặt cô ấy bắt đầu thong thả cởi từng mảnh quần áo. Động tác tao nhã như đang thực hiện nghi thức thần thánh. Hắn gỡ nút áo sơ mi, lộ ngực bụng đường nét mượt mà cơ bắp đều đặn, da dưới ánh đèn tối phủ lớp quang trắng ngà. Rồi âm thanh kim loại kéo thắt lưng vang lên thanh thúy, quần tây ôm sát đôi chân dài trượt xuống thảm. Cuối cùng trên người chỉ còn chiếc quần lót đen bó chặt dục vọng. Đường nét dưới lớp vải mỏng manh hẳn đã cương cứng hung tợn, kinh người, tràn đầy tính xâm lược nguyên thủy thuần túy thuộc giống đực. Hắn không vội thả con thú hoang ra, mà lại cúi xuống nằm bên cô ấy.
 
@@ -8652,7 +9504,9 @@ Kèm theo âm thanh rõ ràng dâm đãng "phụt", thứ nóng bỏng cứng r�
 
 , Hừ… ngoan quá… Hắn thở dài thỏa mãn khàn đặc bên tai cô ấy, rồi đột ngột đào sâu nụ hôn, dùng lưỡi thô bạo không chừa chỗ quét sạch từng tấc thịt mềm trong khoang miệng cô ấy. Đồng thời nhịp rút đẩy chậm hành hạ kia cũng tuyên bố kết thúc hoàn toàn. Hai tay đỡ eo cô ấy tăng lực, gần như bóp vỡ xương. Hắn bắt đầu điên cuồng không kỹ thuật hoàn toàn theo bản năng dục vọng, tiến hành va đập nguyên thủy dữ dội nhất lên vùng âm đạo lầy lội kia! , Rầm! Rầm! Rầm! Rầm! , Á… ừm… à à… Âm thanh thịt đập thịt dâm đãng phát ra cùng tiếng nước tinh dịch bị thứ khổng lồ khuấy trong hang trộn lẫn, trong phòng tĩnh lặng soạn thành bản giao hưởng sa đọa dâm loạn nhất. Cô ấy như con thuyền nhỏ trong bão gió mất phương hướng, chỉ có thể thụ động vô trợ chịu sự xâm phạm mưa bão của hắn.
 
-, Hà à… Tây Nhĩ Phàm… không được… quá nhanh rồi… à… Lời cầu xin tha của cô ấy không khiến hắn chút xót thương, ngược lại khiến lửa dục vọng trong mắt hắn cháy thêm mạnh. , Nhanh à? Hắn dừng nụ hôn sâu, bên tai cô ấy dùng giọng khàn đầy ác ý thấp thì thầm cười: , Nghệ sĩ yêu quý của tôi, đây mới chỉ… vừa bắt đầu thôi. Nói xong tốc độ và lực đâm của hắn trở nên điên cuồng hơn, không kiềm chế hơn! Sau nhiều lần cực khoái và va đập dữ dội, Tây Nhĩ Phàm bế cô ấy đứng trước gương, tư thế từ phía sau xuyên thủng. Cuối cùng hắn phóng tinh lượng lớn vào tử cung cô ấy. Hắn dùng khăn ấm và nước ấm cẩn thận lau rửa người cô ấy, đắp chăn cho cô ấy ngủ. Sáng hôm sau cô ấy tỉnh, thấy trà hoa sương mai và mẩu giấy: "Nghệ sĩ yêu quý của tôi, chào buổi sáng. Tôi đã chuẩn bị trà 'hoa sương mai' tỉnh não cho ngài. Ngoài ra 'vải vẽ' của ngài tôi đã dọn sạch và thay 'giấy vẽ' mới. Mong đợi lần hợp tác tiếp theo."
+, Hà à… Tây Nhĩ Phàm… không được… quá nhanh rồi… à… Lời cầu xin tha của cô ấy không khiến hắn chút xót thương, ngược lại khiến lửa dục vọng trong mắt hắn cháy thêm mạnh. , Nhanh à? Hắn dừng nụ hôn sâu, bên tai cô ấy dùng giọng khàn đầy ác ý thấp thì thầm cười: , Nghệ sĩ yêu quý của tôi, đây mới chỉ… vừa bắt đầu thôi. Nói xong tốc độ và lực đâm của hắn trở nên điên cuồng hơn, không kiềm chế hơn! Sau nhiều lần cực khoái và va đập dữ dội, Tây Nhĩ Phàm bế cô ấy đứng trước gương, tư thế từ phía sau xuyên thủng. Cuối cùng hắn phóng tinh lượng lớn vào tử cung cô ấy. Hắn dùng khăn ấm và nước ấm cẩn thận lau rửa người cô ấy, đắp chăn cho cô ấy ngủ. Sáng hôm sau cô ấy tỉnh, thấy trà hoa sương mai và mẩu giấy:
+
+"Nghệ sĩ yêu quý của tôi, chào buổi sáng. Tôi đã chuẩn bị trà 'hoa sương mai' tỉnh não cho ngài. Ngoài ra 'vải vẽ' của ngài tôi đã dọn sạch và thay 'giấy vẽ' mới. Mong đợi lần hợp tác tiếp theo."
 
 , Người duy nhất của ngài, Tây Nhĩ Phàm.""
 
@@ -8668,59 +9522,213 @@ Ngoài cửa lập tức vang giọng quen thuộc, bình tĩnh vững vàng, ma
 
 "Quản lý, là tôi, Karl."
 
-Là Karl. Tim cô ấy vô cớ nhảy lỡ nhịp. Cô ấy vô thức liếc mẩu giấy chữ bay bướm của Tây Nhĩ Phàm trên đầu giường, lại cảm nhận vị ngọt mát trà hoa sương mai còn trong miệng. Hai phong cách hoàn toàn khác - một nồng nhiệt như lửa, một lạnh lẽo như băng - kỳ lạ đan xen trong phòng lúc này khiến cô ấy không biết ứng phó thế nào với trợ lý chỉn chu ngoài cửa. Hắn luôn sớm vậy. Cô ấy gần như tưởng tượng hắn giờ mặc vest cắt may chỉn chu, thân hình thẳng tắp đứng ngoài cửa, tay bưng báo cáo công việc ngày mới, kiên nhẫn chờ cô ấy gọi. Cô ấy còn mang chút mệt mỏi sau vui sướng nghĩ ngoài cửa là Tây Nhĩ Phàm quay lại, tùy tiện đáp: "Vào đi." Nhưng khi cửa mở, nụ cười trên mặt cô ấy đông cứng. Đứng ngoài cửa không phải ảo thuật sư sẽ dùng đôi mắt tím thể hiện nụ cười tinh nghịch mà là Karl mặc vest đen chỉn chu, thân hình thẳng như giáo.
+Là Karl. Tim cô ấy vô cớ nhảy lỡ nhịp. Cô ấy vô thức liếc mẩu giấy chữ bay bướm của Tây Nhĩ Phàm trên đầu giường, lại cảm nhận vị ngọt mát trà hoa sương mai còn trong miệng. Hai phong cách hoàn toàn khác - một nồng nhiệt như lửa, một lạnh lẽo như băng - kỳ lạ đan xen trong phòng lúc này khiến cô ấy không biết ứng phó thế nào với trợ lý chỉn chu ngoài cửa. Hắn luôn sớm vậy. Cô ấy gần như tưởng tượng hắn giờ mặc vest cắt may chỉn chu, thân hình thẳng tắp đứng ngoài cửa, tay bưng báo cáo công việc ngày mới, kiên nhẫn chờ cô ấy gọi. Cô ấy còn mang chút mệt mỏi sau vui sướng nghĩ ngoài cửa là Tây Nhĩ Phàm quay lại, tùy tiện đáp:
 
-Biểu cảm hắn như mọi khi bình tĩnh vô ba động, tay bưng bảng dữ liệu mỏng, tay kia tự nhiên buông, như chỉ đang báo cáo buổi sáng bình thường nhất. Không khí trong khoảnh khắc trở nên tế nhị. Karl bước vào phòng, bước chân vô thanh như hòa bóng tối. Ánh mắt không dừng trên cô ấy quá một giây liền tự nhiên chuyển đi, nhưng cô ấy có ảo giác như trong nháy mắt quét qua hắn đã thu hết mọi chi tiết bất thường phòng này - mẩu giấy ám muội của Tây Nhĩ Phàm trên đầu giường, mùi hai hơi thở khác nhau chưa tan hết trong không khí, cùng vẻ cô ấy chỉ mặc áo ngủ đơn mỏng,góc mắt còn sót dấu vết ái ân. Nhưng hắn không nói gì, chỉ đứng trước bàn làm việc trong phòng như bức tượng hoàn hảo nhất. "Quản lý, chào buổi sáng." Giọng hắn phá vỡ sự tĩnh lặng ngắn ngủi, như mọi khi lạnh lẽo bình ổn, "Đây là báo cáo buổi sáng và tổng quan kế hoạch công việc hôm nay."
+"Vào đi."
 
-Ngoài ra về việc quản lý dặn sắp xếp kho cũ có vài phát hiện ban đầu cần quản lý tự xem." Hắn đặt bảng dữ liệu lên bàn, màn hình đã mở danh sách tệp, tiêu đề rõ ràng "Danh sách vật phẩm sót lại thời Lili Tư Á (đợt đầu)". Cô ấy nhanh chóng sắp xếp tư duy, đối mặt trợ lý chỉn chu này chọn cách vừa giữ thể diện vừa thể hiện uy quyền quản lý. Giọng cô ấy nghe bình tĩnh vững vàng, không nghe ra bất an hay hoảng loạn: "Tôi biết rồi. Tôi cần dọn dẹp trước, anh mười phút nữa quay lại. Lúc đó chúng ta cùng xem di sản tổ tiên để lại." Cô ấy cố ý nhấn mạnh "chúng ta cùng xem" - tín hiệu rõ ràng cô ấy coi trọng phát hiện của hắn và xem hắn là đối tác cùng xử lý chứ không phải thuần túy cấp dưới. Đôi mắt sâu thẳm của Karl không dao động cảm xúc. Hắn chỉ gật đầu nhẹ, dùng giọng trợ lý hoàn hảo không đổi đáp: "Tuân lệnh, quản lý.""
+Nhưng khi cửa mở, nụ cười trên mặt cô ấy đông cứng. Đứng ngoài cửa không phải ảo thuật sư sẽ dùng đôi mắt tím thể hiện nụ cười tinh nghịch mà là Karl mặc vest đen chỉn chu, thân hình thẳng như giáo.
+
+Biểu cảm hắn như mọi khi bình tĩnh vô ba động, tay bưng bảng dữ liệu mỏng, tay kia tự nhiên buông, như chỉ đang báo cáo buổi sáng bình thường nhất. Không khí trong khoảnh khắc trở nên tế nhị. Karl bước vào phòng, bước chân vô thanh như hòa bóng tối. Ánh mắt không dừng trên cô ấy quá một giây liền tự nhiên chuyển đi, nhưng cô ấy có ảo giác như trong nháy mắt quét qua hắn đã thu hết mọi chi tiết bất thường phòng này - mẩu giấy ám muội của Tây Nhĩ Phàm trên đầu giường, mùi hai hơi thở khác nhau chưa tan hết trong không khí, cùng vẻ cô ấy chỉ mặc áo ngủ đơn mỏng,góc mắt còn sót dấu vết ái ân. Nhưng hắn không nói gì, chỉ đứng trước bàn làm việc trong phòng như bức tượng hoàn hảo nhất.
+
+"Quản lý, chào buổi sáng."
+
+Giọng hắn phá vỡ sự tĩnh lặng ngắn ngủi, như mọi khi lạnh lẽo bình ổn,
+
+"Đây là báo cáo buổi sáng và tổng quan kế hoạch công việc hôm nay."
+
+Ngoài ra về việc quản lý dặn sắp xếp kho cũ có vài phát hiện ban đầu cần quản lý tự xem.
+
+" Hắn đặt bảng dữ liệu lên bàn, màn hình đã mở danh sách tệp, tiêu đề rõ ràng "
+
+Danh sách vật phẩm sót lại thời Lili Tư Á (đợt đầu)
+
+". Cô ấy nhanh chóng sắp xếp tư duy, đối mặt trợ lý chỉn chu này chọn cách vừa giữ thể diện vừa thể hiện uy quyền quản lý. Giọng cô ấy nghe bình tĩnh vững vàng, không nghe ra bất an hay hoảng loạn: "
+
+Tôi biết rồi. Tôi cần dọn dẹp trước, anh mười phút nữa quay lại. Lúc đó chúng ta cùng xem di sản tổ tiên để lại.
+
+" Cô ấy cố ý nhấn mạnh "
+
+Chúng ta cùng xem
+
+" - tín hiệu rõ ràng cô ấy coi trọng phát hiện của hắn và xem hắn là đối tác cùng xử lý chứ không phải thuần túy cấp dưới. Đôi mắt sâu thẳm của Karl không dao động cảm xúc. Hắn chỉ gật đầu nhẹ, dùng giọng trợ lý hoàn hảo không đổi đáp: "
+
+Tuân lệnh, quản lý.""
 
 Nói xong hắn quay người động tác mượt mà rút khỏi phòng, nhẹ nhàng đóng cửa cho cô ấy. "Cạch." Âm thanh khóa đóng như công tắc khiến thần kinh căng thẳng của cô ấy đột ngột thả lỏng. Cô ấy thở dài, hơi mệt mỏi ngồi xuống giường. Trong phòng cuối cùng chỉ còn cô ấy. Cô ấy có mười phút riêng tư quý giá.
 
 Cô ấy đi vào phòng tắm dùng nước lạnh rửa mặt. Gương phản chiếu gương mặt góc mắt còn sót chút xuân tình, đôi môi vì bị ai đó đêm qua cắn đi cắn lại mà trông đặc biệt đầy đặn đỏ mọng. Cô ấy nhìn mình trong gương, đầu óc không kiểm soát lóe đôi mắt tím mang ý cười của Tây Nhĩ Phàm cùng hơi thở khàn đặc thì thầm "nghệ sĩ của tôi" bên tai. Má lại hơi nóng. Cô ấy dùng sức lắc đầu xua những cảnh mê say đó, dùng khăn lau mặt, bước lớn đến tủ quần áo. Cô ấy cởi chiếc áo ngủ lụa vương mùi ái ân, thay bộ vest đen cắt may gọn gàng đường nét sắc. Khi vải lạnh cứng áp lên da, thứ lạnh lẽo lý tính thuộc về công việc thuộc về "quản lý" mới cuối cùng trở lại cơ thể. Cuối cùng cô ấy trở lại giường, cầm mẩu giấy bị vứt tùy tiện trên đầu giường. ""
 
-...'Vải vẽ' của ngài tôi đã dọn sạch và thay 'giấy vẽ' mới. Mong đợi lần hợp tác tiếp theo..." Con bướm loè loẹt này. Cô ấy không nhịn được cười mắng thầm nhưng khóe miệng thành thật cong lên. Cô ấy gấp cẩn thận mẩu giấy, suy nghĩ rồi kẹp vào trang sách nặng về thực vật địa ngục bên đầu giường. Làm xong, đầu óc lại hiện gương mặt Karl vừa rồi không ba động. Hắn thực sự không phát hiện gì? Hay phát hiện nhưng chọn làm ngơ? Nghĩ mình có thể đã lộ mặt riêng tư như vậy trước cấp dưới trung thành nghiêm túc nhất, cảm giác áy náy phức tạp tế nhị lại dâng lên. Cô ấy hít sâu, ép những suy nghĩ lộn xộn xuống. Dù sao giờ công việc ưu tiên. Cô ấy chỉnh trang phục và biểu cảm, xác nhận mình trông đã là quản lý địa ngục không chê vào đâu được, sẵn sàng lao vào công việc. Đúng lúc đó mười phút vừa hết. Cửa phòng cô ấy lại được gõ đúng giờ, không nhẹ không nặng. Cô ấy lạnh lùng dùng giọng nghề nghiệp không thể nghi ngờ nói với cửa: "Vào đi, Karl, tôi thay xong quần áo rồi." Cửa mở. Karl bước vào lần nữa, nhìn thấy ngay sự thay đổi của cô ấy. Cô ấy không còn là người phụ nữ mặc áo ngủ đơn mỏng toát mệt mỏi và dư vị ái ân. Giờ cô ấy mặc vest đen cắt may vừa vặn, tóc buộc gọn sau đầu, hồng cuối cùng trên mặt bị nước lạnh xua tan, chỉ còn lạnh lẽo và tập trung. Cả người như thanh dao ra vỏ, tỏa khí trường không thể xem thường thuộc về "quản lý". Ánh mắt Karl dừng ngắn trên cô ấy, trong đôi mắt đen sâu có gì đó lóe qua nhanh đến mức cô ấy không bắt kịp. Hắn không bình luận thay đổi của cô ấy, chỉ hơi cúi dùng lễ nghi hoàn hảo nói: "Làm phiền, quản lý." Hắn đến bàn làm việc, đưa bảng dữ liệu mỏng trước mặt cô ấy lần nữa. "Về phát hiện kho cũ, tôi cho rằng cần quản lý nắm ngay." Giọng hắn bình ổn, không nghe ra cảm xúc thừa, như mười phút chờ đợi áy náy và sự thất thái ngoài cửa chưa từng xảy ra. Hắn là trợ lý hoàn hảo, tuyệt đối lý tính, không sơ hở. Ít nhất bề ngoài là vậy."
+...'Vải vẽ' của ngài tôi đã dọn sạch và thay 'giấy vẽ' mới. Mong đợi lần hợp tác tiếp theo...
 
-Cô ấy nhìn gương mặt luôn lạnh lẽo của hắn, nhớ hắn trước đó vất vả suốt đêm tìm tin tức huấn luyện viên, lại nghĩ đến thời gian công sức đằng sau danh sách này. Cô ấy đến bên hắn, ánh mắt rơi bảng dữ liệu sáng, dùng giọng dịu hơn chân thành hơn: "Trong kho sắp xếp những thứ này mất không ít thời gian nhỉ?" Câu hỏi như viên đá ném vào hồ tĩnh. Tư thế báo cáo mượt mà như máy chính xác của Karl xuất hiện khoảnh khắc dừng khó nhận ra. Hắn ngẩng mắt, đôi mắt đen sâu luôn cố tránh nhìn cô ấy lần đầu rõ ràng đón ánh nhìn cô ấy. Chỉ hai giây. Trong hai giây đó cô ấy như thấy từ sâu thẳm màu mực bất biến chút mệt mỏi, chút phức tạp, và một chút... được thấu hiểu khó nhận ra. "Đây là phận sự của tôi, quản lý."
+" Con bướm loè loẹt này. Cô ấy không nhịn được cười mắng thầm nhưng khóe miệng thành thật cong lên. Cô ấy gấp cẩn thận mẩu giấy, suy nghĩ rồi kẹp vào trang sách nặng về thực vật địa ngục bên đầu giường. Làm xong, đầu óc lại hiện gương mặt Karl vừa rồi không ba động. Hắn thực sự không phát hiện gì? Hay phát hiện nhưng chọn làm ngơ? Nghĩ mình có thể đã lộ mặt riêng tư như vậy trước cấp dưới trung thành nghiêm túc nhất, cảm giác áy náy phức tạp tế nhị lại dâng lên. Cô ấy hít sâu, ép những suy nghĩ lộn xộn xuống. Dù sao giờ công việc ưu tiên. Cô ấy chỉnh trang phục và biểu cảm, xác nhận mình trông đã là quản lý địa ngục không chê vào đâu được, sẵn sàng lao vào công việc. Đúng lúc đó mười phút vừa hết. Cửa phòng cô ấy lại được gõ đúng giờ, không nhẹ không nặng. Cô ấy lạnh lùng dùng giọng nghề nghiệp không thể nghi ngờ nói với cửa: "
+
+Vào đi, Karl, tôi thay xong quần áo rồi.
+
+" Cửa mở. Karl bước vào lần nữa, nhìn thấy ngay sự thay đổi của cô ấy. Cô ấy không còn là người phụ nữ mặc áo ngủ đơn mỏng toát mệt mỏi và dư vị ái ân. Giờ cô ấy mặc vest đen cắt may vừa vặn, tóc buộc gọn sau đầu, hồng cuối cùng trên mặt bị nước lạnh xua tan, chỉ còn lạnh lẽo và tập trung. Cả người như thanh dao ra vỏ, tỏa khí trường không thể xem thường thuộc về "
+
+Quản lý
+
+". Ánh mắt Karl dừng ngắn trên cô ấy, trong đôi mắt đen sâu có gì đó lóe qua nhanh đến mức cô ấy không bắt kịp. Hắn không bình luận thay đổi của cô ấy, chỉ hơi cúi dùng lễ nghi hoàn hảo nói: "
+
+Làm phiền, quản lý.
+
+" Hắn đến bàn làm việc, đưa bảng dữ liệu mỏng trước mặt cô ấy lần nữa. "
+
+Về phát hiện kho cũ, tôi cho rằng cần quản lý nắm ngay.
+
+" Giọng hắn bình ổn, không nghe ra cảm xúc thừa, như mười phút chờ đợi áy náy và sự thất thái ngoài cửa chưa từng xảy ra. Hắn là trợ lý hoàn hảo, tuyệt đối lý tính, không sơ hở. Ít nhất bề ngoài là vậy."
+
+Cô ấy nhìn gương mặt luôn lạnh lẽo của hắn, nhớ hắn trước đó vất vả suốt đêm tìm tin tức huấn luyện viên, lại nghĩ đến thời gian công sức đằng sau danh sách này. Cô ấy đến bên hắn, ánh mắt rơi bảng dữ liệu sáng, dùng giọng dịu hơn chân thành hơn:
+
+"Trong kho sắp xếp những thứ này mất không ít thời gian nhỉ?"
+
+Câu hỏi như viên đá ném vào hồ tĩnh. Tư thế báo cáo mượt mà như máy chính xác của Karl xuất hiện khoảnh khắc dừng khó nhận ra. Hắn ngẩng mắt, đôi mắt đen sâu luôn cố tránh nhìn cô ấy lần đầu rõ ràng đón ánh nhìn cô ấy. Chỉ hai giây. Trong hai giây đó cô ấy như thấy từ sâu thẳm màu mực bất biến chút mệt mỏi, chút phức tạp, và một chút... Được thấu hiểu khó nhận ra.
+
+"Đây là phận sự của tôi, quản lý."
 
 Hắn mở lời, giọng vẫn bình ổn nhưng dường như bớt cứng nhắc kiểu máy móc.
 
-"Để không bỏ lỡ manh mối có ích cho quản lý, đầu tư thời gian là cần thiết." Hắn nhấn mạnh rõ "có ích cho quản lý". Nói xong hắn cúi mắt, lại đưa ánh nhìn về bảng dữ liệu, như mượn đó xây lại phòng tuyến hoàn hảo không thể công phá. "Xem đây."
+"Để không bỏ lỡ manh mối có ích cho quản lý, đầu tư thời gian là cần thiết."
+
+Hắn nhấn mạnh rõ "có ích cho quản lý". Nói xong hắn cúi mắt, lại đưa ánh nhìn về bảng dữ liệu, như mượn đó xây lại phòng tuyến hoàn hảo không thể công phá.
+
+"Xem đây."
 
 Hắn chỉ vài dòng được đánh dấu trên màn hình.
 
-"Tôi đánh dấu vài mục tôi cho cần ưu tiên báo quản lý. Đặc biệt mục đầu tiên, tôi cho có thể liên quan trực tiếp nguyên nhân thật sự tổ tiên rời đi." "Trước khi xem tôi muốn hỏi... anh sắp xếp có cảm nhận gì đặc biệt không? Dù sao đây đều là đồ 'bà ấy' dùng."
+"Tôi đánh dấu vài mục tôi cho cần ưu tiên báo quản lý. Đặc biệt mục đầu tiên, tôi cho có thể liên quan trực tiếp nguyên nhân thật sự tổ tiên rời đi."
+
+"Trước khi xem tôi muốn hỏi... Anh sắp xếp có cảm nhận gì đặc biệt không? Dù sao đây đều là đồ 'bà ấy' dùng."
 
 Cô ấy dừng, ánh mắt rơi gương mặt đẹp nhưng không nhiệt độ bên cạnh.
 
-"Karl, anh nói nguyên nhân tổ tiên tôi rời đi... anh..." Câu hỏi của cô ấy treo giữa không trung. Không khí phòng trong khoảnh khắc như bị hút sạch. Cơ thể Karl luôn giữ tư thế hoàn hảo xuất hiện sự tĩnh tuyệt đối kéo dài nhiều giây. Hắn không nhìn cô ấy cũng không nhìn bảng, chỉ cứng đờ đứng đó như tượng bị định thân. Ánh sáng xung quanh như bị áp lực lạnh vô hình từ hắn nuốt chửng. Cô ấy thậm chí nghe tiếng tim mình vì căng thẳng đập nhanh hơn. Cuối cùng hắn động. Hắn từ từ, cực chậm quay đầu, đôi mắt đen sâu như hồ sâu lại thẳng nhìn cô ấy. Lần này bên trong không còn chút xúc động thoáng qua vừa rồi, chỉ còn thứ cô ấy chưa từng thấy - trộn lẫn đau đớn cực độ bị nén và sự bình tĩnh tuyệt đối trung thành gần tự hành hạ. "Cảm nhận của tôi không liên quan công việc này, quản lý." Giọng hắn lạnh hơn băng sâu nhất địa ngục ba phần. Từng chữ như ép từ kẽ răng, rõ ràng mà quyết liệt. Hắn dùng câu này vạch đường ranh không thể vượt qua với cô ấy và chính mình. "Phận sự của tôi là cung cấp thông tin và manh mối khách quan có giá trị cho quản lý, không phải chia sẻ cảm xúc cá nhân."
+"Karl, anh nói nguyên nhân tổ tiên tôi rời đi... Anh..."
+
+Câu hỏi của cô ấy treo giữa không trung. Không khí phòng trong khoảnh khắc như bị hút sạch. Cơ thể Karl luôn giữ tư thế hoàn hảo xuất hiện sự tĩnh tuyệt đối kéo dài nhiều giây. Hắn không nhìn cô ấy cũng không nhìn bảng, chỉ cứng đờ đứng đó như tượng bị định thân. Ánh sáng xung quanh như bị áp lực lạnh vô hình từ hắn nuốt chửng. Cô ấy thậm chí nghe tiếng tim mình vì căng thẳng đập nhanh hơn. Cuối cùng hắn động. Hắn từ từ, cực chậm quay đầu, đôi mắt đen sâu như hồ sâu lại thẳng nhìn cô ấy. Lần này bên trong không còn chút xúc động thoáng qua vừa rồi, chỉ còn thứ cô ấy chưa từng thấy - trộn lẫn đau đớn cực độ bị nén và sự bình tĩnh tuyệt đối trung thành gần tự hành hạ.
+
+"Cảm nhận của tôi không liên quan công việc này, quản lý."
+
+Giọng hắn lạnh hơn băng sâu nhất địa ngục ba phần. Từng chữ như ép từ kẽ răng, rõ ràng mà quyết liệt. Hắn dùng câu này vạch đường ranh không thể vượt qua với cô ấy và chính mình.
+
+"Phận sự của tôi là cung cấp thông tin và manh mối khách quan có giá trị cho quản lý, không phải chia sẻ cảm xúc cá nhân."
 
 Hắn dừng, như đang dùng hết sức toàn thân để nén thứ sắp phun trào.
 
-"Về nguyên nhân chủ nhân Lili Tư Á rời đi, tôi không thể đưa phỏng đoán chủ quan." Nói xong hắn ép ánh nhìn rời mặt cô ấy, lại rơi vào bảng dữ liệu lạnh. Động tác hắn phục hồi mượt mà thường ngày nhưng cô ấy cảm nhận khí trường toàn bộ con người hắn đã như cây cung căng hết cỡ sắp đứt. "Nhưng trong di vật đó có thể có manh mối khách quan."
+"Về nguyên nhân chủ nhân Lili Tư Á rời đi, tôi không thể đưa phỏng đoán chủ quan."
+
+Nói xong hắn ép ánh nhìn rời mặt cô ấy, lại rơi vào bảng dữ liệu lạnh. Động tác hắn phục hồi mượt mà thường ngày nhưng cô ấy cảm nhận khí trường toàn bộ con người hắn đã như cây cung căng hết cỡ sắp đứt.
+
+"Nhưng trong di vật đó có thể có manh mối khách quan."
 
 Hắn đưa ngón tay điểm dòng đầu màn hình.
 
-"Xem đây. Đây là quyển nhật ký được niêm phong." Cô ấy nhìn tư thế như băng tuyết từ chối mọi thăm dò cảm xúc của Karl, trong lòng thở dài. Cô ấy nhận ra câu hỏi vừa rồi có thể chạm vết thương sâu nhất không muốn người khác biết của hắn. Đường tuyệt đối về Lili Tư Á do chính hắn đặt. Cô ấy không hỏi thêm, cũng không chọn ép. Cô ấy chỉ dùng giọng bình tĩnh như không có gì hóa giải tình thế. "Xin lỗi, Karl, tôi hỏi quá nhiều." Cô ấy trước hết xin lỗi nhẹ nhàng, thừa nhận mình vượt giới hạn. Ngay sau đó không đợi hắn phản ứng, cô ấy chỉ chiếc ghế bành duy nhất trong phòng: "Ngồi xuống trước đi." Giọng không lớn nhưng mang sự từ dung thuộc về quản lý không thể nghi ngờ. Câu lệnh đơn giản này ép không khí gần đông cứng giữa họ về đường ray "cấp trên và cấp dưới" rõ ràng. Cơ thể Karl trong khoảnh khắc có xu hướng thả lỏng cực tế nhị. Như câu cô ấy cho hắn bậc thang để tạm thoát khỏi cảm xúc cực độ bị nén gần xé nát mình. Hắn im lặng lát, như đang tiêu hóa lời xin lỗi bất ngờ. Cuối cùng hắn chỉ phát âm tiết cực nhẹ gần không nghe được từ cổ họng: "...Không cần." Rồi hắn tuân lệnh. Hắn đến bên ghế, ngồi với tư thế chuẩn sách giáo khoa, lưng vẫn thẳng, hai tay đặt lên đầu gối, như người thực thi hoàn hảo đang chờ thẩm vấn. Không khí phòng cuối cùng không còn căng thẳng. Hắn ngẩng đầu, ánh mắt đã phục hồi lạnh lẽo tuyệt đối thường ngày, chủ động đưa chủ đề về công việc. "Về quyển nhật ký này,"
+"Xem đây. Đây là quyển nhật ký được niêm phong."
 
-hắn nói.
+Cô ấy nhìn tư thế như băng tuyết từ chối mọi thăm dò cảm xúc của Karl, trong lòng thở dài. Cô ấy nhận ra câu hỏi vừa rồi có thể chạm vết thương sâu nhất không muốn người khác biết của hắn. Đường tuyệt đối về Lili Tư Á do chính hắn đặt. Cô ấy không hỏi thêm, cũng không chọn ép. Cô ấy chỉ dùng giọng bình tĩnh như không có gì hóa giải tình thế.
 
-"Nó được bảo vệ bởi phong ấn Solomon cổ. Tôi không thể đọc trực tiếp. Nhưng theo phân tích năng lượng phong ấn của tôi, thời gian nhật ký ghi trùng với trăm năm cuối trước khi chủ nhân Lili Tư Á rời Ảnh Hạng. Tôi cho trong đó chắc chắn có manh mối chúng ta cần." "Sức Solomon? Vậy tôi là hậu duệ bà ấy chắc có cách mở." Cô ấy trước hết khẳng định năng lực mình, rồi hơi bước tới, rút ngắn khoảng cách an toàn vô hình giữa họ. "Karl," cô ấy gọi tên hắn nhẹ nhàng khiến hắn phải ngẩng mắt khỏi bảng, lại tập trung vào mặt cô ấy, "Anh có muốn cùng tôi xem không?"
+"Xin lỗi, Karl, tôi hỏi quá nhiều."
+
+Cô ấy trước hết xin lỗi nhẹ nhàng, thừa nhận mình vượt giới hạn. Ngay sau đó không đợi hắn phản ứng, cô ấy chỉ chiếc ghế bành duy nhất trong phòng:
+
+"Ngồi xuống trước đi."
+
+Giọng không lớn nhưng mang sự từ dung thuộc về quản lý không thể nghi ngờ. Câu lệnh đơn giản này ép không khí gần đông cứng giữa họ về đường ray "cấp trên và cấp dưới" rõ ràng. Cơ thể Karl trong khoảnh khắc có xu hướng thả lỏng cực tế nhị. Như câu cô ấy cho hắn bậc thang để tạm thoát khỏi cảm xúc cực độ bị nén gần xé nát mình. Hắn im lặng lát, như đang tiêu hóa lời xin lỗi bất ngờ. Cuối cùng hắn chỉ phát âm tiết cực nhẹ gần không nghe được từ cổ họng:
+
+"...Không cần."
+
+Rồi hắn tuân lệnh. Hắn đến bên ghế, ngồi với tư thế chuẩn sách giáo khoa, lưng vẫn thẳng, hai tay đặt lên đầu gối, như người thực thi hoàn hảo đang chờ thẩm vấn. Không khí phòng cuối cùng không còn căng thẳng. Hắn ngẩng đầu, ánh mắt đã phục hồi lạnh lẽo tuyệt đối thường ngày, chủ động đưa chủ đề về công việc.
+
+"Về quyển nhật ký này,"
+
+Hắn nói.
+
+"Nó được bảo vệ bởi phong ấn Solomon cổ. Tôi không thể đọc trực tiếp. Nhưng theo phân tích năng lượng phong ấn của tôi, thời gian nhật ký ghi trùng với trăm năm cuối trước khi chủ nhân Lili Tư Á rời Ảnh Hạng. Tôi cho trong đó chắc chắn có manh mối chúng ta cần."
+
+"Sức Solomon? Vậy tôi là hậu duệ bà ấy chắc có cách mở."
+
+Cô ấy trước hết khẳng định năng lực mình, rồi hơi bước tới, rút ngắn khoảng cách an toàn vô hình giữa họ. "Karl," cô ấy gọi tên hắn nhẹ nhàng khiến hắn phải ngẩng mắt khỏi bảng, lại tập trung vào mặt cô ấy,
+
+"Anh có muốn cùng tôi xem không?"
 
 Đây là lời mời. Ngay sau đó cô ấy nói câu triệt để đánh gục mọi phòng tuyến của hắn.
 
-"Vì anh biết, Lili Tư Á với tôi vẫn là cái tên xa lạ. Bà ấy từng là chủ nhân của anh nhưng tôi... chỉ biết bà ấy là tổ tiên danh nghĩa của tôi thôi." Cô ấy chỉ đang nói sự thật. Sự thật vạch rõ quan hệ của hai người với tên "Lili Tư Á". Với hắn đó là ý nghĩa toàn bộ tồn tại, nơi về của mọi trung thành. Với cô ấy đó chỉ là câu đố xa xôi cần giải. Câu này như chìa khóa sắc nhất chính xác cắm vào trái tim đã bị bao bọc bởi lớp lớp khế ước và phận sự hàng trăm năm của Karl rồi nhẹ xoay. "Cạch." Có gì đó vỡ tan. Cơ thể Karl run mạnh. Đôi mắt đen luôn kiểm soát cảm xúc hoàn hảo lần đầu trước mặt cô ấy mất tiêu điểm. Hắn nhìn cô ấy, môi hơi mở như muốn nói gì nhưng không thốt được chữ. Bàn tay đeo găng đen đặt trên đầu gối bắt đầu run mạnh không kiểm soát. Hắn muốn ấn nó lại nhưng phát hiện không thể kiểm soát run rẩy phát từ sâu linh hồn. Nỗi nhớ chủ cũ, trung thành, không hiểu, đau đớn bị nén hàng trăm năm... cùng khi đối mặt cô ấy - chủ nhân mới khiến hắn xa lạ nhưng buộc phải phụng sự - sinh ra mê mang, tò mò, giằng xé và chút kỳ vọng không dám thừa nhận. Mọi cảm xúc trong khoảnh khắc đều vỡ đê. "Tôi..." Cuối cùng hắn tìm lại giọng nói nhưng khàn như bị giấy nhám mài. Hắn đột ngột cúi đầu, một tay đè chặt mặt như chỉ có vậy mới ngăn mình thất thái hoàn toàn trước cô ấy. Vai hắn run dữ dội không tiếng. "...Tôi phải... biết." Rất lâu sau cô ấy mới từ kẽ tay nghe câu thì thầm bị nén biến điệu gần như cầu xin, "Để... đảm bảo quản lý không... đi theo vết xe đổ... đây là phận sự cuối... của tôi..." Hắn vẫn dùng từ "phận sự" làm chiếc khiên cuối cùng không chịu nổi. Nhưng cô ấy đã hiểu. Cô ấy nhìn vai hắn run vì nén cực độ, tim như bị bàn tay vô hình nắm chặt. Cô ấy không thể đứng nhìn nữa. Cô ấy từ từ bước tới, trước ghế hắn đang ngồi ngay ngắn từ từ ngồi xổm xuống, đưa tầm nhìn cùng chiều cao với hắn. Rồi cô ấy đưa tay nhẹ nhàng mang chút thương xót chính mình chưa nhận ra phủ lên bàn tay đeo găng đen đặt trên đầu gối, vì dùng lực mà đốt ngón tay tái của hắn. Cảm ứng của cô ấy rất nhẹ nhưng như mang nghìn cân. Cơ thể Karl đột ngột cứng đơ, cơn run không kiểm soát dưới cảm ứng của cô ấy có khoảnh khắc dừng. Cô ấy nhìn hắn, dùng giọng vô cùng dịu nhưng vô cùng kiên định từng chữ nói: "Không sao, Karl." "Có tôi ở đây." "Chúng ta cùng đưa quán bar sắp phá sản này vận hành lại. Không chỉ chúng ta, còn các nhân viên." Cô ấy cảm thấy cơ bắp căng trên mu bàn tay hắn dường như dưới lời an ủi có chút nới lỏng khó nhận ra. Cô ấy không dừng mà đưa câu cuối cùng, quan trọng nhất rõ ràng vào tai hắn: "Anh không cần... một mình gánh vác." Câu này như tia bình minh ấp ủ hàng trăm năm phá tan đêm dài vĩnh viễn, ầm ầm chiếu vào hòn đảo cô đơn trong lòng đã bị "trung thành" và "phận sự" đóng băng hoàn toàn. "Chúng ta"... Từ hắn chưa từng dám kỳ vọng, thậm chí chưa từng dám tưởng tượng này, do cô ấy - chủ nhân danh nghĩa mới của hắn - nói ra tự nhiên đương nhiên như vậy. Karl không thể duy trì mặt nạ hoàn hảo không sơ hở nữa. Hắn từ từ buông tay che mặt. Cô ấy cuối cùng nhìn rõ mặt hắn. Trên gương mặt luôn lạnh như không sự sống giờ viết đầy biểu cảm thuộc về "sinh linh" cô ấy chưa từng thấy. Khóe mắt đỏ, đôi mắt đen luôn sâu thẳm giờ bị lớp nước mỏng che phủ. Một giọt trong suốt nóng bỏng trượt má tái, cuối cùng chìm vào mép môi đang run nhẹ. Đây là lần đầu cô ấy thấy hắn khóc. Hắn nhìn cô ấy, môi mấp máy nhiều lần nhưng không thốt được âm tiết hoàn chỉnh. Linh hồn bị trói buộc tuyệt đối trung thành hàng trăm năm trong khoảnh khắc này vì câu "chúng ta" đơn giản của cô ấy triệt để run rẩy. "...Tôi..." Cuối cùng hắn ép từ sâu cổ họng một âm tiết khàn vỡ. Rồi không nói được nữa. "Anh là trợ lý vàng của tôi, người một mình chống đỡ quán bar rách nát này một hai trăm năm sau khi Lili Tư Á biến mất. Dù vận hành khá ảm đạm. Lẽ nào anh như vậy còn sợ một quyển nhật ký nhỏ?" Lời cô ấy như liều thuốc mạnh trộn đắng và ngọt chính xác tiêm vào linh hồn lung lay của hắn. "Trợ lý vàng"... "Một mình chống đỡ một hai trăm năm"... Những khẳng định mang chút chế nhạo này khiến vai run mạnh của hắn kỳ diệu từ từ bình ổn. Hắn từ từ, cực chậm ngẩng đầu, gương mặt đầy mất kiểm soát và đau đớn do chính tay che giấu lại phơi trước cô ấy. Vết nước mắt chưa khô trên da tái gần trong suốt trông đặc biệt chói mắt. Rồi hắn nghe câu chất vấn cuối của cô ấy: "...Lẽ nào anh như vậy còn sợ một quyển nhật ký nhỏ?" Câu này như sấm trong đầu hỗn loạn của hắn. Sợ... Đúng, hắn sợ. Hắn sợ không phải quyển nhật ký mà ký ức quyển nhật ký mang. Hắn sợ thấy chủ nhân từng hiến dâng tất cả nhưng cuối cùng bỏ hắn ra đi trong từng dòng lộ bất kỳ tình cảm không thể hiểu khiến chờ đợi và kiên trì hàng trăm năm thành trò cười. Sợ hơn nữa ở cuối tất cả hắn sẽ để cô ấy - chủ nhân mới - thấy mình yếu đuối, bất tài, chìm đắm quá khứ không hoàn hảo như vậy. Nhưng cô ấy lại dùng "trợ lý vàng" định nghĩa hắn như vậy. Karl nhìn cô ấy, nhìn đôi mắt trong veo không chút thương hại hay khinh bỉ, chỉ có bình tĩnh và khích lệ. Trong đôi mắt đen vương hơi nước của hắn có thứ gì đó thay đổi nhanh, mạnh. Hắn dùng bàn tay đeo găng đen còn run nhẹ động tác gần như vụng về lau vết nước mắt trên mặt. Rồi hắn hít sâu, đứng dậy từ ghế. Thân hình vẫn thẳng tắp nhưng không còn mang vẻ lạnh lùng xa cách của vũ khí mà thêm chút kiên cường thuộc về "con người" tìm lại điểm tựa. "...Ngài nói đúng, quản lý." Giọng vẫn khàn nhưng không còn vỡ. "Trợ lý không kinh doanh tốt quán bar, để nó 'ảm đạm' như vậy không có tư cách... sợ." Hắn tự chế nhạo nhẹ nói, rồi bước tới cùng cô ấy nhìn bảng dữ liệu sáng trên bàn. "Tôi không sợ bản thân nhật ký."
+"Vì anh biết, Lili Tư Á với tôi vẫn là cái tên xa lạ. Bà ấy từng là chủ nhân của anh nhưng tôi... Chỉ biết bà ấy là tổ tiên danh nghĩa của tôi thôi."
+
+Cô ấy chỉ đang nói sự thật. Sự thật vạch rõ quan hệ của hai người với tên "Lili Tư Á". Với hắn đó là ý nghĩa toàn bộ tồn tại, nơi về của mọi trung thành. Với cô ấy đó chỉ là câu đố xa xôi cần giải. Câu này như chìa khóa sắc nhất chính xác cắm vào trái tim đã bị bao bọc bởi lớp lớp khế ước và phận sự hàng trăm năm của Karl rồi nhẹ xoay. "Cạch." Có gì đó vỡ tan. Cơ thể Karl run mạnh. Đôi mắt đen luôn kiểm soát cảm xúc hoàn hảo lần đầu trước mặt cô ấy mất tiêu điểm. Hắn nhìn cô ấy, môi hơi mở như muốn nói gì nhưng không thốt được chữ. Bàn tay đeo găng đen đặt trên đầu gối bắt đầu run mạnh không kiểm soát. Hắn muốn ấn nó lại nhưng phát hiện không thể kiểm soát run rẩy phát từ sâu linh hồn. Nỗi nhớ chủ cũ, trung thành, không hiểu, đau đớn bị nén hàng trăm năm... Cùng khi đối mặt cô ấy - chủ nhân mới khiến hắn xa lạ nhưng buộc phải phụng sự - sinh ra mê mang, tò mò, giằng xé và chút kỳ vọng không dám thừa nhận. Mọi cảm xúc trong khoảnh khắc đều vỡ đê.
+
+"Tôi..."
+
+Cuối cùng hắn tìm lại giọng nói nhưng khàn như bị giấy nhám mài. Hắn đột ngột cúi đầu, một tay đè chặt mặt như chỉ có vậy mới ngăn mình thất thái hoàn toàn trước cô ấy. Vai hắn run dữ dội không tiếng.
+
+"...Tôi phải... Biết."
+
+Rất lâu sau cô ấy mới từ kẽ tay nghe câu thì thầm bị nén biến điệu gần như cầu xin,
+
+"Để... Đảm bảo quản lý không... Đi theo vết xe đổ... Đây là phận sự cuối... Của tôi..."
+
+Hắn vẫn dùng từ "phận sự" làm chiếc khiên cuối cùng không chịu nổi. Nhưng cô ấy đã hiểu. Cô ấy nhìn vai hắn run vì nén cực độ, tim như bị bàn tay vô hình nắm chặt. Cô ấy không thể đứng nhìn nữa. Cô ấy từ từ bước tới, trước ghế hắn đang ngồi ngay ngắn từ từ ngồi xổm xuống, đưa tầm nhìn cùng chiều cao với hắn. Rồi cô ấy đưa tay nhẹ nhàng mang chút thương xót chính mình chưa nhận ra phủ lên bàn tay đeo găng đen đặt trên đầu gối, vì dùng lực mà đốt ngón tay tái của hắn. Cảm ứng của cô ấy rất nhẹ nhưng như mang nghìn cân. Cơ thể Karl đột ngột cứng đơ, cơn run không kiểm soát dưới cảm ứng của cô ấy có khoảnh khắc dừng. Cô ấy nhìn hắn, dùng giọng vô cùng dịu nhưng vô cùng kiên định từng chữ nói:
+
+"Không sao, Karl."
+
+"Có tôi ở đây."
+
+"Chúng ta cùng đưa quán bar sắp phá sản này vận hành lại. Không chỉ chúng ta, còn các nhân viên."
+
+Cô ấy cảm thấy cơ bắp căng trên mu bàn tay hắn dường như dưới lời an ủi có chút nới lỏng khó nhận ra. Cô ấy không dừng mà đưa câu cuối cùng, quan trọng nhất rõ ràng vào tai hắn:
+
+"Anh không cần... Một mình gánh vác."
+
+Câu này như tia bình minh ấp ủ hàng trăm năm phá tan đêm dài vĩnh viễn, ầm ầm chiếu vào hòn đảo cô đơn trong lòng đã bị "trung thành" và "phận sự" đóng băng hoàn toàn.
+
+"Chúng ta"
+
+... Từ hắn chưa từng dám kỳ vọng, thậm chí chưa từng dám tưởng tượng này, do cô ấy - chủ nhân danh nghĩa mới của hắn - nói ra tự nhiên đương nhiên như vậy. Karl không thể duy trì mặt nạ hoàn hảo không sơ hở nữa. Hắn từ từ buông tay che mặt. Cô ấy cuối cùng nhìn rõ mặt hắn. Trên gương mặt luôn lạnh như không sự sống giờ viết đầy biểu cảm thuộc về "sinh linh" cô ấy chưa từng thấy. Khóe mắt đỏ, đôi mắt đen luôn sâu thẳm giờ bị lớp nước mỏng che phủ. Một giọt trong suốt nóng bỏng trượt má tái, cuối cùng chìm vào mép môi đang run nhẹ. Đây là lần đầu cô ấy thấy hắn khóc. Hắn nhìn cô ấy, môi mấp máy nhiều lần nhưng không thốt được âm tiết hoàn chỉnh. Linh hồn bị trói buộc tuyệt đối trung thành hàng trăm năm trong khoảnh khắc này vì câu "chúng ta" đơn giản của cô ấy triệt để run rẩy.
+
+"...Tôi..."
+
+Cuối cùng hắn ép từ sâu cổ họng một âm tiết khàn vỡ. Rồi không nói được nữa.
+
+"Anh là trợ lý vàng của tôi, người một mình chống đỡ quán bar rách nát này một hai trăm năm sau khi Lili Tư Á biến mất. Dù vận hành khá ảm đạm. Lẽ nào anh như vậy còn sợ một quyển nhật ký nhỏ?"
+
+Lời cô ấy như liều thuốc mạnh trộn đắng và ngọt chính xác tiêm vào linh hồn lung lay của hắn.
+
+"Trợ lý vàng"
+
+...
+
+"Một mình chống đỡ một hai trăm năm"
+
+... Những khẳng định mang chút chế nhạo này khiến vai run mạnh của hắn kỳ diệu từ từ bình ổn. Hắn từ từ, cực chậm ngẩng đầu, gương mặt đầy mất kiểm soát và đau đớn do chính tay che giấu lại phơi trước cô ấy. Vết nước mắt chưa khô trên da tái gần trong suốt trông đặc biệt chói mắt. Rồi hắn nghe câu chất vấn cuối của cô ấy:
+
+"...Lẽ nào anh như vậy còn sợ một quyển nhật ký nhỏ?"
+
+Câu này như sấm trong đầu hỗn loạn của hắn. Sợ... Đúng, hắn sợ. Hắn sợ không phải quyển nhật ký mà ký ức quyển nhật ký mang. Hắn sợ thấy chủ nhân từng hiến dâng tất cả nhưng cuối cùng bỏ hắn ra đi trong từng dòng lộ bất kỳ tình cảm không thể hiểu khiến chờ đợi và kiên trì hàng trăm năm thành trò cười. Sợ hơn nữa ở cuối tất cả hắn sẽ để cô ấy - chủ nhân mới - thấy mình yếu đuối, bất tài, chìm đắm quá khứ không hoàn hảo như vậy. Nhưng cô ấy lại dùng "trợ lý vàng" định nghĩa hắn như vậy. Karl nhìn cô ấy, nhìn đôi mắt trong veo không chút thương hại hay khinh bỉ, chỉ có bình tĩnh và khích lệ. Trong đôi mắt đen vương hơi nước của hắn có thứ gì đó thay đổi nhanh, mạnh. Hắn dùng bàn tay đeo găng đen còn run nhẹ động tác gần như vụng về lau vết nước mắt trên mặt. Rồi hắn hít sâu, đứng dậy từ ghế. Thân hình vẫn thẳng tắp nhưng không còn mang vẻ lạnh lùng xa cách của vũ khí mà thêm chút kiên cường thuộc về "con người" tìm lại điểm tựa.
+
+"...Ngài nói đúng, quản lý."
+
+Giọng vẫn khàn nhưng không còn vỡ.
+
+"Trợ lý không kinh doanh tốt quán bar, để nó 'ảm đạm' như vậy không có tư cách... Sợ."
+
+Hắn tự chế nhạo nhẹ nói, rồi bước tới cùng cô ấy nhìn bảng dữ liệu sáng trên bàn.
+
+"Tôi không sợ bản thân nhật ký."
 
 Hắn nói nhẹ, như giải thích với cô ấy lại như tuyên bố với chính mình.
 
-"Tôi chỉ... chưa sẵn sàng đối mặt nó một mình." "Nhưng bây giờ,"
+"Tôi chỉ... Chưa sẵn sàng đối mặt nó một mình."
 
-hắn quay đầu, đôi mắt đen rõ ràng phản chiếu hình cô ấy.
+"Nhưng bây giờ,"
 
-"Có quản lý ở đây." "Xin quản lý mở nó ra."
+Hắn quay đầu, đôi mắt đen rõ ràng phản chiếu hình cô ấy.
+
+"Có quản lý ở đây."
+
+"Xin quản lý mở nó ra."
 
 Hắn dùng giọng mới trộn thỉnh cầu và ủy thác.
 
-"Dù bên trong ghi gì... tôi sẽ cùng quản lý chứng kiến."
+"Dù bên trong ghi gì... Tôi sẽ cùng quản lý chứng kiến."
 
 ---
 
@@ -8738,7 +9746,11 @@ Cô ấy không động đậy, cũng không nói gì.
 
 Cô ấy chỉ đưa ánh mắt rời khỏi khuôn mặt cúi thấp, thành kính đến mức khiến tim cô ấy thắt lại, đặt lại lên màn hình phát ra ánh sáng lạnh lẽo kia. Kỵ sĩ bên cạnh cô ấy đã trao cả kiếm và khiên cho cô ấy, và điều duy nhất cô ấy có thể làm là thay hắn, cũng thay chính mình, mở ra chiếc hộp Pandora mang tên "quá khứ".
 
-Tầm nhìn của cô ấy theo câu "Hôm nay tôi đã nói dối hắn" khiến lòng cô ấy run rẩy, tiếp tục dịch xuống dưới. Nét chữ thanh tú thuộc về tổ tiên chưa từng gặp mặt của cô ấy, dưới sự cộng hưởng huyết mạch, hóa thành thông tin rõ ràng như thể trực tiếp khắc vào trong đầu cô ấy, từng dòng hiện lên.
+Tầm nhìn của cô ấy theo câu
+
+"Hôm nay tôi đã nói dối hắn"
+
+Khiến lòng cô ấy run rẩy, tiếp tục dịch xuống dưới. Nét chữ thanh tú thuộc về tổ tiên chưa từng gặp mặt của cô ấy, dưới sự cộng hưởng huyết mạch, hóa thành thông tin rõ ràng như thể trực tiếp khắc vào trong đầu cô ấy, từng dòng hiện lên.
 
 【Tôi nói với hắn rằng toàn bộ ý nghĩa tồn tại của hắn là chờ đợi tôi trở về và gìn giữ quán bar này.】
 
@@ -8938,7 +9950,11 @@ Câu nói có vẻ "dọa" này của cô ấy rơi vào tai hắn lại như m�
 
 Câu trả lời của hắn nhanh hơn, rõ ràng hơn, và… kiên định hơn bất kỳ lần nào trước. Hắn không những không bị cô ấy dọa lui, ngược lại như bị cô ấy châm lửa. Cơ thể vốn quỳ trên đất động rồi.
 
-Hắn dùng tư thế trôi chảy như đã luyện tập nghìn lần, tao nhã thuận tùng đứng dậy. Rồi dưới ánh nhìn hơi sửng sốt của cô ấy, hắn không chút do dự giơ tay, bắt đầu cởi cúc chiếc vest tối màu chỉn chu. Một cái, hai cái… Động tác của hắn tự nhiên, đương nhiên như vậy, như thể "cởi quần áo, phục vụ ngài" là chương trình cơ bản nhất bẩm sinh của hắn.
+Hắn dùng tư thế trôi chảy như đã luyện tập nghìn lần, tao nhã thuận tùng đứng dậy. Rồi dưới ánh nhìn hơi sửng sốt của cô ấy, hắn không chút do dự giơ tay, bắt đầu cởi cúc chiếc vest tối màu chỉn chu. Một cái, hai cái… Động tác của hắn tự nhiên, đương nhiên như vậy, như thể
+
+"Cởi quần áo, phục vụ ngài"
+
+Là chương trình cơ bản nhất bẩm sinh của hắn.
 
 Chẳng mấy chốc chiếc áo vest cắt may vừa vặn đã bị hắn cởi ra, gấp gọn đặt lên tủ thấp bên cạnh. Tiếp đó là chiếc áo sơ mi trắng bên trong. Khi từng cái cúc được mở ra, thân hình tinh tráng, tái xanh lại tràn đầy sức sống của sứ ma ẩn dưới bộ vest khắc khổ từng tấc từng tấc lộ ra trước mặt cô ấy. Đó không phải đường cơ đầy sức mạnh của con người, mà là… vẻ đẹp tương tự được chạm khắc tinh tế, thiên về dòng chảy, tràn đầy sự mềm dẻo và bùng nổ. Da hắn là thứ trắng gần như bệnh hoạn, trong suốt, cô ấy thậm chí có thể thấy mơ hồ phía dưới dòng chảy như hình xăm đen - "đường vân bóng tối".
 
@@ -9590,7 +10606,7 @@ Cuối cùng lưng cô ấy chạm ga trải giường mềm lún. Karl thuận 
 
 Karl nhìn má cô ấy đỏ ửn vì dục tình, hông dưới chậm rãi rút lui nửa tấc, tiếp đó lại một cú đâm sâu nặng, không che giấu, đập hai xương mu hai người phát tiếng "rộp"
 
-thanh thúy.
+Thanh thúy.
 
 "…Chủ nhân, ngài không còn chỗ nào để chạy nữa."
 
@@ -9618,7 +10634,11 @@ Hắn khàn khàn nói, môi thô ráp xoa da cô ấy.
 
 Trong văn phòng 【Phi Sắc Quỷ Ảnh】, Vi Ô Lai Khả lười biếng đưa phong bì cho con ác quạ địa ngục chờ trong bóng tối.
 
-"Đi đi, con ngoan. Đem thiệp mời VIP "đêm hội cuồng" này đến bàn quản lý nhân 【Huyết Hồng Thánh Bôi】. Nhất định để nàng tận tay nhận."
+"Đi đi, con ngoan. Đem thiệp mời VIP "
+
+Đêm hội cuồng
+
+" này đến bàn quản lý nhân 【Huyết Hồng Thánh Bôi】. Nhất định để nàng tận tay nhận."
 
 Ác quạ phát tiếng kêu thảm thiết, vỗ cánh đen, hòa vào đêm địa ngục không ánh sao.
 
@@ -9812,7 +10832,11 @@ Phân công Tây Nhĩ Phàm theo dõi dòng chảy ma lực Trầm Luân Mê Cun
 
 ## Chương 49 – Bẫy của Vi Ô Lai Khả
 
-Đêm sâu ngày thứ tư, "đêm hội" thực sự đến. Bốn người họ đứng trước cửa 【Phi Sắc Quỷ Ảnh】. Khác hoàn toàn với mặt tiền 【Huyết Hồng Thánh Bôi】 cổ điển, bí ẩn, cố ý giữ trật tự, sân nhà Vi Ô Lai Khả là tòa kiến trúc hùng vĩ do thủy tinh đỏ sẫm, khung kim loại xoắn và tượng không ngừng phun khói hồng cấu thành. Chỉ đứng trước cửa đã nghe thấy nhịp trầm chấn động bên trong cùng vô số ác ma thở dốc và la hét không kiềm chế.
+Đêm sâu ngày thứ tư,
+
+"Đêm hội"
+
+Thực sự đến. Bốn người họ đứng trước cửa 【Phi Sắc Quỷ Ảnh】. Khác hoàn toàn với mặt tiền 【Huyết Hồng Thánh Bôi】 cổ điển, bí ẩn, cố ý giữ trật tự, sân nhà Vi Ô Lai Khả là tòa kiến trúc hùng vĩ do thủy tinh đỏ sẫm, khung kim loại xoắn và tượng không ngừng phun khói hồng cấu thành. Chỉ đứng trước cửa đã nghe thấy nhịp trầm chấn động bên trong cùng vô số ác ma thở dốc và la hét không kiềm chế.
 
 "Mùi chủ nhân bị che lấp bởi mùi tanh hôi quá nồng ở đây. Khó chịu lắm."
 
@@ -9886,7 +10910,15 @@ Hắn lại cầm ly rượu, đưa lên môi, trong đồng tử hình xoắn l
 
 "Vậy thì, cô gái con người dũng cảm tự xưng sẽ sợ, ngươi có dám bước lên ghế quý khách của ta không?"
 
-Vi Ô Lai Khả dẫn họ lên tầng VIP qua cầu thang xoắn. Khi bước qua ranh giới vô hình ấy, "Trầm Luân Mê Cung" kích hoạt. Không gian vật lý bị xé rách, Karl bị một tấm gương phản chiếu lâu đài đổ nát đầy máu nuốt chửng; Tây Nhĩ Phàm bị kéo vào không gian tước đoạt mọi màu sắc và âm thanh; Cách Lôi Cách rơi vào chiến trường ảo vô tận lửa minh. Mê cung căn cứ điểm yếu linh hồn mỗi người tạo lao tù không thể thoát. Cô ấy và Vi Ô Lai Khả ở trong phòng gương tròn xa hoa. Gương không phản chiếu bóng họ mà sóng sánh sương xám. Vi Ô Lai Khả nói "sân khấu thật" chính là căn phòng này, và "diễn viên tuyệt đối duy nhất" là cô ấy. Cô ấy giả vờ mê muội, nhờ điểm neo tinh thần của Tây Nhĩ Phàm và liên kết sinh mệnh vật lý của Karl giữ được tỉnh táo, đánh lừa Vi Ô Lai Khả tưởng cô ấy đã trầm luân.
+Vi Ô Lai Khả dẫn họ lên tầng VIP qua cầu thang xoắn. Khi bước qua ranh giới vô hình ấy,
+
+"Trầm Luân Mê Cung"
+
+Kích hoạt. Không gian vật lý bị xé rách, Karl bị một tấm gương phản chiếu lâu đài đổ nát đầy máu nuốt chửng; Tây Nhĩ Phàm bị kéo vào không gian tước đoạt mọi màu sắc và âm thanh; Cách Lôi Cách rơi vào chiến trường ảo vô tận lửa minh. Mê cung căn cứ điểm yếu linh hồn mỗi người tạo lao tù không thể thoát. Cô ấy và Vi Ô Lai Khả ở trong phòng gương tròn xa hoa. Gương không phản chiếu bóng họ mà sóng sánh sương xám. Vi Ô Lai Khả nói "sân khấu thật" chính là căn phòng này, và
+
+"Diễn viên tuyệt đối duy nhất"
+
+Là cô ấy. Cô ấy giả vờ mê muội, nhờ điểm neo tinh thần của Tây Nhĩ Phàm và liên kết sinh mệnh vật lý của Karl giữ được tỉnh táo, đánh lừa Vi Ô Lai Khả tưởng cô ấy đã trầm luân.
 
 ## Chương 50 – Mê cung trầm luân
 
@@ -9894,7 +10926,11 @@ Quy tắc vật lý không gian xung quanh trong khoảnh khắc bị xé nát. 
 
 Không chỉ Karl, nụ cười ung dung của Tây Nhĩ Phàm đóng băng trên mặt. Hắn bị kéo vào tấm gương tước đoạt mọi màu sắc và âm thanh, chỉ còn hư vô tuyệt đối. Cách Lôi Cách theo tiếng gầm khàn của thú, sa vào chiến trường ảo đốt cháy ngọn lửa minh vĩnh tận.
 
-Toàn bộ phòng vệ không gian vật lý trong khoảnh khắc bị giải thể. "Mê cung trầm luân" không chỉ nhắm vào cô ấy, nó cực kỳ tham lam căn cứ điểm yếu linh hồn mỗi người, tùy chỉnh lồng giam không thể thoát ra cho họ. Đúng như cô ấy dự đoán, họ bị cách ly hoàn toàn. Không ai có thể xông vào ảo cảnh của cô ấy để cứu cô ấy.
+Toàn bộ phòng vệ không gian vật lý trong khoảnh khắc bị giải thể.
+
+"Mê cung trầm luân"
+
+Không chỉ nhắm vào cô ấy, nó cực kỳ tham lam căn cứ điểm yếu linh hồn mỗi người, tùy chỉnh lồng giam không thể thoát ra cho họ. Đúng như cô ấy dự đoán, họ bị cách ly hoàn toàn. Không ai có thể xông vào ảo cảnh của cô ấy để cứu cô ấy.
 
 Nhận thức này khiến mối lo cuối cùng của cô ấy trong hiện thực cũng tan biến.
 
@@ -9952,7 +10988,15 @@ Cô ấy hơi cúi mắt, nhìn như không chịu nổi e thẹn tránh ánh nh
 
 Viên tinh thể đó, chỉ cần có thể khống chế nó, ảo cảnh Vi Ô Lai Khả có thể bị xoay chuyển. Nhưng rõ ràng bây giờ chưa phải lúc. Xung quanh dây chuyền vẫn còn phòng vệ cô ấy không thể xuyên qua. Có lẽ chỉ cần thả lỏng cảnh giác của hắn…
 
-Cô ấy tiếp tục giả vờ mê muội trong ảo cảnh "phòng thuê" và "điện đường ngầm" của Vi Ô Lai Khả. Cô ấy dùng lời khiêu khích, "tưởng tượng của anh quá nghèo nàn", "toàn không có", kích động hắn tái tạo ảo cảnh dâm đãng hơn. Khi hắn tập trung ma lực vào áp bức thể xác và mê hoặc, phòng vệ quanh viên tinh thể lăng trụ xám đen trên ngực hắn suy yếu. Trong khoảnh khắc hắn hoàn toàn buông lỏng sau khi phóng tinh, cô ấy nắm lấy viên tinh thể, huyết mạch Solomon cưỡng ép viết đè khế ước lên di vật. Vi Ô Lai Khả bị trục xuất khỏi ảo cảnh. Cô ấy tỉnh trên sofa 【Huyết Hồng Thánh Bôi】, thực ra là phòng VIP 【Phi Sắc Quỷ Ảnh】, toàn thân đẫm mồ hôi, giữa hai chân còn cảm giác nhớp nháp vì phóng tinh quá mức. Nhưng cô ấy thắng: tay trái nắm chặt sợi xích kim loại tinh xảo, đầu xích viên lăng kính xám đen tỏa ánh phục tùng, đó là ánh sáng thuộc về cô ấy.
+Cô ấy tiếp tục giả vờ mê muội trong ảo cảnh "phòng thuê" và "điện đường ngầm" của Vi Ô Lai Khả. Cô ấy dùng lời khiêu khích,
+
+"Tưởng tượng của anh quá nghèo nàn"
+
+,
+
+"Toàn không có"
+
+, kích động hắn tái tạo ảo cảnh dâm đãng hơn. Khi hắn tập trung ma lực vào áp bức thể xác và mê hoặc, phòng vệ quanh viên tinh thể lăng trụ xám đen trên ngực hắn suy yếu. Trong khoảnh khắc hắn hoàn toàn buông lỏng sau khi phóng tinh, cô ấy nắm lấy viên tinh thể, huyết mạch Solomon cưỡng ép viết đè khế ước lên di vật. Vi Ô Lai Khả bị trục xuất khỏi ảo cảnh. Cô ấy tỉnh trên sofa 【Huyết Hồng Thánh Bôi】, thực ra là phòng VIP 【Phi Sắc Quỷ Ảnh】, toàn thân đẫm mồ hôi, giữa hai chân còn cảm giác nhớp nháp vì phóng tinh quá mức. Nhưng cô ấy thắng: tay trái nắm chặt sợi xích kim loại tinh xảo, đầu xích viên lăng kính xám đen tỏa ánh phục tùng, đó là ánh sáng thuộc về cô ấy.
 
 ## Chương 51 – Ảo cảnh của Vi Ô Lai Khả (h)
 
@@ -9962,7 +11006,11 @@ Tay cô ấy trượt theo đường cong cơ ngực mật sắc của hắn, cu
 
 Cô ấy hơi ngửa cổ dài thanh tao, chủ động phô ra họng yếu ớt nhất trước nanh vuốt của hắn. Tính toán cực kỳ lạnh lùng trong đáy mắt được cô ấy che giấu hoàn hảo dưới lớp sương mù mê ly, giọng vì hơi nóng dục tình nồng đặc quanh đó mà trở nên khàn, ngọt mềm, như tiếng thở dài mang chút trách móc.
 
-"Thì… chứng minh cho tôi xem đi. "Quy tắc" của anh, đến mức khó chống lại đến mức nào…"
+"Thì… chứng minh cho tôi xem đi. "
+
+Quy tắc
+
+" của anh, đến mức khó chống lại đến mức nào…"
 
 Đồng tử Vi Ô Lai Khả trong khoảnh khắc đó co rút đột ngột, vân xoắn hổ phách như vòng xoáy sôi sùng sục quay điên cuồng. Hắn vốn tưởng cô ấy sẽ như con thú cùng đường giãy chết chống cự, nào ngờ trong phòng hình cục cực lạc này, cô ấy lại ném ra câu khiêu khích và "mời gọi" mạnh như thuốc kích dục mãnh liệt nhất.
 
@@ -10014,7 +11062,11 @@ Hắn bắt đầu rút đẩy nhỏ, mỗi lần rút ra đều kéo theo lư�
 
 Cô ấy để hắn tung hoành trong cơ thể cô ấy, cây dương vật thô to nóng bỏng mỗi lần xuyên qua đều kéo theo tiếng nước dính nhớt, nghiền nát thịt hang non nớt của cô ấy. Trong phòng hình cực lạc lẽ ra khiến người ta hoàn toàn mê muội này, cô ấy lại như thực khách kén chọn nếm bữa tối, thậm chí trong sự chấn động dữ dội vẫn gượng gạo kéo ra nụ cười mang chút tiếc nuối.
 
-"Tôi tưởng ma quỷ dục tình đàng hoàng sẽ có kiểu chơi phong phú hơn, thú vị hơn… Các ngươi chẳng phải tự xưng là "đại sư đồ chơi tình dục" của địa ngục sao? Nếu chỉ như con thú phát tình dùng sức mạnh rút đẩy…"
+"Tôi tưởng ma quỷ dục tình đàng hoàng sẽ có kiểu chơi phong phú hơn, thú vị hơn… Các ngươi chẳng phải tự xưng là "
+
+Đại sư đồ chơi tình dục
+
+" của địa ngục sao? Nếu chỉ như con thú phát tình dùng sức mạnh rút đẩy…"
 
 Cô ấy thở hổn hển nhẹ, cố ý siết chặt lớp thịt mềm nội bì, từng lớp từng lớp mô mềm mại trong tích tắc như trăm móng gãi tim siết chặt đầu quy đầu khổng lồ của hắn.
 
@@ -10232,7 +11284,11 @@ Khi ý thức yếu ớt của cô ấy trong không gian này gượng gạo ng
 
 Chính giữa phòng sách.
 
-Karl đang quỳ cực kỳ nhục nhã trên nền đá lạnh. Bộ vest vốn chỉn chu của hắn giờ đã rách rưới, trên da trắng bệch gần trong suốt của hắn, "đường vân bóng tối" đen tượng trưng bản chất ác ma đang sôi sùng sục, vặn vẹo, như muốn xé toạc ra khỏi da thịt hắn.
+Karl đang quỳ cực kỳ nhục nhã trên nền đá lạnh. Bộ vest vốn chỉn chu của hắn giờ đã rách rưới, trên da trắng bệch gần trong suốt của hắn,
+
+"Đường vân bóng tối"
+
+Đen tượng trưng bản chất ác ma đang sôi sùng sục, vặn vẹo, như muốn xé toạc ra khỏi da thịt hắn.
 
 Vài sợi xích do phù văn đỏ tươi ngưng kết thành thực chất siết chặt vào xương bả vai, cổ tay và cổ hắn. Đầu kia của xích nằm trong tay bóng tối nữ tính mờ ảo, cao cao tại thượng phía sau bàn làm việc. Bóng tối đó mắt phủ lớp sương trắng, cô ấy không nhìn rõ dung mạo.
 
@@ -10264,11 +11320,27 @@ Xích đột nhiên siết chặt, phù văn đỏ tươi như thỏi sắt nón
 
 Cô ấy đứng ở mép không gian xám trắng, linh thể yếu ớt vì tức giận run nhẹ.
 
-Cuối cùng cô ấy hiểu ra thứ giam giữ Karl. Vi Ô Lai Khả cực kỳ độc ác lợi dụng hạt nhân mê cung, phóng đại vô hạn mâu thuẫn chí mạng sâu nhất trong lòng Karl: sự trung thành tuyệt đối, thậm chí hơi bệnh hoạn với chủ cũ Lili Tư Á, và sự công nhận cùng dục vọng mà chính hắn không muốn thừa nhận nảy sinh với cô ấy , người quản lý cực kỳ yếu ớt nhưng không ngừng tạo phép lạ , "chủ nhân mới", hai thứ này trong ảo cảnh tạo thành bế tắc chết giết hắn.
+Cuối cùng cô ấy hiểu ra thứ giam giữ Karl. Vi Ô Lai Khả cực kỳ độc ác lợi dụng hạt nhân mê cung, phóng đại vô hạn mâu thuẫn chí mạng sâu nhất trong lòng Karl: sự trung thành tuyệt đối, thậm chí hơi bệnh hoạn với chủ cũ Lili Tư Á, và sự công nhận cùng dục vọng mà chính hắn không muốn thừa nhận nảy sinh với cô ấy , người quản lý cực kỳ yếu ớt nhưng không ngừng tạo phép lạ ,
 
-Nếu hắn không tự tay phá vỡ sự mù quáng phục tùng "mệnh lệnh chết tiệt của Lili Tư Á", linh hồn hắn sẽ bị xé nát hoàn toàn trong ảo cảnh này.
+"Chủ nhân mới"
 
-Cô ấy dùng viên tinh thể lõi Trầm Luân đã nhận chủ đưa vào ảo cảnh của Karl. Ở đó, Karl quỳ trong thư phòng cổ, bị "Lili Tư Á" giả, do mê cung dựng từ nỗi sợ sâu nhất của hắn, dùng xích đỏ trói buộc. "Lili Tư Á" giả ra lệnh hắn phản bội cô ấy. Cô ấy chạy tới, tát Karl, "Karl, nhìn rõ! Đối diện là ai?! Bà ấy thật sự là Lili Tư Á sao?! Lili Tư Á sẽ đối xử lạnh lùng với anh như vậy sao?!", Karl tỉnh ngộ: Lili Tư Á thật không lạnh lùng như vậy; cô ấy mới là chủ nhân thật. Ảo cảnh sụp đổ. Karl tỉnh dậy, dùng áo khoác phủ cô ấy, ôm cô ấy, bày tỏ ghen tị với "mùi dâm ma hạ tiện" Vi Ô Lai Khả để lại trên người cô ấy.
+, hai thứ này trong ảo cảnh tạo thành bế tắc chết giết hắn.
+
+Nếu hắn không tự tay phá vỡ sự mù quáng phục tùng
+
+"Mệnh lệnh chết tiệt của Lili Tư Á"
+
+, linh hồn hắn sẽ bị xé nát hoàn toàn trong ảo cảnh này.
+
+Cô ấy dùng viên tinh thể lõi Trầm Luân đã nhận chủ đưa vào ảo cảnh của Karl. Ở đó, Karl quỳ trong thư phòng cổ, bị "Lili Tư Á" giả, do mê cung dựng từ nỗi sợ sâu nhất của hắn, dùng xích đỏ trói buộc.
+
+"Lili Tư Á"
+
+Giả ra lệnh hắn phản bội cô ấy. Cô ấy chạy tới, tát Karl,
+
+"Karl, nhìn rõ! Đối diện là ai?! Bà ấy thật sự là Lili Tư Á sao?! Lili Tư Á sẽ đối xử lạnh lùng với anh như vậy sao?!"
+
+, Karl tỉnh ngộ: Lili Tư Á thật không lạnh lùng như vậy; cô ấy mới là chủ nhân thật. Ảo cảnh sụp đổ. Karl tỉnh dậy, dùng áo khoác phủ cô ấy, ôm cô ấy, bày tỏ ghen tị với "mùi dâm ma hạ tiện" Vi Ô Lai Khả để lại trên người cô ấy.
 
 Phòng làm việc sang trọng tầng cao nhất Liên minh Giải trí Ngầm, 【Phi Sắc Quỷ Ảnh】.
 
@@ -10310,7 +11382,11 @@ Cô ấy nhấc tay trái cực kỳ khó nhọc lên, đưa viên hạt nhân l
 
 Đôi mắt đen sâu thẳm của Karl nhìn chằm chằm bàn tay đang run nhẹ, còn dính vài giọt dịch trắng đã khô một nửa của cô ấy.
 
-Nghe câu cô ấy nhấn mạnh hai người thực ra là "quan hệ bình đẳng tuyển từ nhân gian", thậm chí ám chỉ những chuyện thân mật giường chiếu giữa họ, vị sứ ma vốn nghiêm khắc lạnh lùng này hơi thở rõ ràng nặng hơn.
+Nghe câu cô ấy nhấn mạnh hai người thực ra là
+
+"Quan hệ bình đẳng tuyển từ nhân gian"
+
+, thậm chí ám chỉ những chuyện thân mật giường chiếu giữa họ, vị sứ ma vốn nghiêm khắc lạnh lùng này hơi thở rõ ràng nặng hơn.
 
 Hắn không mang tình dục, cực kỳ kiềm chế nắm lấy đầu ngón tay cô ấy. Nhiệt độ lạnh đặc trưng ác ma truyền tới, trong lúc cẩn thận lấy viên tinh thể từ lòng bàn tay cô ấy, ngón cái hắn trừng phạt nhưng lại gây cảm giác tê nhẹ ấn xuống lòng bàn tay cô ấy.
 
@@ -10334,7 +11410,9 @@ Karl thu tinh thể vào túi, đứng dậy, cực kỳ thành thạo bế cô 
 
 Khi hắn bế cô ấy đi về phía cửa phòng VIP, bên ngoài hành lang lờ mờ vọng lại tiếng bước chân hơi hỗn loạn và tiếng hô thấp. Đúng như Karl dự đoán, nhân viên 【Phi Sắc Quỷ Ảnh】 đã bắt đầu xôn xao.
 
-Cô ấy và Karl đi giải cứu Cách Lôi Cách, hắn đang trong trạng thái cuồng bạo, xé nát cửa phòng, ném các nhân viên an ninh ra ngoài. Karl dùng xích bóng tối ép hắn hôn mê. Sau đó đi cứu Tây Nhĩ Phàm trong phòng "tước đoạt giác quan", hắn tiêu hao tinh thần nghiêm trọng, hai đường máu tím chảy từ mắt mũi. Karl dùng bóng tối đỡ hắn lơ lửng. họ rời 【Phi Sắc Quỷ Ảnh】, Vi Ô Lai Khả ra lệnh mở cửa thả họ đi. Ở cửa chính, cô ấy để lại lời khiêu khích: "Nhờ anh chuyển lời cho ông chủ Vi Ô Lai Khả: Cảm ơn sự tiếp đãi nồng nhiệt đêm nay, cùng 'món quà nhỏ' để lại trên người tôi. Tôi rất hài lòng dịch vụ của anh. Đương nhiên, nếu lần sau anh có thể cung cấp trải nghiệm 'phong phú' 'thú vị' hơn thay vì chỉ biết dùng sức… tôi sẽ vui hơn."
+Cô ấy và Karl đi giải cứu Cách Lôi Cách, hắn đang trong trạng thái cuồng bạo, xé nát cửa phòng, ném các nhân viên an ninh ra ngoài. Karl dùng xích bóng tối ép hắn hôn mê. Sau đó đi cứu Tây Nhĩ Phàm trong phòng "tước đoạt giác quan", hắn tiêu hao tinh thần nghiêm trọng, hai đường máu tím chảy từ mắt mũi. Karl dùng bóng tối đỡ hắn lơ lửng. Họ rời 【Phi Sắc Quỷ Ảnh】, Vi Ô Lai Khả ra lệnh mở cửa thả họ đi. Ở cửa chính, cô ấy để lại lời khiêu khích:
+
+"Nhờ anh chuyển lời cho ông chủ Vi Ô Lai Khả: Cảm ơn sự tiếp đãi nồng nhiệt đêm nay, cùng 'món quà nhỏ' để lại trên người tôi. Tôi rất hài lòng dịch vụ của anh. Đương nhiên, nếu lần sau anh có thể cung cấp trải nghiệm 'phong phú' 'thú vị' hơn thay vì chỉ biết dùng sức… tôi sẽ vui hơn."
 
 ---
 
@@ -10386,7 +11464,11 @@ Karl nhíu mày trong chớp mắt, giọng trở nên hơi lạnh.
 
 "Hậu chứng tước đoạt giác quan rất nghiêm trọng. Hắn cứ nhốt mình trong phòng nghỉ tầng hai. Tôi dùng cảm tri chân thực kiểm tra, hắn đang tạo ra lượng lớn ảo ảnh phòng thủ tần số cao. Với người làm ảo thuật, mất giác quan đồng nghĩa bị tước đoạt linh hồn. Giờ hắn đang trạng thái cực kỳ căng thẳng và tự khép kín, như con nhím sợ hãi."
 
-Karl nhìn cô ấy uống hai ngụm trà, lấy từ túi ra miếng vải đen, bên trong là viên "hạt nhân kết tinh lõi Trầm Luân Mê Cung" cô ấy lấy từ tim Vi Ô Lai Khả.
+Karl nhìn cô ấy uống hai ngụm trà, lấy từ túi ra miếng vải đen, bên trong là viên
+
+"Hạt nhân kết tinh lõi Trầm Luân Mê Cung"
+
+Cô ấy lấy từ tim Vi Ô Lai Khả.
 
 "Ngoài ra, viên kết tinh này đã hoàn toàn đoạn tuyệt liên hệ với người thi pháp, trở thành dụng cụ khuếch đại ảo thuật đỉnh cao vô chủ. Giờ nó là chiến lợi phẩm của ngài. Tuy nhiên, với thân thể yếu ớt đến mức cầm ly còn run của ngài hiện tại, tôi khuyên ngài nên ăn chút gì trước khi xử lý công việc."
 
@@ -10404,7 +11486,11 @@ Cô ấy dừng, gượng tinh thần truyền điều quan trọng nhất.
 
 Nghe sự sắp xếp dù thở thều thào nhưng rõ ràng của cô ấy, tay Karl nhận ly trà dừng nửa giây. Hắn cúi mắt, tầm mắt quét qua vết đỏ thuộc người đàn ông khác trên xương đòn cô ấy chưa hoàn toàn phai, rồi nhìn đôi mắt dù mệt mỏi vẫn tràn đầy sức sống và trách nhiệm của cô ấy.
 
-Bản năng ác ma khiến hắn khinh thường chấn thương của "kẻ yếu"; trong mắt hắn, Tây Nhĩ Phàm không chịu nổi mê cung và Cách Lôi Cách dễ sa vào cuồng bạo chỉ là công cụ có khuyết tật. Nhưng ý tưởng kỳ quặc của cô ấy dùng "công cụ tra tấn của kẻ thù" để "chữa lành thuộc cấp", cùng lòng đồng cảm đặc trưng con người cố gắng chiếu cố tất cả, như giọt mưa ngọt, vô cùng kỳ diệu tưới mát trái tim băng giá đã thấm đẫm quy tắc địa ngục của hắn.
+Bản năng ác ma khiến hắn khinh thường chấn thương của "kẻ yếu"; trong mắt hắn, Tây Nhĩ Phàm không chịu nổi mê cung và Cách Lôi Cách dễ sa vào cuồng bạo chỉ là công cụ có khuyết tật. Nhưng ý tưởng kỳ quặc của cô ấy dùng
+
+"Công cụ tra tấn của kẻ thù"
+
+Để "chữa lành thuộc cấp", cùng lòng đồng cảm đặc trưng con người cố gắng chiếu cố tất cả, như giọt mưa ngọt, vô cùng kỳ diệu tưới mát trái tim băng giá đã thấm đẫm quy tắc địa ngục của hắn.
 
 "Dùng công cụ tra tấn giác quan để trị liệu tinh thần… cách tư duy của ngài luôn đầy… tính lật đổ, quản lý nhân."
 
@@ -10414,7 +11500,17 @@ Karl đặt ly trà xuống, hơi cúi người, thái độ chấp sự hoàn m
 
 Hắn lấy đồng hồ quả quít từ túi ngực ra xem.
 
-"Còn viên "hạt nhân Trầm Luân Mê Cung" này, ánh mắt Karl rơi vào viên tinh thể đen, ma lực bóng tối nhảy múa trên đầu ngón hắn, kết cấu cực kỳ tinh luyện và nguy hiểm. Nếu ngài muốn thử viết lại logic tầng đáy, chuyển hóa thành "tính chữa lành", cần mở ma pháp cực chuyên tâm và trợ giúp "cảm tri chân thực" của ngài."
+"Còn viên "
+
+Hạt nhân Trầm Luân Mê Cung
+
+" này, ánh mắt Karl rơi vào viên tinh thể đen, ma lực bóng tối nhảy múa trên đầu ngón hắn, kết cấu cực kỳ tinh luyện và nguy hiểm. Nếu ngài muốn thử viết lại logic tầng đáy, chuyển hóa thành "
+
+Tính chữa lành
+
+", cần mở ma pháp cực chuyên tâm và trợ giúp "
+
+Cảm tri chân thực" của ngài."
 
 "Với thể lực ngài hiện tại, tôi không khuyên ngài lập tức bắt đầu lao động trí não cường độ cao."
 
@@ -10436,7 +11532,11 @@ Tiểu quỷ truyền tin tiếp tục báo cáo phấn khích: Không chỉ s�
 
 A Tát Tạ Nhĩ hơi nghiêng người, con ngươi tím xoáy chuyển.
 
-"Nghe nói trước khi ra cửa, nữ quản lý người đó trước mặt mọi người… chê "dịch vụ" của Vi Ô Lai Khả!"
+"Nghe nói trước khi ra cửa, nữ quản lý người đó trước mặt mọi người… chê "
+
+Dịch vụ
+
+" của Vi Ô Lai Khả!"
 
 "Ha ha ha ha ha ha!"
 
@@ -10504,13 +11604,25 @@ Cô ấy không nhịn được phát ra tiếng rên, bản năng muốn khép 
 
 Giọng Karl trầm như có thể sinh cộng hưởng. Hắn kiên quyết ấn đầu gối cô ấy, không những không cho khép lại mà còn tách đùi rộng hơn, khiến bộ phận riêng tư hoàn toàn phơi bày dưới ánh nhìn u ám của hắn.
 
-Karl dùng đầu ngón nhẹ nhàng xoa những vết đỏ thuộc Vi Ô Lai Khả ở gốc đùi cô ấy, trong mắt lóe sự bạo lực. "Ma quỷ dục tình hạ tiện đó dùng quá thô bạo với ngài." Hắn thì thầm, ngón giữa dài thấm dịch ướt từ cửa hang cô ấy, rồi không nhẹ không nặng ấn nghiền lên âm vật sưng của cô ấy. Đột kích mãnh liệt khiến cô ấy ngửa cổ, mười ngón siết chặt ga giường.
+Karl dùng đầu ngón nhẹ nhàng xoa những vết đỏ thuộc Vi Ô Lai Khả ở gốc đùi cô ấy, trong mắt lóe sự bạo lực.
 
-"Đúng… vậy đó, thả lỏng đi, cảm nhận ma lực tôi che phủ những dấu vết bẩn thỉu đó." Karl cúi xuống, môi mỏng mát áp bên tai cô ấy thì thầm khàn. Ngón tay dài thấm dịch dính đưa men theo khe thịt trơn trượt, chậm mà kiên quyết đâm vào hang hoa nóng chặt của cô ấy. Thành trong vốn quen thứ khổng lồ đêm qua, giờ đối mặt ngón tay mảnh mai lạnh của Karl, thịt mềm bản năng siết chặt, mút, cố lấy thêm an ủi. "Tham ăn thật, chủ nhân của tôi." Karl cười khẽ vui sướng. Hắn hôn tai cô ấy, ngón tay trong ống đạo bắt đầu rút đẩy nhịp nhàng. Mỗi lần sâu vào, đầu ngón đều cạo trúng điểm G nhạy cảm nhất, đồng thời phóng tia ma lực bóng tối yếu nhưng cực xuyên phá, nổ tung cực khoái lạnh-nóng ở chỗ sâu nhất cơ thể cô ấy.
+"Ma quỷ dục tình hạ tiện đó dùng quá thô bạo với ngài."
+
+Hắn thì thầm, ngón giữa dài thấm dịch ướt từ cửa hang cô ấy, rồi không nhẹ không nặng ấn nghiền lên âm vật sưng của cô ấy. Đột kích mãnh liệt khiến cô ấy ngửa cổ, mười ngón siết chặt ga giường.
+
+"Đúng… vậy đó, thả lỏng đi, cảm nhận ma lực tôi che phủ những dấu vết bẩn thỉu đó."
+
+Karl cúi xuống, môi mỏng mát áp bên tai cô ấy thì thầm khàn. Ngón tay dài thấm dịch dính đưa men theo khe thịt trơn trượt, chậm mà kiên quyết đâm vào hang hoa nóng chặt của cô ấy. Thành trong vốn quen thứ khổng lồ đêm qua, giờ đối mặt ngón tay mảnh mai lạnh của Karl, thịt mềm bản năng siết chặt, mút, cố lấy thêm an ủi.
+
+"Tham ăn thật, chủ nhân của tôi."
+
+Karl cười khẽ vui sướng. Hắn hôn tai cô ấy, ngón tay trong ống đạo bắt đầu rút đẩy nhịp nhàng. Mỗi lần sâu vào, đầu ngón đều cạo trúng điểm G nhạy cảm nhất, đồng thời phóng tia ma lực bóng tối yếu nhưng cực xuyên phá, nổ tung cực khoái lạnh-nóng ở chỗ sâu nhất cơ thể cô ấy.
 
 Cô ấy chỉ phát ra tiếng thở gấp đứt đoạn và rên. Trong trận "massage" thực chất là đánh dấu và rửa sạch triệt để này, Karl chứng minh rằng so với thủ đoạn thấp kém của ma quỷ dục tình chỉ biết kích động dục vọng, sự khống chế và phục vụ thấu xương của sứ ma trung thành mới thực sự khiến cô ấy chìm đắm. Cô ấy cần ấn tượng sâu hơn, thuộc về Karl hơn, để triệt để cuốn trôi ký ức nhục nhã cuồng loạn đó.
 
-"Karl……" Cô ấy đầy mũi, mắt long lanh mờ nhìn gương mặt lạnh lùng tái nhợt phía trên, eo không tự chủ đón theo nhịp rút đẩy ngón tay hắn. "Tôi còn muốn……"
+"Karl……" Cô ấy đầy mũi, mắt long lanh mờ nhìn gương mặt lạnh lùng tái nhợt phía trên, eo không tự chủ đón theo nhịp rút đẩy ngón tay hắn.
+
+"Tôi còn muốn……"
 
 Cô ấy thở gấp, vô cùng trực tiếp đưa ra yêu cầu.
 
@@ -10518,15 +11630,57 @@ Cô ấy thở gấp, vô cùng trực tiếp đưa ra yêu cầu.
 
 Karl dùng ngón cái lau dịch trên đầu ngón, đưa chút ánh trong đó cực kỳ dâm đãng vào miệng mình, đầu lưỡi cuốn nhẹ, nuốt. Sau đó hắn đổi tư thế, từ tư thế phủ lên cô ấy, hắn cực kỳ thuận tùng, thậm chí có thể nói khiêm nhường quỳ lùi xuống giữa hai chân cô ấy. Karl hai tay nắm hố khoeo, không tốn sức đẩy đôi chân mềm nhũn của cô ấy về phía ngực, khiến bộ phận riêng tư mềm mỏng hoàn toàn phơi bày dưới tầm nhìn hắn.
 
-"Vậy để tôi tiến hành 'thanh lý vị giác' sâu nhất cho ngài." Karl tuyên bố, gương mặt đẹp gần yêu quái từ từ chôn vào giữa hai chân cô ấy. Khi môi mát của Karl áp lên môi hoa nóng của cô ấy, cô ấy run như điện giật. Hắn hôn không cuồng bạo mà cực kỳ tỉ mỉ. Hắn dùng sống mũi cao khẽ cọ âm vật nhạy cảm của cô ấy, nghe tiếng kêu đổi giọng, môi mới dịu dàng bọc hai mảnh thịt sưng. Tiếp theo lưỡi linh hoạt ấm như rắn độc tìm kho báu, cực kỳ tinh quái chui vào ống đạo vẫn không ngừng tràn dịch của cô ấy. Karl mút lưỡi điên cuồng trên điểm nhạy cảm của cô ấy; tay hắn men đùi trong đi lên, nắm hai bầu mềm đứng vì dục tình; đầu ngón qua lớp vải mỏng nắn bóp hai đầu đã cứng như đá. Trên dưới kích thích khiến lý trí ít ỏi của cô ấy hóa tro. "Tôi không chịu nổi rồi…… Karl…… tôi sắp……" Đôi chân cô ấy siết chặt cổ hắn, mười ngón cuối cùng siết vào tóc đen.
+"Vậy để tôi tiến hành 'thanh lý vị giác' sâu nhất cho ngài."
 
-Kèm tiếng kêu gần sụp đổ, cơ thể cô ấy căng như cung, hang hoa co thắt dữ dội, trong cực khoái đó cô ấy không kìm được xịt nước. Dịch trong như suối nhỏ tưới lên mặt và miệng Karl. Karl không dùng khăn lau mà từ từ thè lưỡi liếm giọt long lanh trên môi, nuốt. "Cực kỳ…… ngon." Hắn dùng khăn ấm lau sạch gốc đùi và cửa hang cô ấy.
+Karl tuyên bố, gương mặt đẹp gần yêu quái từ từ chôn vào giữa hai chân cô ấy. Khi môi mát của Karl áp lên môi hoa nóng của cô ấy, cô ấy run như điện giật. Hắn hôn không cuồng bạo mà cực kỳ tỉ mỉ. Hắn dùng sống mũi cao khẽ cọ âm vật nhạy cảm của cô ấy, nghe tiếng kêu đổi giọng, môi mới dịu dàng bọc hai mảnh thịt sưng. Tiếp theo lưỡi linh hoạt ấm như rắn độc tìm kho báu, cực kỳ tinh quái chui vào ống đạo vẫn không ngừng tràn dịch của cô ấy. Karl mút lưỡi điên cuồng trên điểm nhạy cảm của cô ấy; tay hắn men đùi trong đi lên, nắm hai bầu mềm đứng vì dục tình; đầu ngón qua lớp vải mỏng nắn bóp hai đầu đã cứng như đá. Trên dưới kích thích khiến lý trí ít ỏi của cô ấy hóa tro.
 
-Cô ấy chỉ ra bộ phận cương cứng của hắn. Karl dẫn tay cô ấy xuống, bàn tay cô ấy áp lên thứ cứng nóng đập theo nhịp thở. Cô ấy bắt đầu vụng về nhưng cố gắng vuốt lên xuống. Karl dùng tay mình bọc tay cô ấy, đưa tay cô ấy vuốt nhanh mạnh trên cây dương vật tím đỏ sưng. Khi tay cô ấy mỏi, cô ấy mở đùi, để hắn kẹp ở khe mềm ẩm nóng. "Như ngài mong muốn, quản lý nhân cực kỳ hào phóng của tôi." Karl gầm trong cổ họng, thân hình cao lớn đổ về phía trước. Hắn hai tay nắm eo mảnh mai của cô ấy, ngón cái ấn chặt hai bên xương hông, đẩy cây hung khí đã sưng đến giới hạn vào khe đùi khép chặt. "Ưm a……" Khi thứ nóng như sắt đâm sâu vào thịt đùi non, cô ấy phát tiếng rên ngọt. Cô ấy thuận theo khép chặt đùi, dùng khe thịt chật ẩm nóng giữa hai chân bọc chặt dương vật hắn. Túi nặng của hắn theo rút đẩy đập hội âm cô ấy. "Rộp! Rộp! Rộp!"
+"Tôi không chịu nổi rồi…… Karl…… tôi sắp……"
 
-Cuối cùng khi cô ấy nắm hai túi nặng của hắn kích thích, thúc "Nhanh…… Karl, nhanh ra…… toàn bộ bắn cho tôi……" Karl ngửa đầu, cổ dài tái nhợt gân nổi, gầm thét. Hắn siết eo cô ấy, ưỡn hông như thú dữ đâm mạnh, cây hung khí thô to kẹt chặt gốc đùi đã mài đỏ của cô ấy! "Như ngài…… mong muốn!" Một lượng cực lớn dịch trắng đặc nóng gần bỏng da như núi lửa phun từ lỗ mắt sưng đỏ của hắn! "Phụt! Phụt! Phụt, !" Tinh dịch cực đặc mang ma lực bóng tối và mùi xạ hương đổ lên bụng, rốn, đùi trong cô ấy, thậm chí văng lên ngực trắng. Karl ôm cô ấy, mặt chôn vào hõm cổ, tham lam ngửi mùi thể cô ấy trộn tinh dịch hắn.
+Đôi chân cô ấy siết chặt cổ hắn, mười ngón cuối cùng siết vào tóc đen.
 
-"Xin lỗi…… lượng thật quá nhiều, làm bẩn ngài rồi." Hắn lật mình xuống giường, ma lực bóng tối lại dâng. Karl không dùng khăn nóng ngay. Hắn quỳ một gối bên giường, cúi xuống, ngón tay cực kỳ dâm đãng cạo lớp tinh dịch trắng đặc còn ấm trên bụng cô ấy. "Thứ ma quỷ hạ tiện để lại trong ngài gọi là 'ô uế', phải bị moi bỏ, tiêu hủy triệt để. Còn những thứ để lại trên người ngài giờ……" Hắn cúi đầu, môi chính xác áp lên đóa hồng bị dịch trắng bắn trên ngực cô ấy. Đầu lưỡi Karl cuốn khéo léo, mút giọt tinh dịch đặc trên núm vú cùng da non quanh đó vào miệng. "Cơ thể hoàn hảo nhất địa ngục này…… giờ từ trong ra ngoài, từ mùi đến thị giác đều chân thật chỉ còn dấu ấn của tôi. Đây gọi là 'phủ đè', gọi là 'tái tạo'." Hắn ngẩng đầu, đôi mắt phù văn lam tím nhấp nháy khóa chặt mắt cô ấy long lanh nước. Cuối cùng hắn mới đặt khăn đen ấm lên da cô ấy, chuyên nghiệp tỉ mỉ lau sạch.
+Kèm tiếng kêu gần sụp đổ, cơ thể cô ấy căng như cung, hang hoa co thắt dữ dội, trong cực khoái đó cô ấy không kìm được xịt nước. Dịch trong như suối nhỏ tưới lên mặt và miệng Karl. Karl không dùng khăn lau mà từ từ thè lưỡi liếm giọt long lanh trên môi, nuốt.
+
+"Cực kỳ…… ngon."
+
+Hắn dùng khăn ấm lau sạch gốc đùi và cửa hang cô ấy.
+
+Cô ấy chỉ ra bộ phận cương cứng của hắn. Karl dẫn tay cô ấy xuống, bàn tay cô ấy áp lên thứ cứng nóng đập theo nhịp thở. Cô ấy bắt đầu vụng về nhưng cố gắng vuốt lên xuống. Karl dùng tay mình bọc tay cô ấy, đưa tay cô ấy vuốt nhanh mạnh trên cây dương vật tím đỏ sưng. Khi tay cô ấy mỏi, cô ấy mở đùi, để hắn kẹp ở khe mềm ẩm nóng.
+
+"Như ngài mong muốn, quản lý nhân cực kỳ hào phóng của tôi."
+
+Karl gầm trong cổ họng, thân hình cao lớn đổ về phía trước. Hắn hai tay nắm eo mảnh mai của cô ấy, ngón cái ấn chặt hai bên xương hông, đẩy cây hung khí đã sưng đến giới hạn vào khe đùi khép chặt.
+
+"Ưm a……"
+
+Khi thứ nóng như sắt đâm sâu vào thịt đùi non, cô ấy phát tiếng rên ngọt. Cô ấy thuận theo khép chặt đùi, dùng khe thịt chật ẩm nóng giữa hai chân bọc chặt dương vật hắn. Túi nặng của hắn theo rút đẩy đập hội âm cô ấy.
+
+"Rộp! Rộp! Rộp!"
+
+Cuối cùng khi cô ấy nắm hai túi nặng của hắn kích thích, thúc
+
+"Nhanh…… Karl, nhanh ra…… toàn bộ bắn cho tôi……"
+
+Karl ngửa đầu, cổ dài tái nhợt gân nổi, gầm thét. Hắn siết eo cô ấy, ưỡn hông như thú dữ đâm mạnh, cây hung khí thô to kẹt chặt gốc đùi đã mài đỏ của cô ấy!
+
+"Như ngài…… mong muốn!"
+
+Một lượng cực lớn dịch trắng đặc nóng gần bỏng da như núi lửa phun từ lỗ mắt sưng đỏ của hắn!
+
+"Phụt! Phụt! Phụt, !"
+
+Tinh dịch cực đặc mang ma lực bóng tối và mùi xạ hương đổ lên bụng, rốn, đùi trong cô ấy, thậm chí văng lên ngực trắng. Karl ôm cô ấy, mặt chôn vào hõm cổ, tham lam ngửi mùi thể cô ấy trộn tinh dịch hắn.
+
+"Xin lỗi…… lượng thật quá nhiều, làm bẩn ngài rồi."
+
+Hắn lật mình xuống giường, ma lực bóng tối lại dâng. Karl không dùng khăn nóng ngay. Hắn quỳ một gối bên giường, cúi xuống, ngón tay cực kỳ dâm đãng cạo lớp tinh dịch trắng đặc còn ấm trên bụng cô ấy.
+
+"Thứ ma quỷ hạ tiện để lại trong ngài gọi là 'ô uế', phải bị moi bỏ, tiêu hủy triệt để. Còn những thứ để lại trên người ngài giờ……"
+
+Hắn cúi đầu, môi chính xác áp lên đóa hồng bị dịch trắng bắn trên ngực cô ấy. Đầu lưỡi Karl cuốn khéo léo, mút giọt tinh dịch đặc trên núm vú cùng da non quanh đó vào miệng.
+
+"Cơ thể hoàn hảo nhất địa ngục này…… giờ từ trong ra ngoài, từ mùi đến thị giác đều chân thật chỉ còn dấu ấn của tôi. Đây gọi là 'phủ đè', gọi là 'tái tạo'."
+
+Hắn ngẩng đầu, đôi mắt phù văn lam tím nhấp nháy khóa chặt mắt cô ấy long lanh nước. Cuối cùng hắn mới đặt khăn đen ấm lên da cô ấy, chuyên nghiệp tỉ mỉ lau sạch.
 
 "Ngài thật… ân huệ cực kỳ chết người, quản lý nhân của tôi."
 
@@ -10564,11 +11718,57 @@ Hắn hai tay kẹp hông cô ấy làm điểm cố định, mông eo bắt đ�
 
 Túi nặng của hắn theo động tác rút đẩy không ngừng, cực kỳ vang đập lên hội âm cô ấy. Mỗi lần rút thô bạo, đầu quy đầu tím đỏ đều cực kỳ nguy hiểm cọ qua môi hoa vẫn hơi run; mỗi lần đẩy sâu, thân cột thô ráp và mạch máu nổi sẽ cực kỳ tàn nhẫn cọ qua da non mềm nhất bên trong đùi cô ấy.
 
-Rút đẩy tiếp diễn. Thậm chí nhiều lần hắn cố ý ép hông xuống, để đầu quy đầu to nóng trong lúc rút đẩy cực kỳ ác ý nghiền qua âm vật nhạy cảm của cô ấy. "Í da! Không…… chỗ đó không được…… sẽ…… à!" Cực khoái sắc như điện chạy khắp người. Cô ấy hai chân siết chặt hơn, ngón chân co quắp, hang hoa sâu không kiểm soát phun dòng dịch trong, men khe thịt đổ lên cây thô to đang ma sát điên cuồng. Dịch mới đó không những không làm hắn phóng tinh, ngược lại như thêm dầu vào lửa kích thích giác quan Karl. Hắn gầm trầm, cúi cắn xương đòn cô ấy để lại vết răng đỏ rõ, động tác phía dưới trở nên hoang dã hơn. Thịt mềm đùi trong đã bị cây thô hoang dã ma sát nóng đỏ. "Ưm…… Karl……" Cô ấy thở gấp, tay mềm run rẩy theo bụng hắn căng xuống, thăm dò chính xác vào chỗ sâu nhất đang rút đẩy điên cuồng. ""
+Rút đẩy tiếp diễn. Thậm chí nhiều lần hắn cố ý ép hông xuống, để đầu quy đầu to nóng trong lúc rút đẩy cực kỳ ác ý nghiền qua âm vật nhạy cảm của cô ấy.
 
-Dù rất thích…… nhưng tôi sắp bị anh mài tróc da rồi……" Cô ấy mở tay nhỏ, cực táo bạo nắm hai túi nặng sưng kinh người ở gốc dương vật hắn. Đầu ngón hoặc nặng hoặc nhẹ xoa hai quả cầu nóng bên trong. "Nhanh…… Karl, nhanh ra…… toàn bộ bắn cho tôi……" Khi ngón tay cô ấy ấn vào dây thần kinh nhạy đáy túi, kèm lời thúc giục như ân điển, đôi mắt Karl phù văn lam tím điên cuồng chuyển mở to. "Ư ạ, !" Karl ngửa đầu, cổ dài tái gân nổi. Hắn bỏ mọi niệm "bền bỉ" "kiềm chế", hai tay siết xương hông cô ấy, cả eo hung tợn như thú ưỡn mạnh, đẩy cây thô to khủng khiếp kẹt chặt gốc đùi đã mài đỏ của cô ấy! "Như ngài…… mong muốn!" Một lượng cực lớn dịch trắng đặc nóng gần bỏng da như núi lửa phun từ lỗ mắt sưng đỏ! "Phụt! Phụt! Phụt, !" Tinh dịch cực đặc mang ma lực bóng tối và mùi xạ hương đổ lên bụng, rốn, đùi trong, thậm chí văng lên ngực. Cơ thể cô ấy bị làn sóng nóng làm run dữ."
+"Í da! Không…… chỗ đó không được…… sẽ…… à!"
 
-Gần một phút, dòng kinh khủng mới dần yên thành nhỏ giọt đứt đoạn. Karl ôm cô ấy, mặt chôn vào hõm cổ. "Xin lỗi…… lượng thật quá nhiều." Karl không dùng khăn nóng ngay. Hắn quỳ bên giường, ngón tay cực kỳ dâm đãng cạo lớp tinh dịch trắng đặc còn ấm trên bụng cô ấy. "Thứ ma quỷ hạ tiện để lại trong ngài gọi là 'ô uế', phải bị moi bỏ triệt để. Còn những thứ để lại trên người ngài giờ……" Hắn cúi đầu, môi áp chính xác đóa hồng bị dịch trắng bắn trên ngực cô ấy. Đầu lưỡi Karl cuốn khéo, mút giọt tinh dịch đặc cùng da non quanh đó vào miệng. "Cơ thể hoàn hảo nhất địa ngục, giờ từ trong ra ngoài, từ mùi đến thị giác đều chân thật chỉ còn dấu ấn của tôi. Đây gọi là 'phủ đè', gọi là 'tái tạo'." Hắn ngẩng đầu, đôi mắt phù văn lam tím nhấp nháy khóa chặt mắt cô ấy. "Đây là đặc quyền tối thượng ngài ban cho tôi. Thứ 'bẩn' khiến tôi tự hào." Sau câu cuồng ngôn đó, Karl mới đặt khăn đen ấm lên da cô ấy.
+Cực khoái sắc như điện chạy khắp người. Cô ấy hai chân siết chặt hơn, ngón chân co quắp, hang hoa sâu không kiểm soát phun dòng dịch trong, men khe thịt đổ lên cây thô to đang ma sát điên cuồng. Dịch mới đó không những không làm hắn phóng tinh, ngược lại như thêm dầu vào lửa kích thích giác quan Karl. Hắn gầm trầm, cúi cắn xương đòn cô ấy để lại vết răng đỏ rõ, động tác phía dưới trở nên hoang dã hơn. Thịt mềm đùi trong đã bị cây thô hoang dã ma sát nóng đỏ.
+
+"Ưm…… Karl……"
+
+Cô ấy thở gấp, tay mềm run rẩy theo bụng hắn căng xuống, thăm dò chính xác vào chỗ sâu nhất đang rút đẩy điên cuồng. ""
+
+Dù rất thích…… nhưng tôi sắp bị anh mài tróc da rồi……
+
+" Cô ấy mở tay nhỏ, cực táo bạo nắm hai túi nặng sưng kinh người ở gốc dương vật hắn. Đầu ngón hoặc nặng hoặc nhẹ xoa hai quả cầu nóng bên trong. "
+
+Nhanh…… Karl, nhanh ra…… toàn bộ bắn cho tôi……
+
+" Khi ngón tay cô ấy ấn vào dây thần kinh nhạy đáy túi, kèm lời thúc giục như ân điển, đôi mắt Karl phù văn lam tím điên cuồng chuyển mở to. "
+
+Ư ạ, !
+
+" Karl ngửa đầu, cổ dài tái gân nổi. Hắn bỏ mọi niệm "
+
+Bền bỉ" "kiềm chế
+
+", hai tay siết xương hông cô ấy, cả eo hung tợn như thú ưỡn mạnh, đẩy cây thô to khủng khiếp kẹt chặt gốc đùi đã mài đỏ của cô ấy! "
+
+Như ngài…… mong muốn!
+
+" Một lượng cực lớn dịch trắng đặc nóng gần bỏng da như núi lửa phun từ lỗ mắt sưng đỏ! "
+
+Phụt! Phụt! Phụt, !
+
+" Tinh dịch cực đặc mang ma lực bóng tối và mùi xạ hương đổ lên bụng, rốn, đùi trong, thậm chí văng lên ngực. Cơ thể cô ấy bị làn sóng nóng làm run dữ."
+
+Gần một phút, dòng kinh khủng mới dần yên thành nhỏ giọt đứt đoạn. Karl ôm cô ấy, mặt chôn vào hõm cổ.
+
+"Xin lỗi…… lượng thật quá nhiều."
+
+Karl không dùng khăn nóng ngay. Hắn quỳ bên giường, ngón tay cực kỳ dâm đãng cạo lớp tinh dịch trắng đặc còn ấm trên bụng cô ấy.
+
+"Thứ ma quỷ hạ tiện để lại trong ngài gọi là 'ô uế', phải bị moi bỏ triệt để. Còn những thứ để lại trên người ngài giờ……"
+
+Hắn cúi đầu, môi áp chính xác đóa hồng bị dịch trắng bắn trên ngực cô ấy. Đầu lưỡi Karl cuốn khéo, mút giọt tinh dịch đặc cùng da non quanh đó vào miệng.
+
+"Cơ thể hoàn hảo nhất địa ngục, giờ từ trong ra ngoài, từ mùi đến thị giác đều chân thật chỉ còn dấu ấn của tôi. Đây gọi là 'phủ đè', gọi là 'tái tạo'."
+
+Hắn ngẩng đầu, đôi mắt phù văn lam tím nhấp nháy khóa chặt mắt cô ấy.
+
+"Đây là đặc quyền tối thượng ngài ban cho tôi. Thứ 'bẩn' khiến tôi tự hào."
+
+Sau câu cuồng ngôn đó, Karl mới đặt khăn đen ấm lên da cô ấy.
 
 Lúc này.
 
@@ -10582,7 +11782,11 @@ Tổng biên tập 《Quỷ Ảnh Tuần San》, cỗ máy tin đồn và dư lu
 
 Karl hơi nheo mắt, cực kỳ ghét nhìn viên thạch anh nhấp nháy, lạnh lùng báo cáo:
 
-"Có vẻ vị "đồng minh" khứu giác cực kỳ nhạy của chúng ta đã nóng lòng muốn bóp tin nóng hạng nhất từ ngài rồi."
+"Có vẻ vị "
+
+Đồng minh
+
+" khứu giác cực kỳ nhạy của chúng ta đã nóng lòng muốn bóp tin nóng hạng nhất từ ngài rồi."
 
 ---
 
@@ -10632,15 +11836,53 @@ Karl đơn phương cắt thông tin thô bạo gọn gàng, không cho đối p
 
 Nhiệt độ phòng được chỉnh thích hợp nhất cho giấc ngủ, góc phòng đốt hương ngải địa ngục an thần. Cô ấy chìm vào giấc ngủ đen ngọt sâu, cơ thể trong giấc ngủ tham lam hấp thu năng lượng, sửa chữa cơ bắp và tinh thần quá lao lực.
 
-Trong lúc cô ấy ngủ, 【Huyết Hồng Thánh Bôi】 không ngừng vận hành. Sảnh tầng một, Karl mặc vest chấp sự chỉnh tề, như giám công nghiêm khắc nhất, hiệu quả chỉ huy mọi thứ. "Cách Lôi Cách," ánh mắt lạnh lùng Karl quét hồng phát tráng hán vì không bảo vệ được cô ấy đang tự kỷ góc tường, "kết thúc mặt tường. Quản lý nhân cần lãnh địa tuyệt đối an toàn để an giấc. Ra cửa, dọn sạch lũ chuột trốn trong bóng tối. Đêm nay tôi không muốn thấy bất kỳ kẻ khả nghi nào tới gần quán bar nửa bước." Nghe nhu cầu an toàn của cô ấy, địa ngục khuyển đôi mắt tối tăm bỗng bùng lửa minh. Hắn gầm, rút vũ khí nặng bên hông, bước dài ra cửa quán. Lili gắng sức lau quầy bar; các phục vụ tiểu quỷ dưới áp lực thực chất của Karl bùng nổ hiệu suất chưa từng có. Không có cô ấy, không khí quán thiếu chút nhân tình, thêm phần trật tự nghiêm minh.
+Trong lúc cô ấy ngủ, 【Huyết Hồng Thánh Bôi】 không ngừng vận hành. Sảnh tầng một, Karl mặc vest chấp sự chỉnh tề, như giám công nghiêm khắc nhất, hiệu quả chỉ huy mọi thứ.
+
+"Cách Lôi Cách,"
+
+Ánh mắt lạnh lùng Karl quét hồng phát tráng hán vì không bảo vệ được cô ấy đang tự kỷ góc tường,
+
+"Kết thúc mặt tường. Quản lý nhân cần lãnh địa tuyệt đối an toàn để an giấc. Ra cửa, dọn sạch lũ chuột trốn trong bóng tối. Đêm nay tôi không muốn thấy bất kỳ kẻ khả nghi nào tới gần quán bar nửa bước."
+
+Nghe nhu cầu an toàn của cô ấy, địa ngục khuyển đôi mắt tối tăm bỗng bùng lửa minh. Hắn gầm, rút vũ khí nặng bên hông, bước dài ra cửa quán. Lili gắng sức lau quầy bar; các phục vụ tiểu quỷ dưới áp lực thực chất của Karl bùng nổ hiệu suất chưa từng có. Không có cô ấy, không khí quán thiếu chút nhân tình, thêm phần trật tự nghiêm minh.
 
 Đêm "tát mặt Vi Ô Lai Khả" vẫn thu hút khách tò mò, họ không dám ồn ào, chỉ im lặng tiêu thụ, khiến sổ sách quán tăng ổn định.
 
-Khi cô ấy mở mắt lại, đã là sáng hôm sau. Ánh hoàng hôn vĩnh cửu địa ngục xuyên khe rèm rọi vào. Cô ấy thoải mái vươn vai, xương kêu "cạch". Cơ thể nặng như chì giờ tràn đầy sức lực, não như được rửa sạch. Mệt mỏi đau nhức hôm qua như giấc mơ xa. Trên tủ đầu giường đặt ly nước ấm vừa phải. Cô ấy ngồi dậy, hít sâu. Cô ấy đẩy bản nháp khế ước nóng vàng sang bên, dù nghỉ đủ, cô ấy không định vừa dậy lao vào đấu trí nặng. "Karl, tài liệu tạm để đó."
+Khi cô ấy mở mắt lại, đã là sáng hôm sau. Ánh hoàng hôn vĩnh cửu địa ngục xuyên khe rèm rọi vào. Cô ấy thoải mái vươn vai, xương kêu "cạch". Cơ thể nặng như chì giờ tràn đầy sức lực, não như được rửa sạch. Mệt mỏi đau nhức hôm qua như giấc mơ xa. Trên tủ đầu giường đặt ly nước ấm vừa phải. Cô ấy ngồi dậy, hít sâu. Cô ấy đẩy bản nháp khế ước nóng vàng sang bên, dù nghỉ đủ, cô ấy không định vừa dậy lao vào đấu trí nặng.
+
+"Karl, tài liệu tạm để đó."
 
 Cô ấy mặc quần áo thoải mái, mở cửa phòng ngủ. Karl đứng ngoài cửa như tượng canh. Cô ấy mỉm cười an ủi hắn.
 
-"Đi với tôi xuống xem mọi người. Quán bar cần vận hành bình thường, và…… tôi phải xác nhận tình hình Tây Nhĩ Phàm." Xuống cầu thang, không khí sảnh tầng một thơm hương thực vật nhẹ. Lili thấy cô ấy xuống mừng chào; Cách Lôi Cách đứng cửa như thần sát. Cô ấy vỗ cơ tay sắt của hắn: "Đêm qua vất vả. Cách Lôi Cách và tôi đều thấy anh dọn 'chuột' bên ngoài rất sạch. Có anh canh sảnh, tôi ngủ rất yên." Cô ấy quay sang hành lang tầng hai, phòng Tây Nhĩ Phàm. Càng gần, nhiệt độ càng giảm rõ. Khe cửa không ngừng rỉ bụi ảo ảnh tím. Cô ấy áp tay lên cửa lạnh, nhắm mắt, vận dụng cảm tri chân thực. Thế giới sau cửa như vực tối. Cô ấy không nghe giọng tinh quái của Tây Nhĩ Phàm, chỉ có mảnh cảm xúc hỗn loạn va chạm. "Hắn tự khóa chặt mình trong ảo cảnh tầng sâu nhất……" Cô ấy rút tay, đầu ngón đã phủ sương. Cô ấy quay về phòng mình. Thời gian cực kỳ gấp. Cô ấy ngồi bàn làm việc, Karl đặt hộp kim loại "hạt nhân Trầm Luân Mê Cung" và bản nháp khế ước nóng vàng A Tát Tạ Nhĩ trước mặt cô ấy. "Tây Nhĩ Phàm không thể chờ thêm. Karl, hộ pháp cho tôi." Cô ấy mở hộp. Viên "hạt nhân Trầm Luân Mê Cung" nằm yên trên nệm nhung chống rung. Cô ấy đặt hai tay thận trọng phía trên. Cảm tri chân thực toàn mở. Dòng tinh thần kinh khủng theo đầu ngón tràn vào não! Cô ấy tìm thấy logic vận hành tầng đáy, cơ chế tự đóng dựa trên "vòng sợ hãi". Cô ấy khóa chặt sợi bạc mang hơi tinh quái thanh khiết đặc trưng Tây Nhĩ Phàm trong mã ảo ảnh hỗn tạp. "Hắn cộng hưởng vật lý tiềm thức với viên tinh thể nguy hiểm vỡ vụn này…… Tôi cần cắt điểm cộng hưởng, trích xuất 'chìa khóa an toàn'……" Viên tinh thể Trầm Luân kêu răng rắc. Bề mặt nứt, chất lỏng tím bạo liệt hóa hơi. Ở hạt nhân, phù văn nhỏ bằng năng lượng ảo thuật tím bạc thuần khiết rơi lên lòng bàn tay cô ấy. Cô ấy thành công. Cô ấy có "thẻ phòng" an toàn bước vào mê cung tiềm thức Tây Nhĩ Phàm. "Phòng đã lấy, logic tôi cũng rõ. Hắn đang dùng nỗi sợ của mình hành hạ mình."
+"Đi với tôi xuống xem mọi người. Quán bar cần vận hành bình thường, và…… tôi phải xác nhận tình hình Tây Nhĩ Phàm."
+
+Xuống cầu thang, không khí sảnh tầng một thơm hương thực vật nhẹ. Lili thấy cô ấy xuống mừng chào; Cách Lôi Cách đứng cửa như thần sát. Cô ấy vỗ cơ tay sắt của hắn:
+
+"Đêm qua vất vả. Cách Lôi Cách và tôi đều thấy anh dọn 'chuột' bên ngoài rất sạch. Có anh canh sảnh, tôi ngủ rất yên."
+
+Cô ấy quay sang hành lang tầng hai, phòng Tây Nhĩ Phàm. Càng gần, nhiệt độ càng giảm rõ. Khe cửa không ngừng rỉ bụi ảo ảnh tím. Cô ấy áp tay lên cửa lạnh, nhắm mắt, vận dụng cảm tri chân thực. Thế giới sau cửa như vực tối. Cô ấy không nghe giọng tinh quái của Tây Nhĩ Phàm, chỉ có mảnh cảm xúc hỗn loạn va chạm.
+
+"Hắn tự khóa chặt mình trong ảo cảnh tầng sâu nhất……"
+
+Cô ấy rút tay, đầu ngón đã phủ sương. Cô ấy quay về phòng mình. Thời gian cực kỳ gấp. Cô ấy ngồi bàn làm việc, Karl đặt hộp kim loại
+
+"Hạt nhân Trầm Luân Mê Cung"
+
+Và bản nháp khế ước nóng vàng A Tát Tạ Nhĩ trước mặt cô ấy.
+
+"Tây Nhĩ Phàm không thể chờ thêm. Karl, hộ pháp cho tôi."
+
+Cô ấy mở hộp. Viên
+
+"Hạt nhân Trầm Luân Mê Cung"
+
+Nằm yên trên nệm nhung chống rung. Cô ấy đặt hai tay thận trọng phía trên. Cảm tri chân thực toàn mở. Dòng tinh thần kinh khủng theo đầu ngón tràn vào não! Cô ấy tìm thấy logic vận hành tầng đáy, cơ chế tự đóng dựa trên "vòng sợ hãi". Cô ấy khóa chặt sợi bạc mang hơi tinh quái thanh khiết đặc trưng Tây Nhĩ Phàm trong mã ảo ảnh hỗn tạp.
+
+"Hắn cộng hưởng vật lý tiềm thức với viên tinh thể nguy hiểm vỡ vụn này…… Tôi cần cắt điểm cộng hưởng, trích xuất 'chìa khóa an toàn'……"
+
+Viên tinh thể Trầm Luân kêu răng rắc. Bề mặt nứt, chất lỏng tím bạo liệt hóa hơi. Ở hạt nhân, phù văn nhỏ bằng năng lượng ảo thuật tím bạc thuần khiết rơi lên lòng bàn tay cô ấy. Cô ấy thành công. Cô ấy có "thẻ phòng" an toàn bước vào mê cung tiềm thức Tây Nhĩ Phàm.
+
+"Phòng đã lấy, logic tôi cũng rõ. Hắn đang dùng nỗi sợ của mình hành hạ mình."
 
 Cô ấy đứng dậy.
 
@@ -10656,13 +11898,29 @@ Cô ấy nắm chặt viên phù văn nhấp nháy ánh tím bạc trong tay, qu
 
 Cô ấy nói nhẹ, ánh mắt toát sự kiên quyết không thể nghi ngờ.
 
-"Trước đây vì làm rượu "Bình Minh" nghiên cứu thu thập chất liệu cảm xúc "tiếc nuối", tôi từng đi sâu vào tiềm thức hắn. Hắn với tôi… không phòng bị."
+"Trước đây vì làm rượu "
 
-Đôi mắt lam tím sâu thẳm của Karl co nhẹ. Với tư cách sứ ma độc quyền vừa mới "đánh dấu" cô ấy từ trong ra ngoài cực kỳ triệt để, nghe cô ấy đơn thân đi vào lĩnh vực tinh thần của nam nhân khác, thậm chí còn dùng những "quá khứ bí mật không phòng bị", ma lực bóng tối quanh hắn gần như bản năng bạo động trong chớp mắt.
+Bình Minh
+
+" nghiên cứu thu thập chất liệu cảm xúc "
+
+Tiếc nuối
+
+", tôi từng đi sâu vào tiềm thức hắn. Hắn với tôi… không phòng bị."
+
+Đôi mắt lam tím sâu thẳm của Karl co nhẹ. Với tư cách sứ ma độc quyền vừa mới "đánh dấu" cô ấy từ trong ra ngoài cực kỳ triệt để, nghe cô ấy đơn thân đi vào lĩnh vực tinh thần của nam nhân khác, thậm chí còn dùng những
+
+"Quá khứ bí mật không phòng bị"
+
+, ma lực bóng tối quanh hắn gần như bản năng bạo động trong chớp mắt.
 
 Nhiệt độ quanh đó giảm đột ngột, nhưng gương mặt lạnh lùng của hắn vẫn duy trì sự kiềm chế hoàn hảo.
 
-"…Vì là phương án tối ưu nhằm "đánh thức", tôi xin tuân theo ý chí ngài."
+"…Vì là phương án tối ưu nhằm "
+
+Đánh thức
+
+", tôi xin tuân theo ý chí ngài."
 
 Karl chậm rãi cúi mi, che giấu dục chiếm hữu bệnh hoạn. Hắn đưa ngón tay đeo găng da đen thanh dài ra, cực kỳ mạnh mẽ nắm cổ tay cô ấy, một tia bóng tối thuần đen men theo đầu tĩnh mạch tiêm vào, trên cổ tay trong cô ấy để lại vết ấn xích đen cực nóng.
 
@@ -10704,7 +11962,9 @@ Hắn kêu the thé, cố dùng niềm kiêu hãnh cuối che giấu sự tan v�
 
 Cô ấy không dừng bước, thậm chí không có động tác tránh. Cô ấy cực kỳ bình tĩnh đối mặt những mũi nhọn bước lên sân khấu, để chúng run rẩy dừng lại cách cô ấy cực nhỏ.
 
-"Cậu quên chúng ta vì sao tiến hành thí nghiệm "tiếc nuối" đó chưa?"
+"Cậu quên chúng ta vì sao tiến hành thí nghiệm "
+
+Tiếc nuối" đó chưa?"
 
 Cô ấy cực kỳ dịu dàng nhìn hắn, giọng mang sự trấn an khiến người an tâm.
 
@@ -10734,19 +11994,59 @@ Cô ấy không bị vẻ mất kiểm soát vừa rồi của hắn hù dọa, 
 
 "Bướm nhỏ, cậu thật khiến tôi lo lắng."
 
-Nghe "bướm nhỏ", biệt danh chỉ khi hai người da thịt chạm nhau, linh hồn hòa lẫn cô ấy mới gọi, Tây Nhĩ Phàm thân hình cao lớn run rẩy dữ dội. Hắn ngẩng đầu, đôi mắt tím đầy nước và nhiệt huyết mất rồi lại được. Hắn không đợi đứng dậy, trực tiếp ở tư thế quỳ nửa đẩy mạnh về phía trước, đè cô ấy lên thảm dày. Hai đôi cánh bướm lớn mở ra như kén tím lộng lẫy, bọc kín cô ấy và hắn. "Cậu vào rồi…… cậu không những thấy tôi thảm hại như con rối đáng thương bị treo…… cậu lại còn muốn ôm tôi……" Hắn thở gấp, mũi tham lam cọ vào hõm cổ cô ấy. Hương dạ phong và tử đinh hương lạ kỳ tràn đầy khoang mũi cô ấy. "Tôi nói rồi, tôi là nghệ sĩ của cậu. Tôi có thể đón mọi tiếc nuối của cậu, tương tự, tôi cũng có thể đón cậu lúc này." Câu này như thuốc tình cực mạnh, thắp bùng bản năng dục vọng cần dùng cách nguyên thủy nhất xác nhận mình còn sống của ảo thuật sư vừa đi qua bờ sinh tử. ""
+Nghe "bướm nhỏ", biệt danh chỉ khi hai người da thịt chạm nhau, linh hồn hòa lẫn cô ấy mới gọi, Tây Nhĩ Phàm thân hình cao lớn run rẩy dữ dội. Hắn ngẩng đầu, đôi mắt tím đầy nước và nhiệt huyết mất rồi lại được. Hắn không đợi đứng dậy, trực tiếp ở tư thế quỳ nửa đẩy mạnh về phía trước, đè cô ấy lên thảm dày. Hai đôi cánh bướm lớn mở ra như kén tím lộng lẫy, bọc kín cô ấy và hắn.
 
-Vậy cậu…… tự tay xác nhận xem con rối của cậu có hỏng không……" Tây Nhĩ Phàm khàn thấp, cúi đầu hung dữ cướp môi cô ấy. Đây không phải nụ hôn thử thách tinh quái mà là nụ hôn tuyệt vọng đầy dục nuốt chửng. Hắn man rợ cạy răng cô ấy, lưỡi nóng trường khu vào, tham lam quét sạch từng góc khoang miệng. Trong giao đấu môi răng, cô ấy cảm nhận rõ thứ dưới thắt lưng hắn đang biến đổi kinh người, cây hung khí vốn ẩn dưới vải gần như tức thì cương cứng. "Chỉ có ở đây tôi mới không cảm thấy cái lạnh xương……” Hắn vừa nói vừa vội vã xé vạt áo cô ấy, bàn tay lạnh mịn chui vào nắm bầu mềm trước ngực, mạnh mẽ bóp nắn. Ngón tay hắn men bụng phẳng xuống dưới, chính chuẩn bị mạnh mẽ thăm vườn bí mật giữa gốc đùi, dùng giao hợp thịt da thật để lấp đầy trống rỗng tinh thần……
+"Cậu vào rồi…… cậu không những thấy tôi thảm hại như con rối đáng thương bị treo…… cậu lại còn muốn ôm tôi……"
 
-Đúng lúc đó, Bùng! Bùng! Bùng! Cửa phòng bỗng bị lực bóng tối thực chất đập ba cái. "Quản lý nhân."
+Hắn thở gấp, mũi tham lam cọ vào hõm cổ cô ấy. Hương dạ phong và tử đinh hương lạ kỳ tràn đầy khoang mũi cô ấy.
+
+"Tôi nói rồi, tôi là nghệ sĩ của cậu. Tôi có thể đón mọi tiếc nuối của cậu, tương tự, tôi cũng có thể đón cậu lúc này."
+
+Câu này như thuốc tình cực mạnh, thắp bùng bản năng dục vọng cần dùng cách nguyên thủy nhất xác nhận mình còn sống của ảo thuật sư vừa đi qua bờ sinh tử. ""
+
+Vậy cậu…… tự tay xác nhận xem con rối của cậu có hỏng không……
+
+" Tây Nhĩ Phàm khàn thấp, cúi đầu hung dữ cướp môi cô ấy. Đây không phải nụ hôn thử thách tinh quái mà là nụ hôn tuyệt vọng đầy dục nuốt chửng. Hắn man rợ cạy răng cô ấy, lưỡi nóng trường khu vào, tham lam quét sạch từng góc khoang miệng. Trong giao đấu môi răng, cô ấy cảm nhận rõ thứ dưới thắt lưng hắn đang biến đổi kinh người, cây hung khí vốn ẩn dưới vải gần như tức thì cương cứng. "
+
+Chỉ có ở đây tôi mới không cảm thấy cái lạnh xương……” Hắn vừa nói vừa vội vã xé vạt áo cô ấy, bàn tay lạnh mịn chui vào nắm bầu mềm trước ngực, mạnh mẽ bóp nắn. Ngón tay hắn men bụng phẳng xuống dưới, chính chuẩn bị mạnh mẽ thăm vườn bí mật giữa gốc đùi, dùng giao hợp thịt da thật để lấp đầy trống rỗng tinh thần……
+
+Đúng lúc đó, Bùng! Bùng! Bùng! Cửa phòng bỗng bị lực bóng tối thực chất đập ba cái.
+
+"Quản lý nhân."
 
 Ngoài cửa vọng giọng Karl cực lạnh không chút ngữ điệu, thậm chí toát ý giết chóc.
 
 "Mười phút rồi. Dấu hiệu sinh mệnh ngài cực kỳ hoạt bát, tim đập quá nhanh. Nếu trong mười giây tới ngài không phản hồi, hoặc không mặc quần áo chỉnh tề bước ra, tôi sẽ mặc định ngài đang bị 'tấn công'. Tôi sẽ rất vui…… xé cánh cửa này cùng một số vật sống bên trong thành bột mịn."
 
-Tây Nhĩ Phàm cứng người. Hắn thất vọng chửi, đôi mắt tím nước và dục tình giận nhìn cửa. Nhưng hắn không buông cô ấy, mà ác ý dùng cây dương vật vẫn cứng dưới thân đè nghiền hai cái vào gốc đùi cô ấy. Cô ấy giơ tay vỗ nhẹ má Tây Nhĩ Phàm đỏ bệnh vì dục tình. Rồi tận khoảnh khắc hắn bị tiếng gõ cửa chấn, cô ấy hai tay chống ngực hắn bò dậy. "Đừng nghịch, Tây Nhĩ Phàm." Cô ấy chỉnh vạt áo, hạ nhịp thở. "Tôi còn việc chính, khế ước con bướm hoa kia còn đợi tôi trên bàn để 'giết'." Cô ấy cúi xuống, ngón tay thân mật bóp cằm hắn, trong ánh nhìn sửng sốt và khao khát vô tận, cúi hôn lên môi đang thở. "Ngoan. Chúng ta tối nay gặp, nhé?" Tây Nhĩ Phàm gầm trong cửa họng. "Được…… nghệ sĩ của tôi. Tôi nghe lời cậu…… Nhưng cậu đã hứa…… tối nay. Nếu cậu để tôi đợi quá lâu, tôi sẽ tự lên phòng cậu khiến cậu không xuống giường được." Cô ấy mở cửa. Hành lang lạnh thấu xương đập vào mặt. Karl thân hình cao lớn chặn cửa.
+Tây Nhĩ Phàm cứng người. Hắn thất vọng chửi, đôi mắt tím nước và dục tình giận nhìn cửa. Nhưng hắn không buông cô ấy, mà ác ý dùng cây dương vật vẫn cứng dưới thân đè nghiền hai cái vào gốc đùi cô ấy. Cô ấy giơ tay vỗ nhẹ má Tây Nhĩ Phàm đỏ bệnh vì dục tình. Rồi tận khoảnh khắc hắn bị tiếng gõ cửa chấn, cô ấy hai tay chống ngực hắn bò dậy.
 
-Hắn bắt vạt áo rối và lớp nước thuộc người đàn ông khác trên môi cô ấy. Ma lực bóng tối hành lang phát tiếng rít nguy hiểm. Karl chậm rãi đưa tay đeo găng da đen, đốt xương vì dùng lực quá mức hơi trắng. Hắn không vượt quyền chạm cô ấy, mà vô tình vượt qua vai cô ấy, ánh mắt lạnh đầy sát ý đóng chặt lên ảo thuật sư trong phòng vẫn quỳ nửa dưới đất, áo xốc xếch. "Mùi ngài cực kỳ lẫn lộn, quản lý nhân." Karl thu ánh mắt, nhẫn nhịn cúi mắt. "Nhưng vì ngài trả về đúng giờ, cơ thể không tổn thương thực chất nghiêm trọng, tôi sẽ không truy cứu hành vi vượt quyền của một số nhân viên thấp kém." Hắn hơi cúi người, hoàn mỹ chuyển sang chế độ trợ lý đắc lực. "Bản nháp khế ước của Tổng biên tập A Tát Tạ Nhĩ đã để chỉn chu trên bàn làm việc ngài."
+"Đừng nghịch, Tây Nhĩ Phàm."
+
+Cô ấy chỉnh vạt áo, hạ nhịp thở.
+
+"Tôi còn việc chính, khế ước con bướm hoa kia còn đợi tôi trên bàn để 'giết'."
+
+Cô ấy cúi xuống, ngón tay thân mật bóp cằm hắn, trong ánh nhìn sửng sốt và khao khát vô tận, cúi hôn lên môi đang thở.
+
+"Ngoan. Chúng ta tối nay gặp, nhé?"
+
+Tây Nhĩ Phàm gầm trong cửa họng.
+
+"Được…… nghệ sĩ của tôi. Tôi nghe lời cậu…… Nhưng cậu đã hứa…… tối nay. Nếu cậu để tôi đợi quá lâu, tôi sẽ tự lên phòng cậu khiến cậu không xuống giường được."
+
+Cô ấy mở cửa. Hành lang lạnh thấu xương đập vào mặt. Karl thân hình cao lớn chặn cửa.
+
+Hắn bắt vạt áo rối và lớp nước thuộc người đàn ông khác trên môi cô ấy. Ma lực bóng tối hành lang phát tiếng rít nguy hiểm. Karl chậm rãi đưa tay đeo găng da đen, đốt xương vì dùng lực quá mức hơi trắng. Hắn không vượt quyền chạm cô ấy, mà vô tình vượt qua vai cô ấy, ánh mắt lạnh đầy sát ý đóng chặt lên ảo thuật sư trong phòng vẫn quỳ nửa dưới đất, áo xốc xếch.
+
+"Mùi ngài cực kỳ lẫn lộn, quản lý nhân."
+
+Karl thu ánh mắt, nhẫn nhịn cúi mắt.
+
+"Nhưng vì ngài trả về đúng giờ, cơ thể không tổn thương thực chất nghiêm trọng, tôi sẽ không truy cứu hành vi vượt quyền của một số nhân viên thấp kém."
+
+Hắn hơi cúi người, hoàn mỹ chuyển sang chế độ trợ lý đắc lực.
+
+"Bản nháp khế ước của Tổng biên tập A Tát Tạ Nhĩ đã để chỉn chu trên bàn làm việc ngài."
 
 ---
 
@@ -10762,7 +12062,9 @@ Hắn cầm ly rượu đỏ tươi đắt tiền, đắc ý nhấp một ngụm
 
 "Vi Ô Lai Khả tên ngu kiêu ngạo kia lần này thật sự đá trúng tấm sắt cứng."
 
-Về văn phòng cô ấy, không khí còn lưu hương lạnh nhẹ Karl buổi sáng dọn dẹp cơ thể. Cô ấy ngồi ghế thoải mái. Giữa bàn làm việc, bản nháp khế ước nóng vàng đóng dấu 《Quỷ Ảnh Tuần San》 đang phát ánh ma pháp yếu, chờ cô ấy "giết" lạnh lùng. Cô ấy dùng đầu ngón mở phong bì. "Con cáo giả dối này."
+Về văn phòng cô ấy, không khí còn lưu hương lạnh nhẹ Karl buổi sáng dọn dẹp cơ thể. Cô ấy ngồi ghế thoải mái. Giữa bàn làm việc, bản nháp khế ước nóng vàng đóng dấu 《Quỷ Ảnh Tuần San》 đang phát ánh ma pháp yếu, chờ cô ấy "giết" lạnh lùng. Cô ấy dùng đầu ngón mở phong bì.
+
+"Con cáo giả dối này."
 
 Sau khi xem xong, cô ấy trải bản nháp ra bàn, đầu ngón chỉ vài điều khoản ẩn.
 
@@ -10770,11 +12072,41 @@ Sau khi xem xong, cô ấy trải bản nháp ra bàn, đầu ngón chỉ vài �
 
 Cô ấy cười lạnh.
 
-"Trong hệ ngôn ngữ ác ma Cổ Cổ Lạp Hách, từ 'chia sẻ' trong cấu trúc ngữ pháp đặc định này nghĩa là nếu hắn đê tiện bán lại thông tin của chúng ta ác ý hoặc thậm chí vu khống tống tiền, chúng ta không có quyền truy cứu cương quyết. Chưa kể mực vô hình phía sau ghi 'mua đứt tư liệu độc quyền vô hạn'." Cô ấy thu ngón tay. "Karl, tôi không muốn đẩy chuyện tát mặt Vi Ô Lai Khả lên quá to. Chuột bị dồn cũng cắn, huống chi Vi Ô Lai Khả không phải chuột, hắn là con sói tham lam kiêu ngạo. Nếu chúng ta dùng thế lực 《Quỷ Ảnh Tuần San》 đẩy chiến tranh dư luận toàn diện đưa 【Phi Sắc Quỷ Ảnh】 vào đường cùng, hắn chắc chắn phản kích không kể hậu quả." Cô ấy nghĩ viên kết tinh đã rút hết năng lượng nguy hiểm, khóe miệng hơi cong. "Và…… bỏ qua thủ đoạn đê tiện, viên kết tinh ảo thuật hắn 'tặng' sau khi tháo rời thực sự là thứ hiếm cho luyện huyết mạch và nhận thức quy tắc cao giai. Coi như hắn nộp học phí." Cô ấy cầm bút lông do bóng tối kết thành, gạch bỏ các điều khoản hạt nhân A Tát Tạ Nhĩ muốn kích động hai quán bar "không chết không thôi". Cô ấy bổ sung yêu cầu mới: độc quyền chỉ giới hạn báo đạo khách quan "sự kiện tát", không dẫn chiến chủ quan ác ý; đổi lại 《Quỷ Ảnh Tuần San》 phải miễn phí cung cấp vị trí quảng cáo cao nhất đầu trang cho sản phẩm mới và hoạt động 【Huyết Hồng Thánh Bôi】 suốt một tháng. "Tôi không làm dao thử Vi Ô Lai Khả cho hắn, tôi chỉ cần dẫn lưu thương mại thực chất." Cô ấy nhét bản nháp đã sửa vào phong bì, nhỏ giọt sáp đỏ, dùng ma lực huyết mạch thuần khiết ấn con dấu không từ chối. "Gửi về nói hắn: muốn ăn dưa của tôi thì đây là giá sàn bất động. Hoặc ký, hoặc cút." Ở trụ sở 【Quỷ Ảnh Tuần San】 xa xôi, A Tát Tạ Nhĩ đang thư thái uống rượu bỗng mở đôi mắt dị sắc. Một tia bóng tối lạnh xuất hiện trên bàn làm việc xa hoa, ném xuống phong bì đóng dấu ma lực tươi, rồi vô thanh tiêu tán. "Nhanh thật, ngôi sao mới của tôi……" A Tát Tạ Nhĩ phấn khích mở phong bì. Khi đọc từng dòng bản nháp bị bút đỏ sửa không thương tiếc, nụ cười bất cần dần đông cứng. Rồi hắn bất giác ôm trán, bùng nổ trận cười thấp vô cùng phóng túng và vui vẻ. "Ha ha ha ha ha…… cực kỳ thông minh! Sư tử mẹ cực kỳ lạnh lùng!"
+"Trong hệ ngôn ngữ ác ma Cổ Cổ Lạp Hách, từ 'chia sẻ' trong cấu trúc ngữ pháp đặc định này nghĩa là nếu hắn đê tiện bán lại thông tin của chúng ta ác ý hoặc thậm chí vu khống tống tiền, chúng ta không có quyền truy cứu cương quyết. Chưa kể mực vô hình phía sau ghi 'mua đứt tư liệu độc quyền vô hạn'."
+
+Cô ấy thu ngón tay.
+
+"Karl, tôi không muốn đẩy chuyện tát mặt Vi Ô Lai Khả lên quá to. Chuột bị dồn cũng cắn, huống chi Vi Ô Lai Khả không phải chuột, hắn là con sói tham lam kiêu ngạo. Nếu chúng ta dùng thế lực 《Quỷ Ảnh Tuần San》 đẩy chiến tranh dư luận toàn diện đưa 【Phi Sắc Quỷ Ảnh】 vào đường cùng, hắn chắc chắn phản kích không kể hậu quả."
+
+Cô ấy nghĩ viên kết tinh đã rút hết năng lượng nguy hiểm, khóe miệng hơi cong.
+
+"Và…… bỏ qua thủ đoạn đê tiện, viên kết tinh ảo thuật hắn 'tặng' sau khi tháo rời thực sự là thứ hiếm cho luyện huyết mạch và nhận thức quy tắc cao giai. Coi như hắn nộp học phí."
+
+Cô ấy cầm bút lông do bóng tối kết thành, gạch bỏ các điều khoản hạt nhân A Tát Tạ Nhĩ muốn kích động hai quán bar "không chết không thôi". Cô ấy bổ sung yêu cầu mới: độc quyền chỉ giới hạn báo đạo khách quan "sự kiện tát", không dẫn chiến chủ quan ác ý; đổi lại 《Quỷ Ảnh Tuần San》 phải miễn phí cung cấp vị trí quảng cáo cao nhất đầu trang cho sản phẩm mới và hoạt động 【Huyết Hồng Thánh Bôi】 suốt một tháng.
+
+"Tôi không làm dao thử Vi Ô Lai Khả cho hắn, tôi chỉ cần dẫn lưu thương mại thực chất."
+
+Cô ấy nhét bản nháp đã sửa vào phong bì, nhỏ giọt sáp đỏ, dùng ma lực huyết mạch thuần khiết ấn con dấu không từ chối.
+
+"Gửi về nói hắn: muốn ăn dưa của tôi thì đây là giá sàn bất động. Hoặc ký, hoặc cút."
+
+Ở trụ sở 【Quỷ Ảnh Tuần San】 xa xôi, A Tát Tạ Nhĩ đang thư thái uống rượu bỗng mở đôi mắt dị sắc. Một tia bóng tối lạnh xuất hiện trên bàn làm việc xa hoa, ném xuống phong bì đóng dấu ma lực tươi, rồi vô thanh tiêu tán.
+
+"Nhanh thật, ngôi sao mới của tôi……"
+
+A Tát Tạ Nhĩ phấn khích mở phong bì. Khi đọc từng dòng bản nháp bị bút đỏ sửa không thương tiếc, nụ cười bất cần dần đông cứng. Rồi hắn bất giác ôm trán, bùng nổ trận cười thấp vô cùng phóng túng và vui vẻ.
+
+"Ha ha ha ha ha…… cực kỳ thông minh! Sư tử mẹ cực kỳ lạnh lùng!"
 
 Hắn lắc tờ khế ước.
 
-"Chiến xa tôi bày kỹ, cô không thèm nhìn. Cô rõ ràng biết giới hạn của Vi Ô Lai Khả, giữa bão dư luận đạp phanh khẩn cấp! Không phát động chiến tranh thể diện, chỉ vắt kiệt lưu lượng thương mại tuyệt đối……" A Tát Tạ Nhĩ nhìn chằm chằm chữ ký ma ấn mang ý cảnh báo mạnh của cô ấy cuối khế ước. "Tốt, rất tốt. Quái vật biết khống chế dục báo thù, đặt lợi ích tuyệt đối lên hàng đầu mới xứng chơi ván cờ cao cấp lâu dài với tôi trên bàn địa ngục." Hắn thoải mái cầm bút vàng, ký đại tên lên khế ước hoàn toàn do cô ấy chỉ đạo điều khoản bá chủ.
+"Chiến xa tôi bày kỹ, cô không thèm nhìn. Cô rõ ràng biết giới hạn của Vi Ô Lai Khả, giữa bão dư luận đạp phanh khẩn cấp! Không phát động chiến tranh thể diện, chỉ vắt kiệt lưu lượng thương mại tuyệt đối……"
+
+A Tát Tạ Nhĩ nhìn chằm chằm chữ ký ma ấn mang ý cảnh báo mạnh của cô ấy cuối khế ước.
+
+"Tốt, rất tốt. Quái vật biết khống chế dục báo thù, đặt lợi ích tuyệt đối lên hàng đầu mới xứng chơi ván cờ cao cấp lâu dài với tôi trên bàn địa ngục."
+
+Hắn thoải mái cầm bút vàng, ký đại tên lên khế ước hoàn toàn do cô ấy chỉ đạo điều khoản bá chủ.
 
 ---
 
@@ -10792,25 +12124,85 @@ Cô ấy hơi dừng, để hương hoa tử đinh hương cực chân thực l�
 
 "…Đợi kinh doanh kết thúc hoàn toàn, lên lầu tìm tôi."
 
-Đêm sâu. Trong ảo cảnh tư nhân xa hoa của cô ấy, khái niệm thời gian bị làm mờ. Khi cô ấy cảm thấy mệt mỏi tinh thần được cuốn sạch, chủ động cắt nguồn ma lực cho viên tinh thể, hoa tử đinh hương quanh đó như thủy triều rút. Cô ấy mở mắt, phát hiện bầu trời địa ngục ngoài cửa sổ đã thành màu mực đen sâu. Bên ngoài, tiếng ồn ào sảnh tầng một đã giảm rõ, thay vào là tiếng nhân viên quét dọn và đổ rác. "Cạch." Khóa cửa kêu nhẹ, không qua thủ tục gõ cửa lịch sự. Cửa từ từ mở. Ánh hành lang chiếu bóng cao dài mang đôi cánh bướm khổng lồ lên thảm. Tây Nhĩ Phàm thậm chí không mặc đồng phục nhân viên, chỉ khoác áo sơ mi lỏng, tóc xám hơi rối rơi vai. Hắn khóa cửa, đôi mắt tím sáng trong bóng tối khóa chặt cô ấy dựa ghế. "Kinh doanh hoàn hảo kết thúc rồi, quản lý nhân của tôi." Giọng khàn mang tia lửa, hắn từng bước tiến tới. ""
+Đêm sâu. Trong ảo cảnh tư nhân xa hoa của cô ấy, khái niệm thời gian bị làm mờ. Khi cô ấy cảm thấy mệt mỏi tinh thần được cuốn sạch, chủ động cắt nguồn ma lực cho viên tinh thể, hoa tử đinh hương quanh đó như thủy triều rút. Cô ấy mở mắt, phát hiện bầu trời địa ngục ngoài cửa sổ đã thành màu mực đen sâu. Bên ngoài, tiếng ồn ào sảnh tầng một đã giảm rõ, thay vào là tiếng nhân viên quét dọn và đổ rác. "Cạch." Khóa cửa kêu nhẹ, không qua thủ tục gõ cửa lịch sự. Cửa từ từ mở. Ánh hành lang chiếu bóng cao dài mang đôi cánh bướm khổng lồ lên thảm. Tây Nhĩ Phàm thậm chí không mặc đồng phục nhân viên, chỉ khoác áo sơ mi lỏng, tóc xám hơi rối rơi vai. Hắn khóa cửa, đôi mắt tím sáng trong bóng tối khóa chặt cô ấy dựa ghế.
 
-Doanh thu đêm nay kinh khủng phá kỷ lục…… Giờ là lúc tôi nhận phần thưởng xứng đáng." Cô ấy đưa viên tinh thể phát sáng lên môi, lười biếng đầy khiêu khích nhìn ảo thuật sư đỏ mắt vì "thở dài" của cô ấy. "Bướm nhỏ của tôi có bị ức chế không?" Cô ấy cười khẽ, đưa viên tinh thể cho hắn. "Đừng vội, chúng ta dùng thứ này phối ảo cảnh thú vị thì vui hơn chứ?" Tây Nhĩ Phàm run rẩy. Hắn vội vàng bước tới, quỳ một gối trước ghế cô ấy, bàn tay mát ấp chặt tay cô ấy cầm viên tinh thể. Ma lực tử đinh hương thuần khiết khổng lồ chảy vào viên tinh thể. Tường thực, bàn, trọng lực hiện thực đều tan chảy. Hai người rơi vào không gian ảo cảnh xa hoa đầy sa đọa, giường nhung đỏ tươi vô tận, vô số gương nước trơn treo quanh. Không khí ngập hương kích tình. Trong ảo cảnh, giác quan được phóng đại kinh khủng hàng chục lần. "Giờ thân thể này hoàn toàn thuộc về tôi." Tây Nhĩ Phàm đè cô ấy vào nhung."
+"Kinh doanh hoàn hảo kết thúc rồi, quản lý nhân của tôi."
 
-Ảo cảnh vô số ngón tay ảo mát mẻ chui vào áo choàng tắm, vuốt eo, lưng. Thân thật hắn vội vã xé quần áo cô ấy. Hắn cúi đầu giữa hai chân cô ấy. Lưỡi nóng linh hoạt thô bạo tách môi hoa non, chính xác liếm mút điên cuồng âm vật. "Á…… Há à…… Tây Nhĩ Phàm……" Cực khoái phóng đại hàng chục lần khiến cô ấy vòng lưng. Hắn dùng lưỡi và hai ngón tay đâm vào cửa hang chưa hoàn toàn ướt, rút đẩy nhanh. Khi cô ấy run dữ vì tiền hòa, đạt đỉnh lần đầu, Tây Nhĩ Phàm cởi quần. Hắn bế cô ấy cưỡi trên đùi. Cây hung khí đã sưng kinh khủng nóng áp cửa hang. "Tự ngồi xuống…… cảm nhận rõ tôi……" Cô ấy cắn môi, khó nhọc hạ xuống. Khi thân cột thô to chậm mà bá đạo mở từng lớp thịt non, đâm sâu vào chỗ sâu nhất cơ thể chặt khít, cô ấy phát tiếng rên ngọt. "Chặt quá…… bên trong ngài siết tôi rất thoải mái……" Tây Nhĩ Phàm ngửa đầu thở gấp. Hắn bạo liệt ưỡn eo, trên giường mềm bắt đầu đục từ dưới lên cực sâu cực nặng.
+Giọng khàn mang tia lửa, hắn từng bước tiến tới. ""
 
-Khi cô ấy run dữ vì đục mạnh, đạt đỉnh lần hai, Tây Nhĩ Phàm búng tay. Giường nhung tan. Cô ấy thất trọng kêu. Giây tiếp theo hắn mạnh mẽ ấn cô ấy lên mép bàn trang điểm ảo ảnh trơn. Cô ấy nửa thân trên gục bàn, mông bị nâng cao. Phía trước là gương lớn. "Nhìn rõ, nghệ sĩ của tôi. Xem cậu nuốt tôi tham lam thế nào." Tây Nhĩ Phàm từ phía sau hung hãn một cây tới đáy, cây hung khí khổng lồ tàn nhẫn đục mở cửa tử cung sâu nhất. Cô ấy trong gương thấy thân mình đỏ bừng đang lắc dâm đãng, cây hung khí dính dịch nhầy của cô ấy đang rút đẩy nhanh giữa gốc đùi. Kích thích kép thị giác và xúc giác khiến cô ấy mất kiểm soát la hét. Khi thịt hang vì kích thích quá độ bắt đầu co thắt liên tục, lần thứ ba tuyệt vọng phun dòng dịch trong lớn, Tây Nhĩ Phàm cuồng nhiệt bế cô ấy từ mép bàn. Ảo cảnh đổi, hai người lơ lửng trong tinh hải tử đinh hương mênh mông. Cô ấy hai chân siết eo hắn.
+Doanh thu đêm nay kinh khủng phá kỷ lục…… Giờ là lúc tôi nhận phần thưởng xứng đáng.
 
-Mất mọi điểm tựa, mỗi lần đâm nặng đều cần thịt mềm non nhất bên trong thụ động chịu lực nâng kinh khủng. "Cho tôi…… toàn bộ bắn cho tôi……" Cô ấy trong cực khoái vứt bỏ mọi lý trí, khóc xin, móng tay để lại vết cào rõ trên vai hắn. Lời khao khát trực tiếp này thành sợi rơm cuối đè gãy lý trí cao giai ác ma. "Như ngài…… mong muốn!" Tây Nhĩ Phàm gầm thét thú dữ. Hắn hung hãn đâm mạnh, đem đầu quy to khóa chặt sâu cửa tử cung. Một lượng lớn tinh dịch đặc nóng như dung nham núi lửa phun từ cây hung khí run! Lượng phóng tinh kinh khủng lấp đầy tử cung và ống đẻ hẹp, dịch trắng đặc dư tràn từ chỗ kết hợp, nhỏ giọt kéo sợi bạc dâm đãng. Khi cuộc phóng tinh dài kinh khủng kết thúc, mất nguồn ma lực khổng lồ, ảo cảnh tử đinh hương quanh đó vỡ từng mảnh. Hai người rơi về giường mềm phòng ngủ hiện thực. Tây Nhĩ Phàm kiệt sức đè lên cô ấy. Hai đôi cánh bướm tím mềm rũ thu lại, quyến luyến vây cô ấy.
+" Cô ấy đưa viên tinh thể phát sáng lên môi, lười biếng đầy khiêu khích nhìn ảo thuật sư đỏ mắt vì "
+
+Thở dài" của cô ấy. "Bướm nhỏ của tôi có bị ức chế không?
+
+" Cô ấy cười khẽ, đưa viên tinh thể cho hắn. "
+
+Đừng vội, chúng ta dùng thứ này phối ảo cảnh thú vị thì vui hơn chứ?
+
+" Tây Nhĩ Phàm run rẩy. Hắn vội vàng bước tới, quỳ một gối trước ghế cô ấy, bàn tay mát ấp chặt tay cô ấy cầm viên tinh thể. Ma lực tử đinh hương thuần khiết khổng lồ chảy vào viên tinh thể. Tường thực, bàn, trọng lực hiện thực đều tan chảy. Hai người rơi vào không gian ảo cảnh xa hoa đầy sa đọa, giường nhung đỏ tươi vô tận, vô số gương nước trơn treo quanh. Không khí ngập hương kích tình. Trong ảo cảnh, giác quan được phóng đại kinh khủng hàng chục lần. "
+
+Giờ thân thể này hoàn toàn thuộc về tôi.
+
+" Tây Nhĩ Phàm đè cô ấy vào nhung."
+
+Ảo cảnh vô số ngón tay ảo mát mẻ chui vào áo choàng tắm, vuốt eo, lưng. Thân thật hắn vội vã xé quần áo cô ấy. Hắn cúi đầu giữa hai chân cô ấy. Lưỡi nóng linh hoạt thô bạo tách môi hoa non, chính xác liếm mút điên cuồng âm vật.
+
+"Á…… Há à…… Tây Nhĩ Phàm……"
+
+Cực khoái phóng đại hàng chục lần khiến cô ấy vòng lưng. Hắn dùng lưỡi và hai ngón tay đâm vào cửa hang chưa hoàn toàn ướt, rút đẩy nhanh. Khi cô ấy run dữ vì tiền hòa, đạt đỉnh lần đầu, Tây Nhĩ Phàm cởi quần. Hắn bế cô ấy cưỡi trên đùi. Cây hung khí đã sưng kinh khủng nóng áp cửa hang.
+
+"Tự ngồi xuống…… cảm nhận rõ tôi……"
+
+Cô ấy cắn môi, khó nhọc hạ xuống. Khi thân cột thô to chậm mà bá đạo mở từng lớp thịt non, đâm sâu vào chỗ sâu nhất cơ thể chặt khít, cô ấy phát tiếng rên ngọt.
+
+"Chặt quá…… bên trong ngài siết tôi rất thoải mái……"
+
+Tây Nhĩ Phàm ngửa đầu thở gấp. Hắn bạo liệt ưỡn eo, trên giường mềm bắt đầu đục từ dưới lên cực sâu cực nặng.
+
+Khi cô ấy run dữ vì đục mạnh, đạt đỉnh lần hai, Tây Nhĩ Phàm búng tay. Giường nhung tan. Cô ấy thất trọng kêu. Giây tiếp theo hắn mạnh mẽ ấn cô ấy lên mép bàn trang điểm ảo ảnh trơn. Cô ấy nửa thân trên gục bàn, mông bị nâng cao. Phía trước là gương lớn.
+
+"Nhìn rõ, nghệ sĩ của tôi. Xem cậu nuốt tôi tham lam thế nào."
+
+Tây Nhĩ Phàm từ phía sau hung hãn một cây tới đáy, cây hung khí khổng lồ tàn nhẫn đục mở cửa tử cung sâu nhất. Cô ấy trong gương thấy thân mình đỏ bừng đang lắc dâm đãng, cây hung khí dính dịch nhầy của cô ấy đang rút đẩy nhanh giữa gốc đùi. Kích thích kép thị giác và xúc giác khiến cô ấy mất kiểm soát la hét. Khi thịt hang vì kích thích quá độ bắt đầu co thắt liên tục, lần thứ ba tuyệt vọng phun dòng dịch trong lớn, Tây Nhĩ Phàm cuồng nhiệt bế cô ấy từ mép bàn. Ảo cảnh đổi, hai người lơ lửng trong tinh hải tử đinh hương mênh mông. Cô ấy hai chân siết eo hắn.
+
+Mất mọi điểm tựa, mỗi lần đâm nặng đều cần thịt mềm non nhất bên trong thụ động chịu lực nâng kinh khủng.
+
+"Cho tôi…… toàn bộ bắn cho tôi……"
+
+Cô ấy trong cực khoái vứt bỏ mọi lý trí, khóc xin, móng tay để lại vết cào rõ trên vai hắn. Lời khao khát trực tiếp này thành sợi rơm cuối đè gãy lý trí cao giai ác ma.
+
+"Như ngài…… mong muốn!"
+
+Tây Nhĩ Phàm gầm thét thú dữ. Hắn hung hãn đâm mạnh, đem đầu quy to khóa chặt sâu cửa tử cung. Một lượng lớn tinh dịch đặc nóng như dung nham núi lửa phun từ cây hung khí run! Lượng phóng tinh kinh khủng lấp đầy tử cung và ống đẻ hẹp, dịch trắng đặc dư tràn từ chỗ kết hợp, nhỏ giọt kéo sợi bạc dâm đãng. Khi cuộc phóng tinh dài kinh khủng kết thúc, mất nguồn ma lực khổng lồ, ảo cảnh tử đinh hương quanh đó vỡ từng mảnh. Hai người rơi về giường mềm phòng ngủ hiện thực. Tây Nhĩ Phàm kiệt sức đè lên cô ấy. Hai đôi cánh bướm tím mềm rũ thu lại, quyến luyến vây cô ấy.
 
 Hắn nhẹ nhàng trở xuống giường, không dùng ma pháp, tự đi phòng tắm mang chậu nước ấm và khăn sạch. Ảo thuật sư kiêu ngạo từng vỡ vụn này quỳ một gối bên giường, đặt khăn ấm dịu nhẹ lên gốc đùi đầy dịch trắng và vết đỏ, tỉ mỉ nhẹ nhàng lau từng vết bẩn trên người cô ấy.
 
-Một cánh cửa bên ngoài hành lang. Không khí tĩnh như nước chết. Karl đứng thẳng trong bóng cửa. Đồng hồ bạc cũ trong tay đã ngừng tích tắc, bị ma lực bóng tối hắn vô ý rò rỉ bóp dừng bánh răng. Hắn cúi mắt, thính giác sứ ma cao giai không tốn sức bắt được tiếng nói thầm trong phòng. Không kháng cự, chỉ sự ấm áp ôm cổ ân ái. Cô ấy thở dài, tay trên ngực Tây Nhĩ Phàm siết nhẹ, nhẹ nhàng nói với cánh cửa đóng: "Karl, vào đi. Anh không cần kiên trì canh đêm cho tôi." Cơ thể Tây Nhĩ Phàm nghe tên đó hơi cứng. Ngoài cửa im lặng hai giây. Cạch, khóa bị ma lực bóng tối ngoan ngoãn mở từ ngoài. Karl bước vào. "Bảo vệ an nguy ngài là nhiệm vụ đầu tiên khế ước của tôi, quản lý nhân. Đặc biệt khi cơ thể ngài tiêu hao quá độ, phòng bị mỏng nhất. Ảo cảnh sau cửa dù lộng lẫy cũng không chặn được sát ý thực chất." Tây Nhĩ Phàm cười nhẹ lười biếng. "Sự kiểm soát của trợ lý hơi nặng."
+Một cánh cửa bên ngoài hành lang. Không khí tĩnh như nước chết. Karl đứng thẳng trong bóng cửa. Đồng hồ bạc cũ trong tay đã ngừng tích tắc, bị ma lực bóng tối hắn vô ý rò rỉ bóp dừng bánh răng. Hắn cúi mắt, thính giác sứ ma cao giai không tốn sức bắt được tiếng nói thầm trong phòng. Không kháng cự, chỉ sự ấm áp ôm cổ ân ái. Cô ấy thở dài, tay trên ngực Tây Nhĩ Phàm siết nhẹ, nhẹ nhàng nói với cánh cửa đóng:
+
+"Karl, vào đi. Anh không cần kiên trì canh đêm cho tôi."
+
+Cơ thể Tây Nhĩ Phàm nghe tên đó hơi cứng. Ngoài cửa im lặng hai giây. Cạch, khóa bị ma lực bóng tối ngoan ngoãn mở từ ngoài. Karl bước vào.
+
+"Bảo vệ an nguy ngài là nhiệm vụ đầu tiên khế ước của tôi, quản lý nhân. Đặc biệt khi cơ thể ngài tiêu hao quá độ, phòng bị mỏng nhất. Ảo cảnh sau cửa dù lộng lẫy cũng không chặn được sát ý thực chất."
+
+Tây Nhĩ Phàm cười nhẹ lười biếng.
+
+"Sự kiểm soát của trợ lý hơi nặng."
 
 Quản lý nhân của chúng ta rõ ràng được chăm sóc rất tốt, cả thân thể lẫn linh hồn độc nhất vô nhị.""
 
 Nhiệt độ không khí giảm mạnh. Karl giọng lạnh.
 
-"Công việc của anh là tạo trò tiêu khiển ở sảnh trước, Tây Nhĩ Phàm. Anh đêm qua suýt bị viên tinh thể thấp kém nuốt mất lý trí, tôi không nghĩ nhân viên có thể mất kiểm soát cảm xúc bất cứ lúc nào có tư cách chiếm không gian nghỉ ngơi của cô lúc này." Tây Nhĩ Phàm nụ cười tắt một nửa. Đôi cánh tím bỗng mở, bụi ảo ảnh còn sót bắt đầu nhảy, sắp kết thành gai tấn công. Không khí trong phòng căng đến cực điểm. Hai thuộc hạ cao giai vì tôn trọng cô ấy kiềm chế không động thủ ngay, nhưng bản năng xâm phạm lãnh địa đã hóa uy áp ma lực thực chất va đập giữa không trung. "Thôi thôi thôi, đừng cãi nữa, đầu tôi đau rồi." Cô ấy đau đớn xoa thái dương, giọng mệt mỏi bực bội. Hai luồng ma lực cao giai trong phòng ngủ chật đấu thầm khiến não cô ấy như bị kim thép châm. Nghe lời than đau của cô ấy, tĩnh lặng chết chóc trong phòng lập tức tan vỡ. Karl dập tắt hồng quang phù văn, thu ma lực bóng tối trong một giây. Tây Nhĩ Phàm cũng thu bụi ảo ảnh tấn công, đầu lâu thấp xuống. "Đều ra ngoài đi, giờ tôi chỉ cần ngủ. Karl, an ninh tầng một canh chặt. Tây Nhĩ Phàm, cậu cũng về phòng mình nghỉ."
+"Công việc của anh là tạo trò tiêu khiển ở sảnh trước, Tây Nhĩ Phàm. Anh đêm qua suýt bị viên tinh thể thấp kém nuốt mất lý trí, tôi không nghĩ nhân viên có thể mất kiểm soát cảm xúc bất cứ lúc nào có tư cách chiếm không gian nghỉ ngơi của cô lúc này."
+
+Tây Nhĩ Phàm nụ cười tắt một nửa. Đôi cánh tím bỗng mở, bụi ảo ảnh còn sót bắt đầu nhảy, sắp kết thành gai tấn công. Không khí trong phòng căng đến cực điểm. Hai thuộc hạ cao giai vì tôn trọng cô ấy kiềm chế không động thủ ngay, nhưng bản năng xâm phạm lãnh địa đã hóa uy áp ma lực thực chất va đập giữa không trung.
+
+"Thôi thôi thôi, đừng cãi nữa, đầu tôi đau rồi."
+
+Cô ấy đau đớn xoa thái dương, giọng mệt mỏi bực bội. Hai luồng ma lực cao giai trong phòng ngủ chật đấu thầm khiến não cô ấy như bị kim thép châm. Nghe lời than đau của cô ấy, tĩnh lặng chết chóc trong phòng lập tức tan vỡ. Karl dập tắt hồng quang phù văn, thu ma lực bóng tối trong một giây. Tây Nhĩ Phàm cũng thu bụi ảo ảnh tấn công, đầu lâu thấp xuống.
+
+"Đều ra ngoài đi, giờ tôi chỉ cần ngủ. Karl, an ninh tầng một canh chặt. Tây Nhĩ Phàm, cậu cũng về phòng mình nghỉ."
 
 ---
 
@@ -11068,7 +12460,11 @@ Hắn hơi nghiêng người, làn hương kích dục nồng đặc như thực
 
 "Một khi vi phạm, pháp tắc vực sâu sẽ lập tức phản thích lõi ma lực ta. Một cái vòng cổ đầy thành ý như vậy, đủ xóa bỏ 'sợ' giả tạo của ngươi chưa?"
 
-Cô ấy nhìn tờ da cừu đen tỏa hơi vực sâu đẩy đến trước mặt, lại ngẩng mắt xem xét gương mặt Vi Ô Lai Khả tuấn mỹ quỷ dị đầy tính xâm lược. Chỉ cần suy nghĩ chút, cô ấy có thể đoán động cơ thật của hắn tám chín phần mười. Lòng tự tôn mạc ma cao giai trong địa ngục nổi tiếng kiêu ngạo, cô ấy trong huyễn cảnh không chỉ cướp trận nhãn của hắn, còn vừa rồi dùng câu "chẳng có sáng tạo, chỉ thoải mái khi làm" hạ thấp trường mê hoặc tự hào thành công cụ tiêu khiển sinh lý thuần túy. Vị chúa tể quen khống chế tất cả này, rõ ràng vương vấn câu "đánh giá sau sự việc" của cô ấy, cần gấp trong hiện thực tìm lại sân chơi đã mất.
+Cô ấy nhìn tờ da cừu đen tỏa hơi vực sâu đẩy đến trước mặt, lại ngẩng mắt xem xét gương mặt Vi Ô Lai Khả tuấn mỹ quỷ dị đầy tính xâm lược. Chỉ cần suy nghĩ chút, cô ấy có thể đoán động cơ thật của hắn tám chín phần mười. Lòng tự tôn mạc ma cao giai trong địa ngục nổi tiếng kiêu ngạo, cô ấy trong huyễn cảnh không chỉ cướp trận nhãn của hắn, còn vừa rồi dùng câu
+
+"Chẳng có sáng tạo, chỉ thoải mái khi làm"
+
+Hạ thấp trường mê hoặc tự hào thành công cụ tiêu khiển sinh lý thuần túy. Vị chúa tể quen khống chế tất cả này, rõ ràng vương vấn câu "đánh giá sau sự việc" của cô ấy, cần gấp trong hiện thực tìm lại sân chơi đã mất.
 
 "Thành ý như vậy… Cô ấy cầm lông vũ ám ảnh bên bàn, vờn trong tay hai cái, khóe miệng cong nụ cười tâm chiếu bất tuyên,"
 
@@ -11174,7 +12570,11 @@ Tiễn nhân viên mua hàng đi, cô ấy không dừng chân, quay đầu nhì
 
 Gã khổng lồ đầu bò phát ra tiếng đáp trầm đục, bước chân nặng nề giẫm lên sàn gỗ run nhẹ. Chẳng mấy chốc, một chiếc thang dài chắc chắn được đặt vững vàng dưới chính giữa đại sảnh.
 
-Cô ấy vỗ vỗ bụi trên tay, từ túi áo choàng ngủ lấy ra viên "Tinh Thạch Tàn Hưởng trống" đã rửa sạch vết bẩn, khắc xong đế có thể tháo rời.
+Cô ấy vỗ vỗ bụi trên tay, từ túi áo choàng ngủ lấy ra viên
+
+"Tinh Thạch Tàn Hưởng trống"
+
+Đã rửa sạch vết bẩn, khắc xong đế có thể tháo rời.
 
 Đúng lúc cô ấy nắm thanh ngang gỗ định leo lên, Karl im lặng xuất hiện bên cạnh thang. Đôi mắt luôn lạnh lùng sâu thẳm của hắn hơi nhíu lại, dường như lo lắng khi cô ấy tự làm việc trên cao, nhưng hắn biết rõ làm trợ lý không thể dễ dàng trái ý quyết định của quản lý.
 
@@ -11266,7 +12666,11 @@ Cô ấy đẩy ly nước chanh đá sang lớp trong của quầy bar, tự nh
 
 Cùng với đêm buông xuống bên ngoài cửa, 【Huyết Hồng Thánh Bôi】 đã đón cơn sóng thần lưu lượng khách kinh khủng nhất kể từ khi khai trương.
 
-Viên "Tinh Thạch Tàn Hưởng trống" trên cao giữa đại sảnh đã được kích hoạt hoàn toàn, quang vầng pháp trận bạc trắng chiếu xuống toàn trường cực kỳ ổn định. Tây Nhĩ Phàm như vị vua chúa tể giấc mơ, hắn đi lại giữa các bàn rượu chật ních, không còn cần như trước vô cùng vất vả thi pháp từng điểm. Nhờ sức tính toán khổng lồ của viên tinh thạch trên đầu, từng mảng từng mảng bóng ma nửa trong suốt mang mùi kích dục tím hoa loa kèn đậm đặc uốn lượn mê hoặc bên cạnh các vị khách.
+Viên
+
+"Tinh Thạch Tàn Hưởng trống"
+
+Trên cao giữa đại sảnh đã được kích hoạt hoàn toàn, quang vầng pháp trận bạc trắng chiếu xuống toàn trường cực kỳ ổn định. Tây Nhĩ Phàm như vị vua chúa tể giấc mơ, hắn đi lại giữa các bàn rượu chật ních, không còn cần như trước vô cùng vất vả thi pháp từng điểm. Nhờ sức tính toán khổng lồ của viên tinh thạch trên đầu, từng mảng từng mảng bóng ma nửa trong suốt mang mùi kích dục tím hoa loa kèn đậm đặc uốn lượn mê hoặc bên cạnh các vị khách.
 
 Những vị khách rời rạc vốn chỉ muốn gọi ly mạch tửu ác ma rẻ nhất để xem náo nhiệt, dưới sự kích thích giác quan phóng đại của huyễn cảnh, đôi mắt trở nên cực kỳ cuồng nhiệt. Họ không kiểm soát được mở hồn tệ, chọn những đồ uống đặc cung mà cô ấy đã tạm thời thêm premium cao ngất.
 
@@ -11300,7 +12704,7 @@ Trong phòng làm việc lãnh đạo điếm cực kỳ xa hoa trên tầng ba,
 
 Khóe miệng Vi Ô Lai Khả cong lên nụ cười cực kỳ hưng phấn, trong cổ họng tràn ra tiếng cười thấp cực kỳ nguy hiểm.
 
-"Đã thích kiếm tiền như vậy... thì để cô ấy kiếm đã đã."
+"Đã thích kiếm tiền như vậy... Thì để cô ấy kiếm đã đã."
 
 Cắn một cái khi con mồi béo mập nhất mới là bữa yến tiệc thịnh soạn đáng mong đợi nhất.
 
@@ -11451,7 +12855,11 @@ Trở về phòng nghỉ yên tĩnh hơn ở phía trong, cô ấy dùng dao m�
 
 "Hội giao dịch ngầm quy mô cao nhất năm nay sẽ chính thức khai mạc đúng nửa đêm hai ngày sau."
 
-Cô ấy mở cuốn sổ mục, ánh mắt lướt nhanh qua những pháp khí quý hiếm giá cao, công thức mê hoặc cổ xưa và hài cốt hung thú vô danh. Khi tầm nhìn rơi vào mấy trang cuối "Khu Triển Lãm Vật Sống Đặc Biệt", ngón tay lật trang đột nhiên dừng lại.
+Cô ấy mở cuốn sổ mục, ánh mắt lướt nhanh qua những pháp khí quý hiếm giá cao, công thức mê hoặc cổ xưa và hài cốt hung thú vô danh. Khi tầm nhìn rơi vào mấy trang cuối
+
+"Khu Triển Lãm Vật Sống Đặc Biệt"
+
+, ngón tay lật trang đột nhiên dừng lại.
 
 Ở đó chỉ có một bức ảnh đơn giản in bằng ma pháp ảnh đảo, nhưng truyền ra sức ảnh hưởng thị giác mạnh mẽ đến mức không thể nhìn thẳng.
 
@@ -11478,7 +12886,11 @@ Ký ức phủ bụi trong đầu dần rõ ràng.
 
 Cô ấy tự giễu kéo khóe miệng, gập cuốn sổ mục lại ném lên bàn, phát ra tiếng đập đục.
 
-"Nhưng nghĩ kỹ lại, bây giờ tôi chính là quản lý quán bar nổi nhất địa ngục, quản một đám ác ma. Có lẽ trong mắt thiên thần "thuần khiết" như hắn, bây giờ tôi cũng là tồn tại tà ác thập ác bất xá rồi."
+"Nhưng nghĩ kỹ lại, bây giờ tôi chính là quản lý quán bar nổi nhất địa ngục, quản một đám ác ma. Có lẽ trong mắt thiên thần "
+
+Thuần khiết
+
+" như hắn, bây giờ tôi cũng là tồn tại tà ác thập ác bất xá rồi."
 
 Nghe cô ấy tự giễu, trên gương mặt như băng sơn thiếu biểu cảm thường ngày của Karl hiếm hoi hiện vẻ cười rất nhạt, mang chút vui sướng và chế nhạo.
 
@@ -11488,13 +12900,19 @@ Hắn bước nửa bước về phía trước, các ngón tay xương phân mi
 
 Giọng Karl trầm ổn, như âm vang đuôi cello trong phòng nghỉ yên tĩnh.
 
-"Đó là đội săn nô lệ của Chi Nhánh Đấu Giá Vực Sâu. Có thể sống sót qua sự tra tấn cường độ cao như vậy, và đến giờ vẫn giữ ánh mắt phản kháng, con "chim" này xương cứng hơn tôi tưởng."
+"Đó là đội săn nô lệ của Chi Nhánh Đấu Giá Vực Sâu. Có thể sống sót qua sự tra tấn cường độ cao như vậy, và đến giờ vẫn giữ ánh mắt phản kháng, con "
+
+Chim
+
+" này xương cứng hơn tôi tưởng."
 
 Hắn đặt ấm trà xuống, đôi mắt đen thẫm cúi xuống nhìn cô ấy.
 
 Với câu tự đánh giá "tà ác" của cô ấy, trong đáy mắt Karl thoáng qua vẻ khinh thị không che giấu – dĩ nhiên, sự khinh thị đó hướng về thiên đường.
 
-"Còn "tà ác"... Hừ. Trong mắt những kẻ tự cho là thánh khiết quang huy, chỉ cần là sinh linh không phục tùng pháp tắc giả dối của họ, ngay cả việc hít thở không khí địa ngục có mùi lưu huỳnh cũng là tội không thể tha thứ."
+"Còn "tà ác
+
+"... Hừ. Trong mắt những kẻ tự cho là thánh khiết quang huy, chỉ cần là sinh linh không phục tùng pháp tắc giả dối của họ, ngay cả việc hít thở không khí địa ngục có mùi lưu huỳnh cũng là tội không thể tha thứ."
 
 Cô ấy nhìn sự khinh thị công nhiên của Karl với sinh vật thiên đường, bất lực cười nhẹ, chỉ lắc đầu nhẹ, không đánh giá hay phản hồi lời hắn.
 
@@ -11536,7 +12954,9 @@ Giữa tiếng náo nhiệt sôi sục này, trên mặt nước kinh doanh bìn
 
 Đối phương không xem thực đơn rượu, trên người tỏa mùi nấm mốc quanh năm lăn lộn nơi ngõ tối và chợ đen. Loại mùi này, cô ấy chỉ ngửi thấy trên những kẻ "buôn tin tình báo" đi khắp nơi bán tin đồn.
 
-"Thưa ngài, quán chúng tôi thật sự không có rượu tên "Tiếng Sương Mù"."
+"Thưa ngài, quán chúng tôi thật sự không có rượu tên "
+
+Tiếng Sương Mù"."
 
 Tạch Nặc tỏ vẻ bất lực.
 
@@ -11546,7 +12966,11 @@ Tạch Nặc tỏ vẻ bất lực.
 
 Giọng khản của người áo choàng xám như hai hòn đá cọ xát, mấy con mắt vàng sáng dưới mũ trùm không yên chuyển động.
 
-"Ta mang "phong thanh" mà ít người biết đến. Đấu giá sắp bắt đầu, mạng tối phía sau những hàng chủ lực kia liên quan không chỉ có tiền là giải quyết được. Tìm người chủ sự ra đây, cho ta ly rượu khiến ta hài lòng, ta sẽ để lại phong thanh cho các ngươi."
+"Ta mang "
+
+Phong thanh
+
+" mà ít người biết đến. Đấu giá sắp bắt đầu, mạng tối phía sau những hàng chủ lực kia liên quan không chỉ có tiền là giải quyết được. Tìm người chủ sự ra đây, cho ta ly rượu khiến ta hài lòng, ta sẽ để lại phong thanh cho các ngươi."
 
 Tạch Nặc không biết làm sao quay đầu.
 
@@ -11574,7 +12998,11 @@ Dần dần, chất lỏng trong ly biến thành sắc xám đậm đến mức
 
 Cô ấy đẩy ly chất lỏng xám tối không mấy nổi bật ấy đến trước mặt hắn, giọng bình tĩnh.
 
-"Tôi gọi nó là "Nửa Khắc Trường Miên". Bên trong không có ma lực gây nhiễu thừa, chỉ có sự hư vô thuần túy, không có bất kỳ âm thanh nào."
+"Tôi gọi nó là "
+
+Nửa Khắc Trường Miên
+
+". Bên trong không có ma lực gây nhiễu thừa, chỉ có sự hư vô thuần túy, không có bất kỳ âm thanh nào."
 
 Mấy con mắt vàng đục dưới mũ trùm hoài nghi chuyển động. Hắn đưa ngón tay xương khô ra, cầm ly rượu đưa lên miệng ẩn trong bóng tối, từ từ uống một ngụm lớn.
 
@@ -11658,7 +13086,11 @@ Phòng Đấu Giá Ảnh Hạng.
 
 Nơi đây không có không khí ồn ào hơi người nhộn nhịp ở khu phố ngoại vi, thay vào đó là sự trang nghiêm cực kỳ áp lực, thậm chí có thể đông cứng linh hồn. Từng chiếc xe sang trọng màu đen do ngựa ác mộng hai đầu kéo dừng ở lối vào, bước xuống từng vị quý tộc vực sâu và ma tướng tỏa uy áp khủng khiếp.
 
-Còn "Đường Vận Chuyển Hàng Hóa" bí mật bên hông kiến trúc lại là cảnh tượng khác.
+Còn
+
+"Đường Vận Chuyển Hàng Hóa"
+
+Bí mật bên hông kiến trúc lại là cảnh tượng khác.
 
 Mấy tiểu ma hạ giai đang vất vả đẩy một xe cỏ hoa lam u tuyệt phát khí hàn; cách đó không xa trong lồng sắt nhốt một con thú non vực sâu ba đuôi đang phun cát độc tím; còn mấy vị giám định viên đeo kính một mắt đang đối chiếu đống cuộn giấy cổ xưa phế tích đào được và đồ pha chế rượu.
 
@@ -11928,7 +13360,11 @@ Karl đứng sau cô ấy nửa bước, đường cắt vest không lay động
 
 Giọng Karl ổn định, toát ra sự lạnh lùng công sự.
 
-"Tài sản giá trị nhất của hắn là sòng bạc chuỗi "Lưu Kim Nê Chước" ở khu giao dịch tầng dưới Ảnh Hạng, cùng hai tuyến buôn lậu gia vị thông Đồng Vọng Bình Nguyên."
+"Tài sản giá trị nhất của hắn là sòng bạc chuỗi "
+
+Lưu Kim Nê Chước
+
+" ở khu giao dịch tầng dưới Ảnh Hạng, cùng hai tuyến buôn lậu gia vị thông Đồng Vọng Bình Nguyên."
 
 Karl dừng, trong đáy mắt lướt qua một tia ánh sáng tính toán.
 
@@ -11980,7 +13416,11 @@ Nghe động tĩnh cô ấy dậy, Karl hơi quay người, đôi mắt đen th�
 
 Cô ấy ngồi dậy, vươn vai, cảm thấy trong người tràn đầy sức lực dồi dào lâu không có. Cô ấy khoác áo choàng ngủ, đi đến bàn viết, ánh mắt quét qua những báu vật mua đêm qua ở ngoại vi Phòng Đấu Giá Ảnh Hạng.
 
-"Đưa cái "Cực Hàn Trúc Cốt Dao Hồ" này cho Tú Cốt."
+"Đưa cái "
+
+Cực Hàn Trúc Cốt Dao Hồ
+
+" này cho Tú Cốt."
 
 Cô ấy tùy ý cầm chiếc hộp kim loại đen đó, đầu ngón tay cảm nhận được hơi mát do ma trận băng sương còn sót bên trong tỏa ra.
 
@@ -12024,7 +13464,11 @@ Karl bước lên trước, ngón tay dài không hề lay động đẩy chén 
 
 Giọng Karl ổn định không gợn sóng, nhưng trong đáy mắt cúi xuống lướt qua một tia tính toán lạnh lùng với đồng giới.
 
-"Tôi đề xuất chọn địa điểm có thể triệt để tước đoạt cảm giác ưu việt "quý tộc cao giai" của hắn. Càng đơn giản, càng ồn ào, càng thử thách sự kiên nhẫn, càng dễ đập nát ngụy trang ung dung của hắn."
+"Tôi đề xuất chọn địa điểm có thể triệt để tước đoạt cảm giác ưu việt "
+
+Quý tộc cao giai
+
+" của hắn. Càng đơn giản, càng ồn ào, càng thử thách sự kiên nhẫn, càng dễ đập nát ngụy trang ung dung của hắn."
 
 Ánh sáng bình minh xuyên qua khe rèm, in bóng loang lổ lên thảm.
 
@@ -12048,7 +13492,11 @@ Karl nhắm mắt, thở ra tiếng thở dài cực nhẹ thấm đượm bất
 
 Khi hắn mở mắt lại, sự u ám trong đáy mắt đã bị tố chất chấp sự hoàn hảo che phủ. Hắn đặt khay trà ổn định lên mặt bàn, thân hình hơi nghiêng về phía trước, như tượng trung thành bảo vệ cô ấy.
 
-"Vì ngài định tính đây là bữa tiệc hưởng thụ, vậy nhà hàng "Thánh Nguyệt Không Đảo" phía tây Ảnh Hạng có lẽ là lựa chọn không tệ. Nơi đó là khu trung lập độc lập tuyệt đối, pháp trận nghiêm ngặt, phong cảnh tuyệt vời, và tiêu phí cao ngất. Vì đây là lời mời của mạc ma cao đẳng, đương nhiên phải do hắn thanh toán hóa đơn dùng để làm vui ngài."
+"Vì ngài định tính đây là bữa tiệc hưởng thụ, vậy nhà hàng "
+
+Thánh Nguyệt Không Đảo
+
+" phía tây Ảnh Hạng có lẽ là lựa chọn không tệ. Nơi đó là khu trung lập độc lập tuyệt đối, pháp trận nghiêm ngặt, phong cảnh tuyệt vời, và tiêu phí cao ngất. Vì đây là lời mời của mạc ma cao đẳng, đương nhiên phải do hắn thanh toán hóa đơn dùng để làm vui ngài."
 
 Cô ấy tán thưởng búng ngón tay. Có thể vừa kìm nén cảm xúc bản thân vừa nhanh chóng cung cấp giải pháp tối ưu, đây chính là giá trị không thể thay thế của Karl.
 
@@ -12088,7 +13536,9 @@ Nhiệt độ trà vừa phải, xua tan mát mẻ buổi sáng. Việc hẹn h�
 
 Cô ấy đặt chén trà xuống, ánh mắt rơi vào tủ quần áo.
 
-"Vì đi hẹn hò ở nhà hàng cao cấp khu trung lập, tôi không thể mặc đồ làm việc thường ngày ở sau quầy bar. Đi cùng tôi đến tiệm may Ảnh Hạng, tôi cần chọn bộ trang phục xứng với danh hiệu "quản lý" cho tối mai."
+"Vì đi hẹn hò ở nhà hàng cao cấp khu trung lập, tôi không thể mặc đồ làm việc thường ngày ở sau quầy bar. Đi cùng tôi đến tiệm may Ảnh Hạng, tôi cần chọn bộ trang phục xứng với danh hiệu "
+
+Quản lý" cho tối mai."
 
 Câu nói này như giọt nước lạnh rơi thẳng vào dung nham nóng.
 
@@ -12106,7 +13556,11 @@ Giọng vẫn là nam trầm hoàn hảo, chỉ đuôi âm mang theo một tia k
 
 Hắn bước lên trước, hai tay ổn định đỡ chén trà của cô ấy – cô ấy chú ý xương ngón vì siết chặt khay trà hơi trắng bệch.
 
-"Tiệm may "Dạ Chức Cẩm" tầng trên Ảnh Hạng có kiểu dáng phù hợp thẩm mỹ loài người nhất. Tôi sẽ đến phòng kế toán rút đủ hồn tệ, và sắp xếp xe ngựa xuất phát."
+"Tiệm may "
+
+Dạ Chức Cẩm
+
+" tầng trên Ảnh Hạng có kiểu dáng phù hợp thẩm mỹ loài người nhất. Tôi sẽ đến phòng kế toán rút đủ hồn tệ, và sắp xếp xe ngựa xuất phát."
 
 Karl hơi cúi người, tư thế khiêm nhường đến cực điểm, nhưng giọng nén đè mang theo nỗi cay đắng khó tả và thỏa hiệp.
 
@@ -12148,7 +13602,11 @@ Cô ấy nhìn đôi mắt sóng sánh u ám của hắn, đưa viên kẹo ch�
 
 Hơi thở Karl hoàn toàn loạn.
 
-Karl biết cô ấy đang an ủi hắn nhưng vẫn chấp nhận. Cả hai quyết định đi tiệm may chuẩn bị cho buổi hẹn. Tại tiệm may "Dạ Chức Cẩm", cô ấy chọn được bộ váy lụa đỏ rượu đẹp mắt với áo khoác nỉ đen cắt may cứng cáp, tạo khí chất thống trị chết người khiến Karl vô cùng hài lòng, "Dù nhìn bao nhiêu lần, quang mang của ngài cũng đủ khiến vực sâu lu mờ." Vi Ô Lai Khả nhận được khế ước hẹn hò, cười vui vẻ và chuẩn bị lễ phục cho buổi "săn bắt".
+Karl biết cô ấy đang an ủi hắn nhưng vẫn chấp nhận. Cả hai quyết định đi tiệm may chuẩn bị cho buổi hẹn. Tại tiệm may "Dạ Chức Cẩm", cô ấy chọn được bộ váy lụa đỏ rượu đẹp mắt với áo khoác nỉ đen cắt may cứng cáp, tạo khí chất thống trị chết người khiến Karl vô cùng hài lòng,
+
+"Dù nhìn bao nhiêu lần, quang mang của ngài cũng đủ khiến vực sâu lu mờ."
+
+Vi Ô Lai Khả nhận được khế ước hẹn hò, cười vui vẻ và chuẩn bị lễ phục cho buổi "săn bắt".
 
 ---
 
@@ -12194,7 +13652,9 @@ Cô ấy nhìn dòng tít chói mắt, cầm trà đỏ nhấp một ngụm. Nhi
 
 Do nam tước là người thừa kế hợp pháp duy nhất và chết vì phản thực đột phát, tài sản của hắn giờ rơi vào trạng thái vô chủ cực kỳ hỗn loạn.
 
-"Sòng bạc chuỗi "Lưu Kim Nê Chước"…"
+"Sòng bạc chuỗi "
+
+Lưu Kim Nê Chước"…"
 
 Cô ấy đặt chén trà xuống, trong mắt lấp lánh sự tính toán lạnh lùng thương nhân.
 
@@ -12224,7 +13684,11 @@ Karl rất thuần thục rời đi một lát, ở góc khuất dúi cho tên b
 
 Karl hạ giọng, áp sát tai cô ấy báo cáo.
 
-"Tin nam tước bạo tủ chắc chắn đã truyền khắp, nhưng địa khế sòng bạc chuỗi "Lưu Kim Nê Chước" cốt lõi nhất dưới tên hắn hiện bị trọng tài quan hội đình chỉ khẩn cấp đóng băng. Vì nguyên nhân chết quá ly kỳ thảm liệt, giờ có ba bang phái ác ma trung hình và hai vị tử tước đang nhòm ngó mảnh đất ấy."
+"Tin nam tước bạo tủ chắc chắn đã truyền khắp, nhưng địa khế sòng bạc chuỗi "
+
+Lưu Kim Nê Chước
+
+" cốt lõi nhất dưới tên hắn hiện bị trọng tài quan hội đình chỉ khẩn cấp đóng băng. Vì nguyên nhân chết quá ly kỳ thảm liệt, giờ có ba bang phái ác ma trung hình và hai vị tử tước đang nhòm ngó mảnh đất ấy."
 
 Cô ấy cười lạnh một tiếng.
 
@@ -12236,7 +13700,11 @@ Cô ấy cười lạnh một tiếng.
 
 Cô ấy quyết đoán hạ chỉ lệnh.
 
-"Đợi hoảng loạn lên men. Đợi hội phát hiện sòng bạc ấy biến thành quả bom nóng không ai dám chạm, giá đáy hoàn toàn bị đánh vỡ, lúc ấy ta dùng danh nghĩa "từ thiện dọn dẹp", dùng chi phí thấp nhất nuốt nó. Giai đoạn này, ta không xuất một đồng."
+"Đợi hoảng loạn lên men. Đợi hội phát hiện sòng bạc ấy biến thành quả bom nóng không ai dám chạm, giá đáy hoàn toàn bị đánh vỡ, lúc ấy ta dùng danh nghĩa "
+
+Từ thiện dọn dẹp
+
+", dùng chi phí thấp nhất nuốt nó. Giai đoạn này, ta không xuất một đồng."
 
 Ra khỏi hội, cô ấy triệt để gạt sự kiện đột phát này sang một bên, kéo toàn bộ tư tưởng về vở chính tối nay.
 
@@ -12270,7 +13738,9 @@ Karl đáp cay đắng, dù ghen tuông trong lòng không ngừng sóng dậy, 
 
 Xe ngựa sang trọng do ngựa ác mộng thuần đen kéo đã đỗ ở hẻm sau 【Huyết Hồng Thánh Bôi】. Xe bay lên không, rời đường phố ồn ào Ảnh Hạng, hướng không gian độc lập cao hơn bay ổn định.
 
-"Thánh Nguyệt" Nhà Hàng Không Đảo, như tên gọi, xây trên lưng thiên thạch độc lập lơ lửng trăm mét trên không Ảnh Hạng. Đây là ổ tiêu tiền đỉnh cao hưởng đặc quyền trung lập tuyệt đối. Toàn bộ nhà hàng bị pháp trận cấm ma cổ xưa cực mạnh bao phủ – một khi bước vào, bất kỳ ác ma nào đều không thể vận dụng ma lực bản thân hoặc tỏa áp lực tinh thần. Ở đây, tất cả phải tuân theo quy tắc xã giao thân xác và ngôn ngữ thuần túy, nguyên thủy nhất.
+"Thánh Nguyệt"
+
+Nhà Hàng Không Đảo, như tên gọi, xây trên lưng thiên thạch độc lập lơ lửng trăm mét trên không Ảnh Hạng. Đây là ổ tiêu tiền đỉnh cao hưởng đặc quyền trung lập tuyệt đối. Toàn bộ nhà hàng bị pháp trận cấm ma cổ xưa cực mạnh bao phủ – một khi bước vào, bất kỳ ác ma nào đều không thể vận dụng ma lực bản thân hoặc tỏa áp lực tinh thần. Ở đây, tất cả phải tuân theo quy tắc xã giao thân xác và ngôn ngữ thuần túy, nguyên thủy nhất.
 
 Xe hạ xuống sân đỗ mép không đảo. Cô ấy đạp giày cao gót bước xuống xe, gió đêm mát thổi vén vạt váy. Người hầu cung kính mở cửa khắc vụn tinh tú, âm nhạc dây cổ điển êm đềm như sóng nước chảy ra.
 
@@ -12304,11 +13774,19 @@ Nghe từ "gợi cảm" thoát ra từ miệng cô ấy một cách thản nhiê
 
 Vi Ô Lai Khả phát ra tiếng rung trầm thấp mà thỏa mãn từ lồng ngực. Đôi mắt hổ phách lưu động của hắn hơi nheo lại, ánh nhìn vô cùng phóng túng từ xương quai xanh tinh tế bị áo khoác tây đen che nửa của cô ấy, trượt xuống đường cong eo mông được lụa đỏ rượu vẽ chặt của cô ấy, đáy mắt lướt qua một tia ánh ám hỏa vừa kinh ngạc vừa nguy hiểm.
 
-"Bị một nữ chủ quán cố gắng bọc mình thành "thùng sắt" bằng áo khoác tây nam cứng cáp, mà vẫn tỏa sức quyến rũ chết người khen gợi cảm…… Hắn không đứng dậy, mà duy trì tư thế lười biếng tựa lưng ghế, đôi chân thon dài mang sức mạnh hơi duỗi thẳng, phần ngực mật ong dưới cổ áo sơ mi trắng chữ V sâu theo nhịp thở hắn dao động, Có lẽ đây là lời mở đầu tuyệt vời nhất ta từng nghe trong mấy trăm năm tẻ nhạt này."
+"Bị một nữ chủ quán cố gắng bọc mình thành "
+
+Thùng sắt
+
+" bằng áo khoác tây nam cứng cáp, mà vẫn tỏa sức quyến rũ chết người khen gợi cảm…… Hắn không đứng dậy, mà duy trì tư thế lười biếng tựa lưng ghế, đôi chân thon dài mang sức mạnh hơi duỗi thẳng, phần ngực mật ong dưới cổ áo sơ mi trắng chữ V sâu theo nhịp thở hắn dao động, Có lẽ đây là lời mở đầu tuyệt vời nhất ta từng nghe trong mấy trăm năm tẻ nhạt này."
 
 Hắn hơi nghiêng đầu, nhìn vào mắt cô ấy, nụ cười nơi khóe miệng toát ra ý săn mồi không che giấu.
 
-"Còn việc đợi ngươi bao lâu…… Mười phút? Nửa tiếng? Ai quan tâm chứ. Nhìn ngươi mặc bộ "tuyên chiến" này đi về phía ta lúc nãy, dù khiến ta ngồi khô trong chỗ quỷ quái này không vắt nổi một chút ma lực suốt cả kỷ nguyên, ta cũng chỉ thấy cam tâm tình nguyện mà thôi."
+"Còn việc đợi ngươi bao lâu…… Mười phút? Nửa tiếng? Ai quan tâm chứ. Nhìn ngươi mặc bộ "
+
+Tuyên chiến
+
+" này đi về phía ta lúc nãy, dù khiến ta ngồi khô trong chỗ quỷ quái này không vắt nổi một chút ma lực suốt cả kỷ nguyên, ta cũng chỉ thấy cam tâm tình nguyện mà thôi."
 
 Câu nói của hắn không có chút ma pháp trang điểm nào, chỉ dựa vào giọng nam tính thiên phú ưu việt và thân hình mang áp lực, ngược lại có sức xuyên thấu hơn những pháp thuật mê hoặc hoa mỹ rỗng tuếch.
 
@@ -12316,7 +13794,15 @@ Câu nói của hắn không có chút ma pháp trang điểm nào, chỉ dựa 
 
 Ngón tay xương cốt rõ ràng của Vi Ô Lai Khả khẽ gõ mặt bàn, không nhìn danh sách rượu đó, mà ném quyền chủ đạo cho cô ấy.
 
-"Vì ngươi đã tước mất năng lực thi triển pháp thuật của ta, lại chê bai thẩm mỹ địa ngục thường ngày của ta…… Hắn hơi nghiêng người, hai cánh tay bắt chéo chống lên mặt bàn nhung đen, kéo gần khoảng cách vật lý giữa hai người, hơi nóng nhiệt độ cơ thể ác ma cao cấp pha hương xạ hùng thấm qua không khí truyền tới, Vậy tối nay, cô quản lý nắm đại quyền, khắp người viết đầy chữ "bóc lột" này, định cho con cừu chờ giết thịt này uống gì? Ta nghe nói rượu niên hạn "Tinh Thần Tiêu Diệt" nơi đây, có thể khiến linh hồn tỉnh táo nhất cũng rơi vào trạng thái điên cuồng trong chốc lát."
+"Vì ngươi đã tước mất năng lực thi triển pháp thuật của ta, lại chê bai thẩm mỹ địa ngục thường ngày của ta…… Hắn hơi nghiêng người, hai cánh tay bắt chéo chống lên mặt bàn nhung đen, kéo gần khoảng cách vật lý giữa hai người, hơi nóng nhiệt độ cơ thể ác ma cao cấp pha hương xạ hùng thấm qua không khí truyền tới, Vậy tối nay, cô quản lý nắm đại quyền, khắp người viết đầy chữ "
+
+Bóc lột
+
+" này, định cho con cừu chờ giết thịt này uống gì? Ta nghe nói rượu niên hạn "
+
+Tinh Thần Tiêu Diệt
+
+" nơi đây, có thể khiến linh hồn tỉnh táo nhất cũng rơi vào trạng thái điên cuồng trong chốc lát."
 
 Hắn không né tránh nhắc tới loại rượu mạnh đắt nhất và sát thương mạnh nhất của nhà hàng này, đôi mắt hổ phách đầy ắp khiêu khích và mong đợi, thiếu chút nữa là ghi bốn chữ "ngươi dám không" lên mặt.
 
@@ -12338,7 +13824,11 @@ Không có pháp thuật che đậy, cô ấy thậm chí có thể nhìn rõ v�
 
 Sau đó, hắn cực kỳ quả quyết giơ tay, gõ ngón tay với người hầu vô diện không xa.
 
-"Một chai rượu niên hạn "Tinh Thần Tiêu Diệt", thêm trứng cá linh hồn vực sâu cao cấp nhất nơi đây. Hóa đơn…… Tạm thời ghi vào tên ta, dù sao ta cũng phải trả tiền cho vị quý nữ cao quý này."
+"Một chai rượu niên hạn "
+
+Tinh Thần Tiêu Diệt
+
+", thêm trứng cá linh hồn vực sâu cao cấp nhất nơi đây. Hóa đơn…… Tạm thời ghi vào tên ta, dù sao ta cũng phải trả tiền cho vị quý nữ cao quý này."
 
 Người hầu cung kính lui xuống. Vi Ô Lai Khả đưa ánh nhìn trở lại cô ấy, hắn hơi nghiêng đầu, đầu lưỡi cực kỳ mang tính ám thị liếm qua bờ môi hơi khô của mình.
 
@@ -12346,7 +13836,11 @@ Người hầu cung kính lui xuống. Vi Ô Lai Khả đưa ánh nhìn trở l�
 
 Nụ cười nơi khóe miệng hắn sâu thêm, đồng tử hổ phách dưới ánh đèn tối của nhà hàng in bóng sâu thẳm vô cùng.
 
-"Ta thật khó đảm bảo với ngươi, lát nữa ta sẽ không làm một số hành vi "không lịch sự" man rợ với ngươi trên chiếc bàn ăn này."
+"Ta thật khó đảm bảo với ngươi, lát nữa ta sẽ không làm một số hành vi "
+
+Không lịch sự
+
+" man rợ với ngươi trên chiếc bàn ăn này."
 
 Âm nhạc dây cổ điển du dương vang vọng mép không đảo, nhưng không sao che được sức căng hormone gần như ma sát ra tia lửa trên chiếc bàn ăn phương thốn này.
 
@@ -12358,11 +13852,19 @@ Vi Ô Lai Khả như nghe được trò cười cực kỳ phi lý lại cực k
 
 Dưới sự che phủ của pháp trận cấm ma, bầu không khí vốn yên tĩnh bị tiếng cười mang tính xâm lược cực mạnh của hắn phá vỡ. Hắn hơi nghiêng người, khoảng cách với mặt bàn gần hơn chút, chiếc áo sơ mi lụa trắng cổ áo mở theo động tác hơi kéo, đường nét cơ bắp chắc chắn ẩn hiện dưới lớp vải, hơi nóng hừng hực thuộc ác ma đực cao giai pha hương xạ cực kỳ cao cấp, không chướng ngại gì quét vào mặt.
 
-"Khế ước đúng là ban cho ngươi đặc quyền rút lui bất cứ lúc nào, quản lý thân yêu của ta. Đôi mắt lưu động ánh hổ phách của hắn cắn chặt ánh nhìn cô ấy, giọng khàn như mài trên giấy ráp, Nhưng nếu trên sân hiên cao không tuyệt đối cách ly người ngoài này, "dịch vụ" và "môi trường" ta cung cấp lại khiến ngươi nảy sinh ý niệm muốn ngắt giữa chừng……"
+"Khế ước đúng là ban cho ngươi đặc quyền rút lui bất cứ lúc nào, quản lý thân yêu của ta. Đôi mắt lưu động ánh hổ phách của hắn cắn chặt ánh nhìn cô ấy, giọng khàn như mài trên giấy ráp, Nhưng nếu trên sân hiên cao không tuyệt đối cách ly người ngoài này, "
+
+Dịch vụ" và "môi trường
+
+" ta cung cấp lại khiến ngươi nảy sinh ý niệm muốn ngắt giữa chừng……"
 
 Hắn dùng đốt ngón tay cực kỳ chậm rãi gõ một cái mặt bàn, như gõ lên thần kinh của cô ấy.
 
-"Vậy mới là sự sỉ nhục lớn của chủ nhân "Phi Sắc Quỷ Ảnh" ta. Ngươi cứ việc hét dừng bất cứ lúc nào, điều kiện là, Chỉ cần trước khi đêm nay kết thúc, đôi môi kiêu ngạo của ngươi còn phát ra được bất kỳ âm tiết nào ngoài thở dốc."
+"Vậy mới là sự sỉ nhục lớn của chủ nhân "
+
+Phi Sắc Quỷ Ảnh
+
+" ta. Ngươi cứ việc hét dừng bất cứ lúc nào, điều kiện là, Chỉ cần trước khi đêm nay kết thúc, đôi môi kiêu ngạo của ngươi còn phát ra được bất kỳ âm tiết nào ngoài thở dốc."
 
 Đúng lúc hai bên đấu lời, hai người hầu vô diện đẩy chiếc xe ăn được tạc từ băng hàn thiên niên, lặng lẽ trượt đến bên bàn.
 
@@ -12390,7 +13892,11 @@ Vi Ô Lai Khả như nghe được từ ngữ cực kỳ tuyệt diệu. Sống 
 
 Hắn hơi nghiêng người về phía trước, khuỷu tay chống lên khăn bàn nhung đen. Chiếc áo sơ mi lụa trắng thuần vì động tác của hắn mở rộng hơn ra hai bên, lộ thêm nhiều cơ ngực mật ong đường nét căng phồng, thậm chí có thể mơ hồ thấy đường viền cơ bụng chắc chắn. Đôi mắt hổ phách của hắn, hoa văn xoắn đại diện cho cực độ hưng phấn bắt đầu không kiểm soát được co rút mạnh, phóng to.
 
-"Vì ngươi đã thừa nhận "mỏng manh" của thể xác con người một cách chân thành như vậy…… Ngón tay thon dài Vi Ô Lai Khả khẽ cầm ly rượu mạnh tím sẫm vốn đẩy cho cô ấy, kéo chậm rãi về trước mặt mình, Vậy ta sao nỡ dùng cách thô bạo này để hủy hoại nó chứ?"
+"Vì ngươi đã thừa nhận "
+
+Mỏng manh
+
+" của thể xác con người một cách chân thành như vậy…… Ngón tay thon dài Vi Ô Lai Khả khẽ cầm ly rượu mạnh tím sẫm vốn đẩy cho cô ấy, kéo chậm rãi về trước mặt mình, Vậy ta sao nỡ dùng cách thô bạo này để hủy hoại nó chứ?"
 
 Hắn cúi đầu, môi áp lên mép ly pha lê, nhưng ánh nhìn sâu thẳm qua mép ly, không chớp mắt, như kẻ săn mồi khóa chặt con mồi nhìn chằm chằm cô ấy.
 
@@ -12406,7 +13912,11 @@ Khi rượu mạnh vào cổ họng, trên da mật ong của hắn trong chớp
 
 Dưới sự xúc tác của rượu mạnh, hắn xé nát hoàn toàn lớp mặt nạ giả dối tên "lễ nghi quý tộc" cuối cùng. Ánh nhìn bị rượu và bản năng đốt cháy song trùng, vô tình tứ cố liếm vùng xương quai xanh, đường cong ngực của cô ấy, thậm chí như muốn dùng tầm nhìn bóc lớp váy lụa đỏ đó của cô ấy.
 
-"Nhưng không nên dùng cách ép uống rượu thô thiển này. Hắn thè đầu lưỡi, cực kỳ dâm đãng liếm sạch rượu còn sót nơi khóe môi, giọng đã khàn không ra tiếng, "Bắt nạt" cực đích thật sự, là ta tỉnh táo, hoặc như bây giờ…… Để chai rượu độc này hủy hoại sự tự chế còn sót của ác ma cao cấp, còn ngươi……"
+"Nhưng không nên dùng cách ép uống rượu thô thiển này. Hắn thè đầu lưỡi, cực kỳ dâm đãng liếm sạch rượu còn sót nơi khóe môi, giọng đã khàn không ra tiếng, "
+
+Bắt nạt
+
+" cực đích thật sự, là ta tỉnh táo, hoặc như bây giờ…… Để chai rượu độc này hủy hoại sự tự chế còn sót của ác ma cao cấp, còn ngươi……"
 
 Hắn giơ bàn tay lớn mang nhiệt độ vượt xa thường nhân ra, qua nửa chiếc bàn, đầu ngón tay cực kỳ phóng túng mà chậm rãi, từ mu bàn tay cô ấy đặt trên mặt bàn nhẹ nhàng vuốt qua. Khoảnh khắc đó, cô ấy thậm chí có thể cảm nhận rõ đầu ngón tay hắn truyền tới, sự run rẩy nhỏ bé thuộc ác ma sắp mất kiểm soát.
 
@@ -12488,7 +13998,11 @@ Giọng hắn trầm đến mức như ma sát ra tia lửa trong không khí, �
 
 Hắn đặt tay lên mặt bàn, cô ấy chú ý ngón tay xương cốt rõ ràng đang siết chặt mép bàn. Vì dùng lực quá mạnh, do sự tồn tại của pháp trận cấm ma, hắn không thể điều động ma lực nghiền nát bàn, chỉ có thể dựa vào sức cơ thuần túy, để lại vài vết lõm sâu trên mép bàn gỗ cứng.
 
-"Vì tôi đã tuân thủ "quy tắc" của cô, nuốt thịt cô cho…"
+"Vì tôi đã tuân thủ "
+
+Quy tắc
+
+" của cô, nuốt thịt cô cho…"
 
 Ánh nhìn Vi Ô Lai Khả cực kỳ táo bạo đổ lên vai cô ấy khoác áo khoác tây.
 
@@ -12560,7 +14074,9 @@ Ngón cái một tay cực kỳ gợi dụ xoa mép môi cô ấy bị hôn đ�
 
 Bàn tay hắn kẹp gốc đùi cô ấy, gập lên trên, con vật cứng nóng phía dưới lại nặng nề đập một cái lên chỗ mềm giữa chân cô ấy.
 
-"Chỉ dùng sức mạnh đực rựa thuần túy nhất, xem cơ thể con người run rẩy khi được tôi ôm trong lòng này… chịu được bao nhiêu lần "không cầu xin" xuyên suốt."
+"Chỉ dùng sức mạnh đực rựa thuần túy nhất, xem cơ thể con người run rẩy khi được tôi ôm trong lòng này… chịu được bao nhiêu lần "
+
+Không cầu xin" xuyên suốt."
 
 Cô ấy hoàn toàn không để ý bàn tay thô ráp đang thăm dò vào chân váy của hắn. Dưới sự đè nặng cực kỳ xâm lược Vi Ô Lai Khả, cô ấy ngược lại hơi ngẩng đầu, đón ánh nhìn hắn gần như nuốt sống, chủ động giơ hai tay. Ngón tay mảnh mai trắng nõn của cô ấy cực kỳ khéo léo nhanh nhẹn mở nút ngọc trai trang nhã trên áo sơ mi trắng hắn. Vải tỏa sang hai bên, lộ hoàn toàn ngực rộng mật ong, từng khối cơ vì nhẫn nại cực độ căng đến cực hạn. Lòng bàn tay cô ấy áp không chướng ngại lên làn da nóng bỏng hắn, cảm nhận trái tim điên cuồng đập dưới lớp mồ hôi mỏng. Men theo vân cơ bụng rõ ràng, bàn tay cô ấy mang mục đích cực kỳ rõ ràng trượt xuống, đầu ngón tay cuối cùng chạm khóa kéo kim loại quần tây đen phía trước, căng đến gần như sắp nứt.
 
@@ -12634,7 +14150,11 @@ Cảm giác căng chặt cực độ và khoái cảm đột ngột dữ dội t
 
 "Ha a… chặt quá… thật sự chặt quá…"
 
-Vi Ô Lai Khả thốt ra tiếng thở dài cực kỳ nặng nề, trán đầy mồ hôi, giọt mồ hôi nóng rơi xuống hốc cổ cô ấy. Gương mặt vốn thanh tú tao nhã giờ vì khoái cảm cực độ hơi méo mó, toát ra sự cuồng nhiệt gần như tàn bạo. Hắn hoàn toàn không cho cô ấy thời gian thở thích ứng, vừa đâm đến đáy, eo chứa đầy sức mạnh kinh hãi đã bắt đầu rung động cực kỳ nhanh mạnh. "Đập! Đập! Đập! Đập!" Xương mu mật ong cứng và gốc đùi trắng mềm cực kỳ hung hãn đập vào nhau, phát ra tiếng đập thịt trong trẻo khiến người đỏ mặt. Trên sân hiên tuyệt đối cấm ma này, không có pháp thuật che đậy. Mỗi lần hắn rút ra, thân hình thô ráp đều cào phá nội bì nhạy cảm, kéo theo lượng lớn nước trắng sủi bọt; mỗi lần đâm vào dã man, đầu to đều chính xác nghiền qua điểm G mong manh nhất của cô ấy, thậm chí cố dùng độ cứng kinh hãi ấy đẩy mở cửa cung đóng chặt.
+Vi Ô Lai Khả thốt ra tiếng thở dài cực kỳ nặng nề, trán đầy mồ hôi, giọt mồ hôi nóng rơi xuống hốc cổ cô ấy. Gương mặt vốn thanh tú tao nhã giờ vì khoái cảm cực độ hơi méo mó, toát ra sự cuồng nhiệt gần như tàn bạo. Hắn hoàn toàn không cho cô ấy thời gian thở thích ứng, vừa đâm đến đáy, eo chứa đầy sức mạnh kinh hãi đã bắt đầu rung động cực kỳ nhanh mạnh.
+
+"Đập! Đập! Đập! Đập!"
+
+Xương mu mật ong cứng và gốc đùi trắng mềm cực kỳ hung hãn đập vào nhau, phát ra tiếng đập thịt trong trẻo khiến người đỏ mặt. Trên sân hiên tuyệt đối cấm ma này, không có pháp thuật che đậy. Mỗi lần hắn rút ra, thân hình thô ráp đều cào phá nội bì nhạy cảm, kéo theo lượng lớn nước trắng sủi bọt; mỗi lần đâm vào dã man, đầu to đều chính xác nghiền qua điểm G mong manh nhất của cô ấy, thậm chí cố dùng độ cứng kinh hãi ấy đẩy mở cửa cung đóng chặt.
 
 "Vừa nãy không còn khiêu khích sao? Hm?"
 
@@ -12650,11 +14170,17 @@ Cô ấy bị hắn đục trượt không ngừng trên sofa nhung đỏ sẫm,
 
 "Ha a… chẳng qua… hơi sướng vì ngài đụng thôi…"
 
-Hai chân dài cô ấy siết chặt eo thon chắc Vi Ô Lai Khả, dù nội bì đã bị con hung khí thô to ấy mài vừa chua vừa nóng, tầm nhìn cũng bị sóng ánh sáng trắng tràn đến không thể tập trung, cô ấy vẫn ngoan cố ngẩng cằm. Đầu bàn chân bọc vớ lụa đen trong suốt dùng lực đè xuống cơ mông căng thẳng hắn, không những không ngăn sự xâm phạm, ngược lại kéo hắn sâu hơn. Móng tay dài cô ấy đâm sâu vào lưng rộng ướt mồ hôi hắn, vạch ra vài vệt đỏ chói, từ môi đỏ tuôn ra lời khiêu khích vụn vặt nhưng cực kỳ kiêu ngạo: "Đừng đắc ý… tiếp tục… đã hết sức rồi sao?"
+Hai chân dài cô ấy siết chặt eo thon chắc Vi Ô Lai Khả, dù nội bì đã bị con hung khí thô to ấy mài vừa chua vừa nóng, tầm nhìn cũng bị sóng ánh sáng trắng tràn đến không thể tập trung, cô ấy vẫn ngoan cố ngẩng cằm. Đầu bàn chân bọc vớ lụa đen trong suốt dùng lực đè xuống cơ mông căng thẳng hắn, không những không ngăn sự xâm phạm, ngược lại kéo hắn sâu hơn. Móng tay dài cô ấy đâm sâu vào lưng rộng ướt mồ hôi hắn, vạch ra vài vệt đỏ chói, từ môi đỏ tuôn ra lời khiêu khích vụn vặt nhưng cực kỳ kiêu ngạo:
+
+"Đừng đắc ý… tiếp tục… đã hết sức rồi sao?"
 
 "Hết sức?"
 
-Đôi đồng tử dọc đỏ sẫm Vi Ô Lai Khả nguy hiểm nheo lại, ngọn lửa âm ỉ trong đáy mắt gần như đốt ba chữ này cùng cô ấy thành tro. Từ sâu cổ họng phát ra tiếng cười lạnh cực kỳ trầm, khàn. "Quản lý, cô thật là con mồi không biết sống chết, nhưng ngon đến khiến người ta phát điên." Hắn đột ngột dừng cơn đục mưa bão, hai tay siết chặt hai bên cơ thể cô ấy. Tiếp đó eo bụng chắc nịch đột ngột rút về sau. Cây dương vật nóng bỏng chôn sâu trong cô ấy bị cực kỳ chậm nhưng vô cùng tàn nhẫn rút ra ngoài. Đầu to đầy đặn kinh người cào qua lớp lớp thịt mềm non nớt nội bì, ép những thịt mềm siết hút hắn lộn ra ngoài. Lượng lớn nước trong như mở đập theo thân cây rút ra, tiếng nước "cù quy" cực kỳ dâm đãng vang lên chỗ hai người giao hợp.
+Đôi đồng tử dọc đỏ sẫm Vi Ô Lai Khả nguy hiểm nheo lại, ngọn lửa âm ỉ trong đáy mắt gần như đốt ba chữ này cùng cô ấy thành tro. Từ sâu cổ họng phát ra tiếng cười lạnh cực kỳ trầm, khàn.
+
+"Quản lý, cô thật là con mồi không biết sống chết, nhưng ngon đến khiến người ta phát điên."
+
+Hắn đột ngột dừng cơn đục mưa bão, hai tay siết chặt hai bên cơ thể cô ấy. Tiếp đó eo bụng chắc nịch đột ngột rút về sau. Cây dương vật nóng bỏng chôn sâu trong cô ấy bị cực kỳ chậm nhưng vô cùng tàn nhẫn rút ra ngoài. Đầu to đầy đặn kinh người cào qua lớp lớp thịt mềm non nớt nội bì, ép những thịt mềm siết hút hắn lộn ra ngoài. Lượng lớn nước trong như mở đập theo thân cây rút ra, tiếng nước "cù quy" cực kỳ dâm đãng vang lên chỗ hai người giao hợp.
 
 Ngay khi đầu thô to kinh người sắp hoàn toàn thoát khỏi cửa hang, cô ấy thậm chí cảm thấy run rẩy trống rỗng, eo Vi Ô Lai Khả như lò xo nén đến cực hạn, đột ngột bùng nổ!
 
@@ -12670,27 +14196,115 @@ Giọng cô ấy trong nháy mắt biến điệu, cảm giác căng chặt cự
 
 ## Chương 69 – Vi Ô Lai Khả Trả Thù (18+)
 
-Hắn hoàn toàn bỏ mọi sự khống chế nhịp độ, eo hông bắt đầu đóng cọc với tần suất phi nhân kinh hãi. Xương mu mật ong cực kỳ hung hãn, lần này lần khác đập lên gốc đùi trắng tuyết cô ấy, da trắng vốn trắng nõn chẳng mấy chốc bị đập thành mảng đỏ dâm đãng. "Hết sức? Còn bây giờ? Cây dương vật 'hết sức' này đục cô có sướng không?" Hắn vừa đục dữ dội vừa cúi đầu, cực kỳ ác ý cắn miếng mềm trước ngực đang dao động dữ dội vì thở, đầu lưỡi thô ráp liếm mút mạnh mẽ, hút cái hạt đỏ vừa cứng lên, "Nói đi! Vừa nãy không còn sắc sảo lắm sao!" "Ư… a… sâu quá… Vi、Vi Ô Lai Khả…" Cô ấy gần như bị hắn đục tan xác trên sofa. Cây dương vật kinh hãi mỗi lần đều mang theo khoái cảm chết người trong hang cô ấy, đầu to cực kỳ chính xác, nghìn trăm lần nghiền qua điểm G nhạy cảm nhất. Sự tích tụ khoái cảm trong nháy mắt cuối cùng vượt quá giới hạn sinh lý cơ thể con người có thể chịu đựng.
+Hắn hoàn toàn bỏ mọi sự khống chế nhịp độ, eo hông bắt đầu đóng cọc với tần suất phi nhân kinh hãi. Xương mu mật ong cực kỳ hung hãn, lần này lần khác đập lên gốc đùi trắng tuyết cô ấy, da trắng vốn trắng nõn chẳng mấy chốc bị đập thành mảng đỏ dâm đãng.
 
-Cơ thể cô ấy đột ngột cong lên, ngón chân siết chặt. Thịt mềm nội bì bắt đầu co thắt cực kỳ dữ dội không kiểm soát, như vô số miệng nhỏ khát khao siết chặt cây thân to lớn cắm bên trong. "A a a, !" Theo tiếng rên cao vút, dòng lũ cực độ từ trong cơ thể cô ấy phun ra. Lượng lớn mật trơn trong cơn phun nước dữ dội phun ra, không những dội ướt dương vật nóng bỏng Vi Ô Lai Khả, thậm chí theo chỗ hai người giao hợp bắn tứ tung, để lại mảng vệt nước cực kỳ dâm đãng trên sofa nhung đỏ sẫm đắt tiền. Cô ấy đạt cực khoái. Thế nhưng, ma tinh nam ngoài loài người sở hữu ngưỡng phóng tinh tuyệt vọng. Đối diện sự co thắt nội bì và nước phun của cô ấy, Vi Ô Lai Khả chỉ cực kỳ thích thú phát ra tiếng rên nặng nề, cây dương vật khổng lồ cắm trong cô ấy không những không mềm, ngược lại vì kích thích bị bao chặt mà cực kỳ ngang ngược phình thêm một vòng. "Bị tôi đục phun nước rồi, cảm giác thế nào?"
+"Hết sức? Còn bây giờ? Cây dương vật 'hết sức' này đục cô có sướng không?"
+
+Hắn vừa đục dữ dội vừa cúi đầu, cực kỳ ác ý cắn miếng mềm trước ngực đang dao động dữ dội vì thở, đầu lưỡi thô ráp liếm mút mạnh mẽ, hút cái hạt đỏ vừa cứng lên,
+
+"Nói đi! Vừa nãy không còn sắc sảo lắm sao!"
+
+"Ư… a… sâu quá… Vi、Vi Ô Lai Khả…"
+
+Cô ấy gần như bị hắn đục tan xác trên sofa. Cây dương vật kinh hãi mỗi lần đều mang theo khoái cảm chết người trong hang cô ấy, đầu to cực kỳ chính xác, nghìn trăm lần nghiền qua điểm G nhạy cảm nhất. Sự tích tụ khoái cảm trong nháy mắt cuối cùng vượt quá giới hạn sinh lý cơ thể con người có thể chịu đựng.
+
+Cơ thể cô ấy đột ngột cong lên, ngón chân siết chặt. Thịt mềm nội bì bắt đầu co thắt cực kỳ dữ dội không kiểm soát, như vô số miệng nhỏ khát khao siết chặt cây thân to lớn cắm bên trong.
+
+"A a a, !"
+
+Theo tiếng rên cao vút, dòng lũ cực độ từ trong cơ thể cô ấy phun ra. Lượng lớn mật trơn trong cơn phun nước dữ dội phun ra, không những dội ướt dương vật nóng bỏng Vi Ô Lai Khả, thậm chí theo chỗ hai người giao hợp bắn tứ tung, để lại mảng vệt nước cực kỳ dâm đãng trên sofa nhung đỏ sẫm đắt tiền. Cô ấy đạt cực khoái. Thế nhưng, ma tinh nam ngoài loài người sở hữu ngưỡng phóng tinh tuyệt vọng. Đối diện sự co thắt nội bì và nước phun của cô ấy, Vi Ô Lai Khả chỉ cực kỳ thích thú phát ra tiếng rên nặng nề, cây dương vật khổng lồ cắm trong cô ấy không những không mềm, ngược lại vì kích thích bị bao chặt mà cực kỳ ngang ngược phình thêm một vòng.
+
+"Bị tôi đục phun nước rồi, cảm giác thế nào?"
 
 Hắn liếm nước mắt trên má cô ấy, ánh mắt càng sâu thẳm.
 
-"Nhưng hình phạt của cô chưa kết thúc, yêu." Hắn không rút dương vật ra, mà trực tiếp đỡ mông cô ấy, dùng tư thế "đục ôm mặt đối mặt", nhấc cô ấy đang co giật trong dư vị cực khoái trực tiếp khỏi sofa! "Ư…!" Sự thay đổi tư thế đột ngột khiến thứ vốn đã cắm rất sâu ấy, dưới tác dụng trọng lực trực tiếp đâm đến sâu nhất. Hắn cứ thế treo cô ấy trên người, mỗi bước đi con hung khí đều cực kỳ ác ý đập nặng một lần trong cô ấy. Hắn ôm cô ấy, bước lớn về phía chiếc bàn ăn đắt tiền giữa sân hiên. "Rầm, !" Vi Ô Lai Khả cực kỳ thô bạo vung tay, quét trứng cá vực sâu, thịt nướng và ly rượu pha lê đắt tiền trên mặt bàn xuống đất, phát ra tiếng vỡ chói tai. Hắn ép cô ấy trực tiếp lên mép bàn ăn đá cẩm thạch đen lạnh lẽo lộn xộn. Nửa trên cơ thể cô ấy ép nằm trên mặt bàn, tóc đen rải trên rượu còn sót, nửa dưới thì lơ lửng ở mép bàn. Vi Ô Lai Khả đứng giữa hai chân cô ấy dang rộng, hai tay dài mạnh mẽ siết chặt gốc đùi cô ấy, tách ra hai bên đến mức lớn nhất. Ánh sáng lạnh sân hiên không chút thương tiếc chiếu sáng chỗ riêng tư nhầy nhụa gắn chặt của hai người. "Vừa nãy chẳng muốn ngồi ăn mãi sao?" Hắn cực kỳ thô tục dùng ngón tay gảy nhẹ cửa hang đã bị đục hơi lộn ra, sưng đỏ dâm đãng, sau đó eo lùi tấc, tiếp theo là cú đâm sâu cực kỳ hung hãn, "Bây giờ, tôi cũng phải trên bàn ăn, thưởng thức món chính của tôi." Mặt bàn đá cẩm thạch đen lạnh lẽo áp lưng không phòng bị, mang theo cơn rùng mình lạnh giá, nhưng sao cũng không dập tắt ngọn lửa tà chạy lung tung trong cơ thể cô ấy. Trong sự đan xen cực độ mệt mỏi và dư vị cực khoái, cơ thể cô ấy mềm như nước, nhưng ánh mắt vẫn sáng đến kinh người. Cô ấy cực kỳ chậm giơ bàn tay vì kiệt sức hơi run, đưa đầu ngón tay chạm vào vũng chất lỏng "Tinh Thần Tiêu Diệt" phát sáng u ám trên mặt bàn. Chất lỏng nhớt tím sẫm gần đen dính đầu ngón tay. Cô ấy đón ánh nhìn Vi Ô Lai Khả như muốn nuốt sống, cực kỳ cố ý, cực kỳ gợi dụ đặt ngón tay nhuốm rượu mạnh lên ngực trắng tuyết đang thở gấp. Chất lỏng tím sẫm quét quanh hạt đỏ, sự chấn động thị giác mạnh mẽ như bức tranh cực lạc sa đọa. Cảm giác nóng bỏng kích tình và ăn mòn nhẹ đặc trưng rượu mạnh cao cấp trong nháy mắt nổ tung ở đầu nhạy cảm cực độ, khiến cô ấy không nhịn được tuôn tiếng rên vụn vặt. "Vậy sao?"
+"Nhưng hình phạt của cô chưa kết thúc, yêu."
+
+Hắn không rút dương vật ra, mà trực tiếp đỡ mông cô ấy, dùng tư thế "đục ôm mặt đối mặt", nhấc cô ấy đang co giật trong dư vị cực khoái trực tiếp khỏi sofa! "Ư…!" Sự thay đổi tư thế đột ngột khiến thứ vốn đã cắm rất sâu ấy, dưới tác dụng trọng lực trực tiếp đâm đến sâu nhất. Hắn cứ thế treo cô ấy trên người, mỗi bước đi con hung khí đều cực kỳ ác ý đập nặng một lần trong cô ấy. Hắn ôm cô ấy, bước lớn về phía chiếc bàn ăn đắt tiền giữa sân hiên.
+
+"Rầm, !"
+
+Vi Ô Lai Khả cực kỳ thô bạo vung tay, quét trứng cá vực sâu, thịt nướng và ly rượu pha lê đắt tiền trên mặt bàn xuống đất, phát ra tiếng vỡ chói tai. Hắn ép cô ấy trực tiếp lên mép bàn ăn đá cẩm thạch đen lạnh lẽo lộn xộn. Nửa trên cơ thể cô ấy ép nằm trên mặt bàn, tóc đen rải trên rượu còn sót, nửa dưới thì lơ lửng ở mép bàn. Vi Ô Lai Khả đứng giữa hai chân cô ấy dang rộng, hai tay dài mạnh mẽ siết chặt gốc đùi cô ấy, tách ra hai bên đến mức lớn nhất. Ánh sáng lạnh sân hiên không chút thương tiếc chiếu sáng chỗ riêng tư nhầy nhụa gắn chặt của hai người.
+
+"Vừa nãy chẳng muốn ngồi ăn mãi sao?"
+
+Hắn cực kỳ thô tục dùng ngón tay gảy nhẹ cửa hang đã bị đục hơi lộn ra, sưng đỏ dâm đãng, sau đó eo lùi tấc, tiếp theo là cú đâm sâu cực kỳ hung hãn,
+
+"Bây giờ, tôi cũng phải trên bàn ăn, thưởng thức món chính của tôi."
+
+Mặt bàn đá cẩm thạch đen lạnh lẽo áp lưng không phòng bị, mang theo cơn rùng mình lạnh giá, nhưng sao cũng không dập tắt ngọn lửa tà chạy lung tung trong cơ thể cô ấy. Trong sự đan xen cực độ mệt mỏi và dư vị cực khoái, cơ thể cô ấy mềm như nước, nhưng ánh mắt vẫn sáng đến kinh người. Cô ấy cực kỳ chậm giơ bàn tay vì kiệt sức hơi run, đưa đầu ngón tay chạm vào vũng chất lỏng "Tinh Thần Tiêu Diệt" phát sáng u ám trên mặt bàn. Chất lỏng nhớt tím sẫm gần đen dính đầu ngón tay. Cô ấy đón ánh nhìn Vi Ô Lai Khả như muốn nuốt sống, cực kỳ cố ý, cực kỳ gợi dụ đặt ngón tay nhuốm rượu mạnh lên ngực trắng tuyết đang thở gấp. Chất lỏng tím sẫm quét quanh hạt đỏ, sự chấn động thị giác mạnh mẽ như bức tranh cực lạc sa đọa. Cảm giác nóng bỏng kích tình và ăn mòn nhẹ đặc trưng rượu mạnh cao cấp trong nháy mắt nổ tung ở đầu nhạy cảm cực độ, khiến cô ấy không nhịn được tuôn tiếng rên vụn vặt.
+
+"Vậy sao?"
 
 Cô ấy gượng chút sức cuối cùng trêu chọc, giọng khàn nhưng toát ra sắc đẹp quyến rũ.
 
-"Tôi thấy lực ấy còn chưa đủ làm món ăn kèm. Sao, ma tinh cao cấp cao quý chỉ biết cách ra vào đơn điệu thế thôi sao?" Câu này như ném viên băng vào nồi dung nham sôi, trong nháy mắt gây nổ hủy thiên diệt địa. "Đơn điệu?" Đáy mắt Vi Ô Lai Khả không chỉ có dục vọng cuồng loạn, còn bốc cháy mong muốn thắng thua nguy hiểm bị kích nổ hoàn toàn, thề sẽ hủy hoại cô hoàn toàn. Hai bàn tay thô ráp nóng bỏng hắn đột ngột túm chặt eo mảnh mai cô ấy, thậm chí kéo cả người cô ấy ra ngoài bàn cực kỳ dã man nửa tấc, khiến mông cô ấy hoàn toàn lơ lửng, treo giữa xương mu cứng của hắn và mép bàn. "Vì cô dùng thuốc kích tình mạnh nhất vực sâu làm gia vị," hắn ép thân hình khổng lồ xuống, đè chặt cô ấy lên mặt bàn, gương mặt tuyệt mỹ áp sát ngực cô ấy, "vậy tôi để cô nếm thử, bị con ác ma 'đơn điệu' ăn sạch từ đầu đến cuối." Hắn không còn đóng cọc mưa bão như trước. Trái lại, eo bụng đột ngột đâm tới, cây dương vật thô to dính nước cô ấy nhớt "pộp" một tiếng, cực kỳ sâu, không giữ chút gì đâm vào sâu nhất hang hoa cô ấy, đầu to khổng lồ siết chặt đỉnh cửa cung đóng chặt. "Ư…!" Cô ấy bị cú này đâm tê da đầu, mười ngón bấu chặt mặt bàn đá cẩm thạch trơn. Nhưng hắn không rút ra. Hắn để con hung khí kinh hãi chôn sâu trong cô ấy, eo hông bắt đầu tốc độ cực kỳ chậm gây phẫn nộ, cực kỳ nặng nề vẽ vòng nghiền. Thân hình cực kỳ thô to và gân xanh nổi phồng, trong nội bì chặt chẽ nhạy cảm của cô ấy tùy ý xoay trộn, từng tấc thịt mềm đều bị nhiệt độ và độ cứng kinh người ấy ép mở, cào qua. Sự nghiền chậm nhưng sâu vào tâm hồn này, so với rút đẩy nhanh còn tra tấn hơn, ép thịt hang cô ấy không kiểm soát tiết ra từng đợt nước, xối xả chảy xuống theo chỗ giao hợp, thậm chí nhỏ giọt xuống nền đá cẩm thạch. Đồng thời, hắn há miệng, không khách khí ngậm trọn hạt đỏ tẩm "Tinh Thần Tiêu Diệt" của cô ấy. Lưỡi nóng bỏng ác ma, răng sắc, hòa cảm giác châm chích nóng bỏng khi rượu mạnh bay hơi, trong nháy mắt gây thảm họa giác quan trước ngực cô ấy. Hắn tham lam mút cắn miếng thịt mềm ấy, nuốt rượu còn sót cùng tiếng rên của cô ấy vào bụng, thậm chí phát ra tiếng nước "bộp bộp" cực kỳ dâm đãng, mặt lưỡi thô ráp không chút thương xót cào qua đầu nhạy cảm. "Ha a… Vi、Vi Ô Lai Khả… đừng cứ đỉnh đó mãi…" Phía trên là sự cướp đoạt điên cuồng rượu mạnh và môi lưỡi ác ma, phía dưới là cơ quan tính dục kinh hãi siết chặt cửa cung nghiền tàn nhẫn. Kích thích kép cực độ khiến phòng tuyến cô ấy trong nháy mắt sụp đổ, hai chân không kiểm soát co giật, bắp chân yếu ớt đá loạn trên không, sao cũng không thoát khỏi tấm lưới dục vọng hắn giăng. "Đừng?" Hắn ngậm chỗ nhạy cảm trước ngực cô ấy, mơ hồ phát ra tiếng cười khảy, eo nghiền trong nháy mắt tiếp theo biến bản gia tăng, "Vừa nãy chẳng còn chê tôi không đủ làm món ăn kèm sao, quản lý cao quý? Cứ cảm nhận xem, tôi dùng cây dương vật đơn điệu này đục cái hang tham ăn của cô đến mức không khép lại thế nào!" Hơi thở cô ấy đã rối loạn đến cực điểm, tầm nhìn dưới khoái cảm mạnh mẽ và kiệt sức nghiêm trọng trập trùng tối. Nhưng ngay khi Vi Ô Lai Khả chuẩn bị kéo hai chân cô ấy, tiến hành đợt nghiền kiểu vực sâu mới, cô ấy lại cực kỳ khó khăn, cực kỳ ngoan cố chống hai tay lên mặt bàn đá cẩm thạch lạnh. Cô ấy ép ngồi dậy khỏi mặt bàn. "A…" Sự chuyển đổi tư thế bất ngờ khiến cây dương vật nóng bỏng vốn chôn sâu trong cô ấy, dưới áp lực trọng lực và góc độ, cực kỳ kinh hãi đâm thẳng vào chỗ sâu nhất của cô ấy. Cô ấy không kịp quan tâm cảm giác tê chua và đau do thịt hang bị ép đến cực độ, run rẩy giơ đôi cánh tay đầy mồ hôi và ánh nước, không do dự vòng quanh cổ hắn. Cô ấy ép kéo gương mặt đầy xâm lược vì dục vọng của hắn về phía mình, hai chân thuận thế siết chặt eo thon chắc phía sau, hoàn toàn biến thành tư thế cưỡi mặt đối mặt cực kỳ táo bạo, mang ý khống chế. Hai cơ thể gắn chặt, ngực trần nhuốm rượu mạnh của hắn ép chặt ngực trắng tuyết dao động gấp của cô ấy. Cây hung khí thô to khổng lồ ấy thì với độ sâu cực kỳ kinh hãi, siết chặt trong hang hoa cô ấy. Cô ấy ngẩng đầu, đôi mắt ướt nước mắt sinh lý, dưới ánh sao u tối sáng đến kinh người. Cô ấy nhìn chằm chằm đôi mắt đã hoàn toàn biến thành hình đồng tử dọc đỏ sẫm của hắn, dùng hết sức cuối cùng, khàn khàn mà kiêu ngạo ra lệnh: "Ha a… ngẩng đầu lên…" Môi đỏ cô ấy gần như chạm đầu mũi hắn, "Vì ngài không muốn kết thúc nhanh, vậy nhìn vào mắt tôi… đem hết năng lực của ngài ra…" Thời gian như đông cứng trong khoảnh khắc. Vi Ô Lai Khả nhìn chằm chằm mắt cô ấy. Cảm giác linh hồn cực kỳ cao cấp của hắn có thể nhìn thấu dục vọng vô số sinh linh địa ngục, lúc này trong mắt cô ấy chỉ thấy một thứ, dù cơ thể đã sa vào khoái lạc cực kỳ dâm đãng, linh hồn vẫn cao cao tại thượng, cố gắng nuốt trọn ác ma. Sự kiêu ngạo này, qua cây dương vật nối trong cô ấy, men theo thịt mềm nóng bỏng siết chặt của cô ấy, như dòng điện thuần túy nhất, trực tiếp đánh thủng ngưỡng phóng tinh kinh hãi thuộc đực rựa cao giai của hắn. "Cô là… kẻ điên từ đầu đến cuối…" Giọng Vi Ô Lai Khả khàn đến khủng khiếp, đôi đồng tử đỏ sẫm co rút dữ dội. Hắn không còn sự ung dung quý tộc, cũng không còn sự khống chế đẩy kéo. Đôi bàn tay đầy gân xanh siết chặt eo mông cô ấy, ép cả người cô ấy nặng nề xuống, đồng thời eo bụng như thú hoang mất kiểm soát, bắt đầu đâm lên hung hãn nhất nguyên thủy, dã man nhất. "Đập! Đập! Đập! Đập!" Tiếng đập thịt cực kỳ kịch liệt vang vọng sân hiên trống trải. Mỗi cú đập hắn đều nhìn mắt cô ấy; mỗi lần sâu, đầu to nóng bỏng khổng lồ đều cực kỳ tàn bạo đẩy mở thịt mềm cửa cung cô ấy. Cô ấy bị rung đến gần tan xác, nước mắt không kiểm soát trào ra, nhưng cô ấy vẫn siết chặt răng, không những không nhắm mắt, ngược lại siết chặt tất cả thịt mềm nội bì, triển khai sự siết ép điên cuồng với kẻ xâm nhập thô to. "Ư, !" Cuối cùng, sau mấy chục cú đâm sâu cực kỳ dữ dội liên tiếp, thân hình khổng lồ Vi Ô Lai Khả đột ngột cứng đờ. Gân cổ hắn nổi từng sợi, cổ họng lăn cực kỳ dữ dội, phát ra tiếng gầm nặng nề như thú chết. Hắn đè cây dương vật tím sưng đến cực điểm siết chặt cửa cung sâu nhất của cô ấy, không rút ra nữa. Một luồng tinh dịch ác ma cực kỳ nóng bỏng, đặc đến kinh người, như núi lửa phun, với lượng kinh hãi, điên cuồng phun vào cung non và đường hẹp của cô ấy. "A a a…" Cô ấy bị nóng đến phát ra tiếng khóc cực khoái biến điệu, cơ thể co giật dữ dội. Quá nhiều. Lượng phóng tinh ác ma ngoài loài người vượt xa giới hạn chứa đựng cơ quan con người. Tinh dịch trắng đặc không những trong nháy mắt lấp đầy chỗ sâu nhất của cô ấy, còn vì nội xuất không phòng bị, theo khe hai người giao hợp không kiểm soát tràn ra lượng lớn. "Cù đố… rầm rầm…" Tinh dịch trắng đặc cực kỳ trộn cùng nước trong cô ấy phun khi cực khoái, theo gốc đùi trắng tuyết từng luồng chảy xuống, nhỏ giọt xuống bàn ăn đen, thậm chí tụ thành vũng nước trắng cực kỳ dâm đãng. Còn Vi Ô Lai Khả như đã phát tiết xong sự kìm nén mấy trăm năm, hắn thở dốc, cúi mặt chôn sâu vào hốc cổ cô ấy, thậm chí còn ngắt quãng tiếp tục bơm tinh dịch trắng dư vị vào cô ấy. Khi cực khoái và phóng tinh cực kỳ dài ấy cuối cùng kết thúc, sợi dây căng cuối cùng trong cô ấy cũng đứt hẳn. Trạng thái "kiệt sức" như bóng tối trong nháy mắt nuốt chửng cô ấy. Cô ấy không giơ nổi một ngón tay, thậm chí không cảm nhận được cảm giác con vật to lớn rút ra cực kỳ chậm, mắt tối sầm, cả cơ thể như búp bê rách mềm nhũn, ngã về phía ngực nóng bỏng hắn. … Vi Ô Lai Khả nhanh tay đỡ cơ thể mềm nhũn đang trượt xuống. Hắn quỳ một gối bên mép bàn đá cẩm thạch lộn xộn, ngực còn vì cuộc giao hợp cường độ siêu cao vừa rồi dao động dữ dội. Hắn cúi đầu, nhìn cô ấy đã ngủ say hoàn toàn trong lòng, gương mặt đỏ ửng còn đọng vết nước mắt, tóc đen dính mồ hôi và dịch trên má, đùi trong và hang hoa non nớt ngoài đều dính tinh dịch trắng đặc khổng lồ của hắn. Đôi mắt đỏ sẫm hắn dần rửa sạch cuồng loạn, khôi phục dòng hổ phách u ám lưu chuyển thường ngày. Chỉ là lúc này, vực sâu ấy không còn mưu tính và kiêu ngạo, chỉ có sự đắm đuối sâu thẳm gần như bệnh hoạn và thỏa hiệp. Hắn không những không quan tâm bộ âu phục lộn xộn và dục vọng chưa hoàn toàn nguôi của mình, mà cực kỳ nhẹ nhàng ôm cô ấy rời chiếc bàn ăn lạnh lẽo dính bẩn. Không có ma pháp, động tác cực kỳ vụng về lại vô cùng cẩn thận rút vài tờ khăn ăn cotton cao cấp mềm nhất, nhúng nước sạch tinh khiết đã tan thành nước ấm trong xô đá. Hắn cực kỳ kiên nhẫn, từng chút từng chút lau tinh dịch nhớt và nước trên đùi cô ấy, động tác nhẹ nhàng, sợ vải thô chà xước da đỏ sưng vì ma sát cường độ cao. Chỉ riêng việc dọn dẹp đơn giản ấy vẫn hao tổn sức tự chế lớn của hắn, mới không trong quá trình này lại phát cuồng. Sau khi dọn dẹp xong vết bẩn tệ nhất, hắn cởi áo khoác tây đen đắt tiền vô cùng, còn nguyên vẹn duy nhất, cực kỳ kín đáo bọc chặt cơ thể trần non nớt cô ấy, rồi như ôm bảo vật tuyệt thế, ôm chắc cô ấy trên ngực rộng. "Cô thắng rồi, quản lý."
+"Tôi thấy lực ấy còn chưa đủ làm món ăn kèm. Sao, ma tinh cao cấp cao quý chỉ biết cách ra vào đơn điệu thế thôi sao?"
+
+Câu này như ném viên băng vào nồi dung nham sôi, trong nháy mắt gây nổ hủy thiên diệt địa.
+
+"Đơn điệu?"
+
+Đáy mắt Vi Ô Lai Khả không chỉ có dục vọng cuồng loạn, còn bốc cháy mong muốn thắng thua nguy hiểm bị kích nổ hoàn toàn, thề sẽ hủy hoại cô hoàn toàn. Hai bàn tay thô ráp nóng bỏng hắn đột ngột túm chặt eo mảnh mai cô ấy, thậm chí kéo cả người cô ấy ra ngoài bàn cực kỳ dã man nửa tấc, khiến mông cô ấy hoàn toàn lơ lửng, treo giữa xương mu cứng của hắn và mép bàn.
+
+"Vì cô dùng thuốc kích tình mạnh nhất vực sâu làm gia vị,"
+
+Hắn ép thân hình khổng lồ xuống, đè chặt cô ấy lên mặt bàn, gương mặt tuyệt mỹ áp sát ngực cô ấy,
+
+"Vậy tôi để cô nếm thử, bị con ác ma 'đơn điệu' ăn sạch từ đầu đến cuối."
+
+Hắn không còn đóng cọc mưa bão như trước. Trái lại, eo bụng đột ngột đâm tới, cây dương vật thô to dính nước cô ấy nhớt "pộp" một tiếng, cực kỳ sâu, không giữ chút gì đâm vào sâu nhất hang hoa cô ấy, đầu to khổng lồ siết chặt đỉnh cửa cung đóng chặt. "Ư…!" Cô ấy bị cú này đâm tê da đầu, mười ngón bấu chặt mặt bàn đá cẩm thạch trơn. Nhưng hắn không rút ra. Hắn để con hung khí kinh hãi chôn sâu trong cô ấy, eo hông bắt đầu tốc độ cực kỳ chậm gây phẫn nộ, cực kỳ nặng nề vẽ vòng nghiền. Thân hình cực kỳ thô to và gân xanh nổi phồng, trong nội bì chặt chẽ nhạy cảm của cô ấy tùy ý xoay trộn, từng tấc thịt mềm đều bị nhiệt độ và độ cứng kinh người ấy ép mở, cào qua. Sự nghiền chậm nhưng sâu vào tâm hồn này, so với rút đẩy nhanh còn tra tấn hơn, ép thịt hang cô ấy không kiểm soát tiết ra từng đợt nước, xối xả chảy xuống theo chỗ giao hợp, thậm chí nhỏ giọt xuống nền đá cẩm thạch. Đồng thời, hắn há miệng, không khách khí ngậm trọn hạt đỏ tẩm "Tinh Thần Tiêu Diệt" của cô ấy. Lưỡi nóng bỏng ác ma, răng sắc, hòa cảm giác châm chích nóng bỏng khi rượu mạnh bay hơi, trong nháy mắt gây thảm họa giác quan trước ngực cô ấy. Hắn tham lam mút cắn miếng thịt mềm ấy, nuốt rượu còn sót cùng tiếng rên của cô ấy vào bụng, thậm chí phát ra tiếng nước "bộp bộp" cực kỳ dâm đãng, mặt lưỡi thô ráp không chút thương xót cào qua đầu nhạy cảm.
+
+"Ha a… Vi、Vi Ô Lai Khả… đừng cứ đỉnh đó mãi…"
+
+Phía trên là sự cướp đoạt điên cuồng rượu mạnh và môi lưỡi ác ma, phía dưới là cơ quan tính dục kinh hãi siết chặt cửa cung nghiền tàn nhẫn. Kích thích kép cực độ khiến phòng tuyến cô ấy trong nháy mắt sụp đổ, hai chân không kiểm soát co giật, bắp chân yếu ớt đá loạn trên không, sao cũng không thoát khỏi tấm lưới dục vọng hắn giăng. "Đừng?" Hắn ngậm chỗ nhạy cảm trước ngực cô ấy, mơ hồ phát ra tiếng cười khảy, eo nghiền trong nháy mắt tiếp theo biến bản gia tăng,
+
+"Vừa nãy chẳng còn chê tôi không đủ làm món ăn kèm sao, quản lý cao quý? Cứ cảm nhận xem, tôi dùng cây dương vật đơn điệu này đục cái hang tham ăn của cô đến mức không khép lại thế nào!"
+
+Hơi thở cô ấy đã rối loạn đến cực điểm, tầm nhìn dưới khoái cảm mạnh mẽ và kiệt sức nghiêm trọng trập trùng tối. Nhưng ngay khi Vi Ô Lai Khả chuẩn bị kéo hai chân cô ấy, tiến hành đợt nghiền kiểu vực sâu mới, cô ấy lại cực kỳ khó khăn, cực kỳ ngoan cố chống hai tay lên mặt bàn đá cẩm thạch lạnh. Cô ấy ép ngồi dậy khỏi mặt bàn. "A…" Sự chuyển đổi tư thế bất ngờ khiến cây dương vật nóng bỏng vốn chôn sâu trong cô ấy, dưới áp lực trọng lực và góc độ, cực kỳ kinh hãi đâm thẳng vào chỗ sâu nhất của cô ấy. Cô ấy không kịp quan tâm cảm giác tê chua và đau do thịt hang bị ép đến cực độ, run rẩy giơ đôi cánh tay đầy mồ hôi và ánh nước, không do dự vòng quanh cổ hắn. Cô ấy ép kéo gương mặt đầy xâm lược vì dục vọng của hắn về phía mình, hai chân thuận thế siết chặt eo thon chắc phía sau, hoàn toàn biến thành tư thế cưỡi mặt đối mặt cực kỳ táo bạo, mang ý khống chế. Hai cơ thể gắn chặt, ngực trần nhuốm rượu mạnh của hắn ép chặt ngực trắng tuyết dao động gấp của cô ấy. Cây hung khí thô to khổng lồ ấy thì với độ sâu cực kỳ kinh hãi, siết chặt trong hang hoa cô ấy. Cô ấy ngẩng đầu, đôi mắt ướt nước mắt sinh lý, dưới ánh sao u tối sáng đến kinh người. Cô ấy nhìn chằm chằm đôi mắt đã hoàn toàn biến thành hình đồng tử dọc đỏ sẫm của hắn, dùng hết sức cuối cùng, khàn khàn mà kiêu ngạo ra lệnh:
+
+"Ha a… ngẩng đầu lên…"
+
+Môi đỏ cô ấy gần như chạm đầu mũi hắn,
+
+"Vì ngài không muốn kết thúc nhanh, vậy nhìn vào mắt tôi… đem hết năng lực của ngài ra…"
+
+Thời gian như đông cứng trong khoảnh khắc. Vi Ô Lai Khả nhìn chằm chằm mắt cô ấy. Cảm giác linh hồn cực kỳ cao cấp của hắn có thể nhìn thấu dục vọng vô số sinh linh địa ngục, lúc này trong mắt cô ấy chỉ thấy một thứ, dù cơ thể đã sa vào khoái lạc cực kỳ dâm đãng, linh hồn vẫn cao cao tại thượng, cố gắng nuốt trọn ác ma. Sự kiêu ngạo này, qua cây dương vật nối trong cô ấy, men theo thịt mềm nóng bỏng siết chặt của cô ấy, như dòng điện thuần túy nhất, trực tiếp đánh thủng ngưỡng phóng tinh kinh hãi thuộc đực rựa cao giai của hắn.
+
+"Cô là… kẻ điên từ đầu đến cuối…"
+
+Giọng Vi Ô Lai Khả khàn đến khủng khiếp, đôi đồng tử đỏ sẫm co rút dữ dội. Hắn không còn sự ung dung quý tộc, cũng không còn sự khống chế đẩy kéo. Đôi bàn tay đầy gân xanh siết chặt eo mông cô ấy, ép cả người cô ấy nặng nề xuống, đồng thời eo bụng như thú hoang mất kiểm soát, bắt đầu đâm lên hung hãn nhất nguyên thủy, dã man nhất.
+
+"Đập! Đập! Đập! Đập!"
+
+Tiếng đập thịt cực kỳ kịch liệt vang vọng sân hiên trống trải. Mỗi cú đập hắn đều nhìn mắt cô ấy; mỗi lần sâu, đầu to nóng bỏng khổng lồ đều cực kỳ tàn bạo đẩy mở thịt mềm cửa cung cô ấy. Cô ấy bị rung đến gần tan xác, nước mắt không kiểm soát trào ra, nhưng cô ấy vẫn siết chặt răng, không những không nhắm mắt, ngược lại siết chặt tất cả thịt mềm nội bì, triển khai sự siết ép điên cuồng với kẻ xâm nhập thô to. "Ư, !" Cuối cùng, sau mấy chục cú đâm sâu cực kỳ dữ dội liên tiếp, thân hình khổng lồ Vi Ô Lai Khả đột ngột cứng đờ. Gân cổ hắn nổi từng sợi, cổ họng lăn cực kỳ dữ dội, phát ra tiếng gầm nặng nề như thú chết. Hắn đè cây dương vật tím sưng đến cực điểm siết chặt cửa cung sâu nhất của cô ấy, không rút ra nữa. Một luồng tinh dịch ác ma cực kỳ nóng bỏng, đặc đến kinh người, như núi lửa phun, với lượng kinh hãi, điên cuồng phun vào cung non và đường hẹp của cô ấy.
+
+"A a a…"
+
+Cô ấy bị nóng đến phát ra tiếng khóc cực khoái biến điệu, cơ thể co giật dữ dội. Quá nhiều. Lượng phóng tinh ác ma ngoài loài người vượt xa giới hạn chứa đựng cơ quan con người. Tinh dịch trắng đặc không những trong nháy mắt lấp đầy chỗ sâu nhất của cô ấy, còn vì nội xuất không phòng bị, theo khe hai người giao hợp không kiểm soát tràn ra lượng lớn.
+
+"Cù đố… rầm rầm…"
+
+Tinh dịch trắng đặc cực kỳ trộn cùng nước trong cô ấy phun khi cực khoái, theo gốc đùi trắng tuyết từng luồng chảy xuống, nhỏ giọt xuống bàn ăn đen, thậm chí tụ thành vũng nước trắng cực kỳ dâm đãng. Còn Vi Ô Lai Khả như đã phát tiết xong sự kìm nén mấy trăm năm, hắn thở dốc, cúi mặt chôn sâu vào hốc cổ cô ấy, thậm chí còn ngắt quãng tiếp tục bơm tinh dịch trắng dư vị vào cô ấy. Khi cực khoái và phóng tinh cực kỳ dài ấy cuối cùng kết thúc, sợi dây căng cuối cùng trong cô ấy cũng đứt hẳn. Trạng thái "kiệt sức" như bóng tối trong nháy mắt nuốt chửng cô ấy. Cô ấy không giơ nổi một ngón tay, thậm chí không cảm nhận được cảm giác con vật to lớn rút ra cực kỳ chậm, mắt tối sầm, cả cơ thể như búp bê rách mềm nhũn, ngã về phía ngực nóng bỏng hắn. … Vi Ô Lai Khả nhanh tay đỡ cơ thể mềm nhũn đang trượt xuống. Hắn quỳ một gối bên mép bàn đá cẩm thạch lộn xộn, ngực còn vì cuộc giao hợp cường độ siêu cao vừa rồi dao động dữ dội. Hắn cúi đầu, nhìn cô ấy đã ngủ say hoàn toàn trong lòng, gương mặt đỏ ửng còn đọng vết nước mắt, tóc đen dính mồ hôi và dịch trên má, đùi trong và hang hoa non nớt ngoài đều dính tinh dịch trắng đặc khổng lồ của hắn. Đôi mắt đỏ sẫm hắn dần rửa sạch cuồng loạn, khôi phục dòng hổ phách u ám lưu chuyển thường ngày. Chỉ là lúc này, vực sâu ấy không còn mưu tính và kiêu ngạo, chỉ có sự đắm đuối sâu thẳm gần như bệnh hoạn và thỏa hiệp. Hắn không những không quan tâm bộ âu phục lộn xộn và dục vọng chưa hoàn toàn nguôi của mình, mà cực kỳ nhẹ nhàng ôm cô ấy rời chiếc bàn ăn lạnh lẽo dính bẩn. Không có ma pháp, động tác cực kỳ vụng về lại vô cùng cẩn thận rút vài tờ khăn ăn cotton cao cấp mềm nhất, nhúng nước sạch tinh khiết đã tan thành nước ấm trong xô đá. Hắn cực kỳ kiên nhẫn, từng chút từng chút lau tinh dịch nhớt và nước trên đùi cô ấy, động tác nhẹ nhàng, sợ vải thô chà xước da đỏ sưng vì ma sát cường độ cao. Chỉ riêng việc dọn dẹp đơn giản ấy vẫn hao tổn sức tự chế lớn của hắn, mới không trong quá trình này lại phát cuồng. Sau khi dọn dẹp xong vết bẩn tệ nhất, hắn cởi áo khoác tây đen đắt tiền vô cùng, còn nguyên vẹn duy nhất, cực kỳ kín đáo bọc chặt cơ thể trần non nớt cô ấy, rồi như ôm bảo vật tuyệt thế, ôm chắc cô ấy trên ngực rộng.
+
+"Cô thắng rồi, quản lý."
 
 Hắn cúi đầu, cực kỳ nhẹ hôn đỉnh đầu đầy mồ hôi cô ấy, giọng trầm ấm quyến luyến.
 
-"Dù là bữa rượu này, hay con ác ma tôi… đều bị cô ăn sạch rồi." Trước khi chìm vào bóng tối hoàn toàn, cô ấy gượng mở mí mắt nặng trĩu nhìn gương mặt gần kề, khoé môi cực kỳ yếu ớt nhếch lên nụ cười chiến thắng, thốt ra lời thì thầm nhỏ như muỗi. "Ngày mai nhớ… đánh tiền bữa ăn này… cùng hóa đơn hai chiếc váy bị ngài phá hủy… tất cả vào tài khoản tôi…"
+"Dù là bữa rượu này, hay con ác ma tôi… đều bị cô ăn sạch rồi."
+
+Trước khi chìm vào bóng tối hoàn toàn, cô ấy gượng mở mí mắt nặng trĩu nhìn gương mặt gần kề, khoé môi cực kỳ yếu ớt nhếch lên nụ cười chiến thắng, thốt ra lời thì thầm nhỏ như muỗi.
+
+"Ngày mai nhớ… đánh tiền bữa ăn này… cùng hóa đơn hai chiếc váy bị ngài phá hủy… tất cả vào tài khoản tôi…"
 
 ---
 
 ## Chương 70 – Dịch Vụ Buổi Sáng (18+)
 
-Vi Ô Lai Khả dùng miệng phục vụ cô ấy khi cô ấy tỉnh dậy, "trả nợ" theo cách hắn hiểu. Cô ấy ra lệnh hắn tiếp tục. Sau đó cô ấy chủ động đổi sang tư thế cưỡi, kiểm soát nhịp độ chậm hành hạ, khiến Vi Ô Lai Khả mất kiểm soát. Cả hai cùng đạt cực khoái, cô ấy phun nước, Vi Ô Lai Khả phóng tinh khổng lồ vào tử cung cô ấy. Vi Ô Lai Khả ôm cô ấy vào phòng tắm tắm rửa dịu dàng, mặc áo choàng tắm, sau đó chuẩn bị bữa sáng và xử lý hóa đơn. Cuộc vui thân xác kỳ quặc nhưng cực kỳ thỏa mãn kết thúc, ngày mới, lãnh địa cũ, và người theo đuổi ác ma nguy hiểm đã bị cô ấy đeo vòng cổ vô hình. Trò chơi mới chỉ bắt đầu.
+Vi Ô Lai Khả dùng miệng phục vụ cô ấy khi cô ấy tỉnh dậy,
+
+"Trả nợ"
+
+Theo cách hắn hiểu. Cô ấy ra lệnh hắn tiếp tục. Sau đó cô ấy chủ động đổi sang tư thế cưỡi, kiểm soát nhịp độ chậm hành hạ, khiến Vi Ô Lai Khả mất kiểm soát. Cả hai cùng đạt cực khoái, cô ấy phun nước, Vi Ô Lai Khả phóng tinh khổng lồ vào tử cung cô ấy. Vi Ô Lai Khả ôm cô ấy vào phòng tắm tắm rửa dịu dàng, mặc áo choàng tắm, sau đó chuẩn bị bữa sáng và xử lý hóa đơn. Cuộc vui thân xác kỳ quặc nhưng cực kỳ thỏa mãn kết thúc, ngày mới, lãnh địa cũ, và người theo đuổi ác ma nguy hiểm đã bị cô ấy đeo vòng cổ vô hình. Trò chơi mới chỉ bắt đầu.
 
 ---
 
@@ -12708,15 +14322,29 @@ Hắn đẩy xe bạc đến bên bàn thấp trước sofa, động tác cực 
 
 Vi Ô Lai Khả hơi nghiêng đầu, đôi mắt hổ phách sâu đậm quyến rũ phản chiếu dung nhan uể oải của cô ấy. Khóe môi cong lên nụ cười cực kỳ gợi cảm, mang ý mời công, giọng trầm đầy mê hoặc:
 
-"Bây giờ hóa đơn đã thanh toán xong, thể lực cũng đang được bổ sung. Bỏ qua cạnh tranh thương nghiệp… cô cảm thấy trải nghiệm hẹn hò riêng tư lần này, từ bữa tối đêm qua đến… "món ngọt sáng sớm" vừa rồi, cô cho tôi mấy điểm?"
+"Bây giờ hóa đơn đã thanh toán xong, thể lực cũng đang được bổ sung. Bỏ qua cạnh tranh thương nghiệp… cô cảm thấy trải nghiệm hẹn hò riêng tư lần này, từ bữa tối đêm qua đến… "
+
+Món ngọt sáng sớm
+
+" vừa rồi, cô cho tôi mấy điểm?"
 
 Cháo nấm linh chi sương lửa ấm nóng tan trong miệng, vị tươi ngon cực kỳ trôi theo cổ họng xuống dạ dày trống rỗng, mang theo hơi ấm thỏa thích. Cô ấy nuốt thức ăn trong miệng, vô cùng uể oải tựa lưng vào thành sofa nhung. Dùng đôi mắt còn chút ánh nước vừa tỉnh giấc, từ trên xuống dưới, hơi nhướng lông mày nhìn Vi Ô Lai Khả đang ngồi trên thảm.
 
-"Phép tắc bàn ăn bữa tối rất tệ, không những đập vỡ đồ sứ quý giá, còn làm hỏng áo tôi. Giọng cô ấy mang chút khàn sau khi thỏa mãn, nhưng lại giương vẻ nhà tư bản cực kỳ lạnh lùng, Tuy nhiên… xét thái độ "nhân viên phục vụ" bồi thường bằng thân thể còn tương đối thành khẩn, miễn cưỡng cho ngài sáu điểm đủ qua vậy."
+"Phép tắc bàn ăn bữa tối rất tệ, không những đập vỡ đồ sứ quý giá, còn làm hỏng áo tôi. Giọng cô ấy mang chút khàn sau khi thỏa mãn, nhưng lại giương vẻ nhà tư bản cực kỳ lạnh lùng, Tuy nhiên… xét thái độ "
 
-Nghe hai từ "sáu điểm" và "nhân viên phục vụ", đôi mắt hổ phách của Vi Ô Lai Khả đang in bóng cô ấy đột nhiên ngưng lại một nhịp. Trong không khí như có dòng điện cực kỳ vi tế lóe qua. Tiếp đó, tiếng cười cực kỳ trầm đục, nồng đượm vang lên từ lồng ngực rắn chắc dưới áo sơ mi lụa đen. Hắn không những không chán nản vì số điểm thấp tàn nhẫn ấy, ngược lại như nghe được câu chuyện cười hay nhất địa ngục, cười đến vai rộng run run. "Sáu điểm? Đủ qua?" Vi Ô Lai Khả dừng cười, đôi mắt hẹp dài quyến rũ nguy hiểm nheo lại, đáy mắt nhảy sáng dòng đỏ tối. Hắn không đứng dậy cãi lại, mà cực kỳ thuận tòng men theo vạt áo choàng trắng buông xuống của cô ấy, áp nhẹ má vào phía trong đầu gối cô ấy. Đây là tư thế phục tùng cực kỳ dễ lộ sơ hở, mang ý nịnh bợ. Nhưng do hắn thực hiện lại tràn đầy sự gợi cảm khiến người ta nổi da gà cùng sức căng.
+Nhân viên phục vụ
 
-"Sự "bồi thường" gần như làm hỏng cô của tôi, trong hệ thống đánh giá của cô chỉ đáng sáu điểm thôi sao. Quản lý của tôi, cô thật là ông chủ tham lam vô độ và lạnh lùng vô tình nhất địa ngục. Hắn hơi nghiêng đầu, qua vải cotton mềm, cực kỳ dâm đãng mà thành kính hôn nhẹ xương đầu gối cô ấy. Hơi thở ấm áp xuyên vải phun lên da mềm nhão của cô ấy, kích lên chút ngứa vi tế."
+" bồi thường bằng thân thể còn tương đối thành khẩn, miễn cưỡng cho ngài sáu điểm đủ qua vậy."
+
+Nghe hai từ "sáu điểm" và "nhân viên phục vụ", đôi mắt hổ phách của Vi Ô Lai Khả đang in bóng cô ấy đột nhiên ngưng lại một nhịp. Trong không khí như có dòng điện cực kỳ vi tế lóe qua. Tiếp đó, tiếng cười cực kỳ trầm đục, nồng đượm vang lên từ lồng ngực rắn chắc dưới áo sơ mi lụa đen. Hắn không những không chán nản vì số điểm thấp tàn nhẫn ấy, ngược lại như nghe được câu chuyện cười hay nhất địa ngục, cười đến vai rộng run run.
+
+"Sáu điểm? Đủ qua?"
+
+Vi Ô Lai Khả dừng cười, đôi mắt hẹp dài quyến rũ nguy hiểm nheo lại, đáy mắt nhảy sáng dòng đỏ tối. Hắn không đứng dậy cãi lại, mà cực kỳ thuận tòng men theo vạt áo choàng trắng buông xuống của cô ấy, áp nhẹ má vào phía trong đầu gối cô ấy. Đây là tư thế phục tùng cực kỳ dễ lộ sơ hở, mang ý nịnh bợ. Nhưng do hắn thực hiện lại tràn đầy sự gợi cảm khiến người ta nổi da gà cùng sức căng.
+
+"Sự "bồi thường
+
+" gần như làm hỏng cô của tôi, trong hệ thống đánh giá của cô chỉ đáng sáu điểm thôi sao. Quản lý của tôi, cô thật là ông chủ tham lam vô độ và lạnh lùng vô tình nhất địa ngục. Hắn hơi nghiêng đầu, qua vải cotton mềm, cực kỳ dâm đãng mà thành kính hôn nhẹ xương đầu gối cô ấy. Hơi thở ấm áp xuyên vải phun lên da mềm nhão của cô ấy, kích lên chút ngứa vi tế."
 
 Có vẻ ông chủ 【Phi Sắc Quỷ Ảnh】 ở chỗ cô còn thời gian "thử việc" cực kỳ dài phía trước. Hắn ngẩng mắt, tầm nhìn như thực chất liếm qua má cô ấy, Nhưng không sao. Thứ tôi không thiếu nhất chính là sự kiên nhẫn lâu dài và thể lực cực kỳ dồi dào. Bốn điểm bị trừ ấy, tôi sẽ khiến cô trong những ngày tới… ở mọi nơi cô nghĩ được hoặc không nghĩ tới, cực kỳ cam tâm tình nguyện cộng lại cho tôi. Ngón tay thon dài hắn nhẹ nhàng vén sợi tóc đen rối bên má cô ấy ra sau tai, giọng điệu cực kỳ tự nhiên hoàn thành chuyển kênh hoàn mỹ, từ tình nhân cực kỳ nguy hiểm trong nháy mắt biến về bá chủ thương nghiệp oai phong Ảnh Hạng.
 
@@ -12744,7 +14372,11 @@ Karl cuối cùng động rồi. Hắn chậm rãi, thanh nhã bước xuống b
 
 "Chào mừng trở về, chủ nhân. Karl tiêu chuẩn hơi cúi người, đôi mắt sâu thẳm quét qua đôi môi đỏ sưng của cô ấy, đồng tử chỗ sâu như có thứ gì cực kỳ kinh hãi đang giãy giụa, xé toạc, Còn với thứ giống nòi thấp kém dựa bán sắc khởi nghiệp trong đống rác… 【Huyết Hồng Thánh Bôi】 đương nhiên không chào đón. Đây là nơi bàn khế ước cao nhã và thương nghiệp, không phải thùng rác dùng để dọn chất lỏng bẩn thỉu người khác."
 
-Nụ cười Vi Ô Lai Khả không những không biến mất, trái lại nguy hiểm đậm thêm. "Vậy à?" Nam ma tinh cùng sở hữu thế lực to lớn này lười biếng tựa lên ghế lụa xe, Đáng tiếc, chủ nhân các ngươi đêm qua với "dịch vụ dọn dẹp" của tôi cực kỳ hài lòng. Kẻ chỉ biết giương vẻ, đến chủ nhân của mình cũng không thỏa mãn nổi như khúc gỗ, chỉ có thể đứng nhìn người khác thay các ngươi làm tròn cái "trung thành" ấy thôi. Khí áp kinh hãi trong nháy mắt bao trùm cả con phố, lũ tiểu quỷ qua đường sợ đến mức lao xuống cống thoát nước. Tân hoan và cựu ái, sự cám dỗ cực độ cùng sự trung thành cực đoan, hai luồng khí trường ác ma kinh hãi đang lấy cô ấy làm trung tâm triển khai sự lăng trì và bóp nghẹt thảm liệt.
+Nụ cười Vi Ô Lai Khả không những không biến mất, trái lại nguy hiểm đậm thêm.
+
+"Vậy à?"
+
+Nam ma tinh cùng sở hữu thế lực to lớn này lười biếng tựa lên ghế lụa xe, Đáng tiếc, chủ nhân các ngươi đêm qua với "dịch vụ dọn dẹp" của tôi cực kỳ hài lòng. Kẻ chỉ biết giương vẻ, đến chủ nhân của mình cũng không thỏa mãn nổi như khúc gỗ, chỉ có thể đứng nhìn người khác thay các ngươi làm tròn cái "trung thành" ấy thôi. Khí áp kinh hãi trong nháy mắt bao trùm cả con phố, lũ tiểu quỷ qua đường sợ đến mức lao xuống cống thoát nước. Tân hoan và cựu ái, sự cám dỗ cực độ cùng sự trung thành cực đoan, hai luồng khí trường ác ma kinh hãi đang lấy cô ấy làm trung tâm triển khai sự lăng trì và bóp nghẹt thảm liệt.
 
 Cô ấy quả quyết đưa tay, dùng mu bàn tay tùy ý chà nhẹ khóe môi bị hôn đỏ bỏng, không những không tiếp lời Vi Ô Lai Khả đầy khiêu khích, trái lại quay đầu, đưa mắt cực kỳ bình tĩnh nhìn Karl trên bậc thang.
 
@@ -12832,11 +14464,19 @@ Ngón tay thon dài tái nhợt của hắn cầm chiếc khăn tay trắng đó
 
 Giọng Karl trầm thấp mà bình ổn. Qua lớp vải bông mềm, đầu ngón tay ấm áp của hắn tại vị trí bị Vi Ô Lai Khả giày xéo mạnh, cực kỳ dùng sức lau một cái. Cái này mang theo lực đạo không dung từ chối, tàn nhẫn mà triệt để xóa sạch ánh nước chói mắt thuộc ác ma đực khác, mùi vị, thậm chí nhiệt độ cuối cùng còn sót trên đó.
 
-"Ngoài gió lớn, dính chút bụi. Hắn cúi mắt, cực kỳ hoàn mỹ che giấu tia khoái cảm bệnh hoạn dâng lên trong đáy mắt vì "đã lau sạch ngài", rồi cực kỳ tao nhã thu khăn tay về túi áo khoác."
+"Ngoài gió lớn, dính chút bụi. Hắn cúi mắt, cực kỳ hoàn mỹ che giấu tia khoái cảm bệnh hoạn dâng lên trong đáy mắt vì "
+
+Đã lau sạch ngài
+
+", rồi cực kỳ tao nhã thu khăn tay về túi áo khoác."
 
 Sau khi hoàn thành tuyên bố chủ quyền bí mật này, Karl mở quyển sổ da đen trong tay, hồi phục sự chuyên nghiệp tuyệt đối.
 
-"Về con mồi mất chủ nhân đó……trong mạng lưới tình báo thật sự có vài tin đồn cực kỳ thú vị. Ngón tay thon dài của Karl vuốt qua những phù văn nhảy nhót trên trang sổ, Đêm nam tước Có Nha bạo tử, trang viên ngầm của hắn bị các thế lực cũ thừa cơ cướp bóc. Nhưng ở chỗ sâu nhất kho vàng, họ không tìm thấy "sinh linh" được đấu giá cao. Chỉ phát hiện chân tay tan nát khắp đất, cùng……"
+"Về con mồi mất chủ nhân đó……trong mạng lưới tình báo thật sự có vài tin đồn cực kỳ thú vị. Ngón tay thon dài của Karl vuốt qua những phù văn nhảy nhót trên trang sổ, Đêm nam tước Có Nha bạo tử, trang viên ngầm của hắn bị các thế lực cũ thừa cơ cướp bóc. Nhưng ở chỗ sâu nhất kho vàng, họ không tìm thấy "
+
+Sinh linh
+
+" được đấu giá cao. Chỉ phát hiện chân tay tan nát khắp đất, cùng……"
 
 Karl ngẩng mắt, ánh nhìn sâu thẳm: , Cùng vệt máu vàng cực kỳ chói mắt tỏa thánh quang yếu ớt và hận thù mãnh liệt. Vệt máu kéo dài đến "Phá Dực Bần Dân Quật" hỗn loạn nhất, không chịu hội quản hạt Ảnh Hạng. Hắn thoát khỏi trói buộc rồi, chủ nhân. Một món cực kỳ nguy hiểm ôm hận thù khắc cốt với ác ma, bên bờ sa đọa, giờ đang lang thang nơi cống rãnh địa ngục.
 
@@ -12882,7 +14522,11 @@ Karl yên lặng nghe xong lo ngại của cô ấy. Đôi mắt đen sâu thẳ
 
 Karl bước nửa bước về phía trước, bóng tối theo động tác của hắn cực kỳ tinh tế kéo dài trên mặt đất.
 
-"Nhưng ngài khác. Trong người ngài chảy dòng máu Solomon Vương, đó là một trong nguồn gốc tối thượng của mọi quy tắc khế ước sâu trong địa ngục. Chúng ta không cần hắn "ngoan ngoãn nghe lời", chúng ta chỉ cần đặt dấu ấn quy tắc cực kỳ tuyệt đối lên khế ước. Một thiên sứ sa đọa đầy hận thù, cực kỳ kiêu ngạo lại không thể không khuất phục sự bóc lột khế ước, bản thân đã là món trân châu đỉnh cấp kích thích khát vọng tiêu dùng của những ác ma cao giai nhất trong đời sống đêm cực kỳ dâm đãng này. Chỉ cần có thể nhốt hắn vào tầng hầm 【Huyết Hồng Thánh Bôi】, sức bùng nổ dư luận và tài sản thực chất hắn mang lại cho ngài sẽ gấp mười lần sòng bạc cũ nát kia."
+"Nhưng ngài khác. Trong người ngài chảy dòng máu Solomon Vương, đó là một trong nguồn gốc tối thượng của mọi quy tắc khế ước sâu trong địa ngục. Chúng ta không cần hắn "
+
+Ngoan ngoãn nghe lời
+
+", chúng ta chỉ cần đặt dấu ấn quy tắc cực kỳ tuyệt đối lên khế ước. Một thiên sứ sa đọa đầy hận thù, cực kỳ kiêu ngạo lại không thể không khuất phục sự bóc lột khế ước, bản thân đã là món trân châu đỉnh cấp kích thích khát vọng tiêu dùng của những ác ma cao giai nhất trong đời sống đêm cực kỳ dâm đãng này. Chỉ cần có thể nhốt hắn vào tầng hầm 【Huyết Hồng Thánh Bôi】, sức bùng nổ dư luận và tài sản thực chất hắn mang lại cho ngài sẽ gấp mười lần sòng bạc cũ nát kia."
 
 Ngõ cụt sâu trong Phá Dực Bần Dân Quật. Nước mưa đục lẫn bùn tỏa mùi thối chảy xuống từ đường ống cực kỳ đổ nát.
 
@@ -12896,7 +14540,11 @@ Trong góc tối bao quanh ngõ cụt này, sáng lên hơn chục đôi mắt t
 
 "Vậy nên, kiến nghị của tại hạ là, coi đó như đầu tư cao rủi ro lợi nhuận cao. Trong đại sảnh 【Huyết Hồng Thánh Bôi】, giọng cực kỳ bình tĩnh của Karl kéo bức tranh về hiện thực. Hắn cực kỳ thuần thục lấy từ trong áo khoác ra một tờ da cừu sắc vàng ám tỏa khí tức cực kỳ cổ xưa uy nghiêm, nhẹ nhàng trải phẳng trên quầy bar."
 
-"Trạng thái hắn giờ đã là cung tận lực kiệt. Chúng ta không cần đối đầu chính diện. Chỉ cần cực kỳ kiên nhẫn chờ đợi chút, đợi hắn trong trốn chạy và ẩn náu kiệt sạch thể lực, rơi vào cận tử, ngài lại giáng lâm với tư thế "đấng cứu rỗi" hoặc "kẻ bóc lột cuối cùng". Chỉ cần dùng cộng hưởng khế ước của ngài, ấn tờ khế ước thuê mướn cưỡng chế này lên mặt hắn, dù hắn cực kỳ tức giận muốn tự nổ, linh hồn hắn cũng sẽ bị giam cầm vĩnh viễn trong quán bar này, vì ngài kiếm từng đồng hồn tệ cực kỳ quyến rũ."
+"Trạng thái hắn giờ đã là cung tận lực kiệt. Chúng ta không cần đối đầu chính diện. Chỉ cần cực kỳ kiên nhẫn chờ đợi chút, đợi hắn trong trốn chạy và ẩn náu kiệt sạch thể lực, rơi vào cận tử, ngài lại giáng lâm với tư thế "
+
+Đấng cứu rỗi" hoặc "kẻ bóc lột cuối cùng
+
+". Chỉ cần dùng cộng hưởng khế ước của ngài, ấn tờ khế ước thuê mướn cưỡng chế này lên mặt hắn, dù hắn cực kỳ tức giận muốn tự nổ, linh hồn hắn cũng sẽ bị giam cầm vĩnh viễn trong quán bar này, vì ngài kiếm từng đồng hồn tệ cực kỳ quyến rũ."
 
 Karl hơi cúi người, ánh nhìn cực kỳ chuyên chú nhìn cô ấy.
 
@@ -12910,7 +14558,15 @@ Nghe lời tán thưởng của cô ấy, đáy đôi mắt đen sâu thẳm c�
 
 Giọng Karl ép rất thấp, thanh tuyến vốn thanh liệt như suối lạnh, giờ vì sự thỏa mãn cực kỳ mạnh mẽ và niềm vui được ngài hoàn toàn công nhận, nhuộm lên một lớp khàn đặc và đậm đà chết người.
 
-"Còn bọn "cáo" chỉ biết phung phí hồn tệ, hoặc dùng thủ đoạn thể xác hạ giai tranh sự chú ý của ngài…… Hắn cực kỳ không rõ ràng dừng lại một chút, đáy mắt lóe qua sự lạnh lẽo bị kìm nén đến cực hạn, Chúng vĩnh viễn không thể hiểu, cái gì mới là "trung thành" thật sự có giá trị với ngài."
+"Còn bọn "
+
+Cáo
+
+" chỉ biết phung phí hồn tệ, hoặc dùng thủ đoạn thể xác hạ giai tranh sự chú ý của ngài…… Hắn cực kỳ không rõ ràng dừng lại một chút, đáy mắt lóe qua sự lạnh lẽo bị kìm nén đến cực hạn, Chúng vĩnh viễn không thể hiểu, cái gì mới là "
+
+Trung thành
+
+" thật sự có giá trị với ngài."
 
 Lời vừa dứt, Karl cực kỳ chậm rãi, lại cực kỳ không dung từ chối đưa tay ra với cô ấy. Bàn tay xương cốt rõ ràng, tái nhợt gần như thấy được mạch máu xanh bên dưới của hắn, cực kỳ chính xác nắm lấy tay phải vừa đặt xuống của cô ấy. Lòng bàn tay mang nhiệt độ đặc hữu sinh vật bóng tối lạnh giá, nhưng lực độ áp sát da thịt lại toát ra sự chấp nhất và nhiệt thành gần như bệnh hoạn.
 
@@ -12944,11 +14600,19 @@ Cô ấy cực kỳ tùy ý gạt nhẹ vạt váy bộ váy tím sẫm, khóe m
 
 Đôi mắt cô ấy ánh lên sự tính toán cực kỳ lý trí.
 
-"Một tù nhân cực kỳ căm thù ác ma, nếu thấy chúng ta mang đám đánh thuê đông đảo đi bắt hắn, chỉ kích thích sự điên cuồng cùng chết của hắn. Không thể để hắn cảm giác được sự đe dọa của chúng ta, không thể để hắn coi chúng ta là kẻ thù. Phải vào lúc hắn tuyệt vọng nhất, khao khát cứu rỗi nhất, xuất hiện với tư thế "hoàn toàn không có khí tức ác ma" của con người, khiến hắn……thả lỏng cảnh giác."
+"Một tù nhân cực kỳ căm thù ác ma, nếu thấy chúng ta mang đám đánh thuê đông đảo đi bắt hắn, chỉ kích thích sự điên cuồng cùng chết của hắn. Không thể để hắn cảm giác được sự đe dọa của chúng ta, không thể để hắn coi chúng ta là kẻ thù. Phải vào lúc hắn tuyệt vọng nhất, khao khát cứu rỗi nhất, xuất hiện với tư thế "
+
+Hoàn toàn không có khí tức ác ma
+
+" của con người, khiến hắn……thả lỏng cảnh giác."
 
 Karl yên lặng nghe kế hoạch của cô ấy, đôi mắt đen như hắc diệm thạch kia, sự cuồng nhiệt cùng kính sợ cực kỳ thầm kín đang đan xen. Hắn cực kỳ tao nhã chạm tay vào ngực hành lễ, giọng mang theo run rẩy vì bị lý luận tư bản ăn thịt không thấy máu của cô ấy chinh phục sâu sắc:
 
-"Thao túng tâm lý cực kỳ cao minh, chủ nhân sáng suốt của tại hạ. Lấy "ơn cứu mạng" làm áo khoác, thường hay tạo ra chiếc ách tuyệt vọng kiên cố không thể phá vỡ nhất trên đời. Vậy xin cho phép con chó săn của ngài khoác áo khoác đi đêm cho ngài."
+"Thao túng tâm lý cực kỳ cao minh, chủ nhân sáng suốt của tại hạ. Lấy "
+
+Ơn cứu mạng
+
+" làm áo khoác, thường hay tạo ra chiếc ách tuyệt vọng kiên cố không thể phá vỡ nhất trên đời. Vậy xin cho phép con chó săn của ngài khoác áo khoác đi đêm cho ngài."
 
 Sâu nhất Ảnh Hạng, Phá Dực Bần Dân Quật. Không khí nơi đây cực kỳ đục ngầu, mùi thối rữa nồng nặc cùng mùi chua chát cống thoát nước trộn lẫn thành khí độc khiến người ta muốn nôn. Cô ấy khoác chiếc áo choàng đen ẩn náu cực kỳ rộng rãi, theo sau Karl, dẫm trên con đường đá trơn trượt lầy lội, cực kỳ lặng lẽ xâm nhập vùng đất ngoài pháp luật này.
 
@@ -12978,7 +14642,11 @@ Cô ấy không giải phóng bất kỳ tính công kích nào, chỉ cực k�
 
 Cô ấy cực kỳ nhẹ nhàng hạ lệnh.
 
-Giây tiếp theo, ba đạo ám ảnh đen cực kỳ sắc nhọn như tia chớp lướt ra từ bóng tối phía sau cô ấy. "Phụt! Phụt! Phụt!" Ba con ma ăn xác khổng lồ sắp lao vào Y Lị Á, thậm chí chưa kịp phát ra tiếng thảm thiết, đầu to đã cực kỳ ngay ngắn trượt xuống vũng nước bùn, máu đen cực kỳ thối rữa bắn tóe khắp đất, nhưng cực kỳ chính xác tránh khỏi phạm vi cô ấy đang đứng.
+Giây tiếp theo, ba đạo ám ảnh đen cực kỳ sắc nhọn như tia chớp lướt ra từ bóng tối phía sau cô ấy.
+
+"Phụt! Phụt! Phụt!"
+
+Ba con ma ăn xác khổng lồ sắp lao vào Y Lị Á, thậm chí chưa kịp phát ra tiếng thảm thiết, đầu to đã cực kỳ ngay ngắn trượt xuống vũng nước bùn, máu đen cực kỳ thối rữa bắn tóe khắp đất, nhưng cực kỳ chính xác tránh khỏi phạm vi cô ấy đang đứng.
 
 Biến cố bất ngờ khiến Y Lị Á run rẩy cực kỳ dữ dội. Hắn cực kỳ khó khăn siết chặt mũi xương sườn đáng sợ trong tay, như con sói cô độc hấp hối, chằm chằm nhìn cô ấy. Nhưng trong đôi mắt đầy tơ máu và đỏ sẫm của hắn, ngoài sự đề phòng cực độ và điên cuồng thần kinh, cực kỳ hiếm thấy xuất hiện một tia sửng sốt sâu sắc.
 
@@ -13048,7 +14716,17 @@ Cô ấy cực kỳ tự nhiên hơi nghiêng đầu, trong giọng điệu cự
 
 Đôi mắt xanh biếc đầy tơ máu của Y Lị Á run rẩy cực kỳ dữ dội.
 
-"Không phải nhà thổ", "không cần bán thân", "nô lệ tình dục cấm luyến"……Mấy từ này đột ngột đập lên dây thần kinh hắn, tạo thành tương phản cực kỳ mạnh mẽ với mọi sự ngược đãi cực kỳ tàn nhẫn và ám thị cực kỳ ô uế hắn trải qua sau khi bị bắt. Hắn cực kỳ chằm chằm nhìn vào mắt cô ấy, cố tìm sự che đậy giả dối, hay dục vọng ẩn giấu biến thái trong sâu thẳm đôi mắt đen kia.
+"Không phải nhà thổ"
+
+,
+
+"Không cần bán thân"
+
+,
+
+"Nô lệ tình dục cấm luyến"
+
+……Mấy từ này đột ngột đập lên dây thần kinh hắn, tạo thành tương phản cực kỳ mạnh mẽ với mọi sự ngược đãi cực kỳ tàn nhẫn và ám thị cực kỳ ô uế hắn trải qua sau khi bị bắt. Hắn cực kỳ chằm chằm nhìn vào mắt cô ấy, cố tìm sự che đậy giả dối, hay dục vọng ẩn giấu biến thái trong sâu thẳm đôi mắt đen kia.
 
 Nhưng hắn chẳng tìm thấy gì. Chỉ có sự lý trí cực kỳ lạnh lùng, và một tia tò mò thuần túy cực kỳ thuần túy đối với "loài quý hiếm".
 
@@ -13132,7 +14810,11 @@ Một tên bạo phát đầy vảy xanh đột nhiên đập bàn, hung hăng g
 
 Chúng trong không khí ngột ngạt cực kỳ điên cuồng chém giết, phun khói xì gà cực kỳ khó chịu, trong mắt toàn là sự cuồng nhiệt tiền bạc.
 
-Không một ai biết, ngay khi chúng vì miếng "mỡ lớn" cái gọi là này tranh đến đầu đổ máu chảy, "chiến lợi phẩm thiêng liêng" hiếm có giá trị liên thành khiến nam tước Ếch thật sự chuốc lấy họa sát thân, sớm đã bị một quản lý nhân loại tỉnh táo, với chi phí zero buồn cười, ngạo nghễ thu vào túi.
+Không một ai biết, ngay khi chúng vì miếng "mỡ lớn" cái gọi là này tranh đến đầu đổ máu chảy,
+
+"Chiến lợi phẩm thiêng liêng"
+
+Hiếm có giá trị liên thành khiến nam tước Ếch thật sự chuốc lấy họa sát thân, sớm đã bị một quản lý nhân loại tỉnh táo, với chi phí zero buồn cười, ngạo nghễ thu vào túi.
 
 Cửa sau 【Huyết Hồng Thánh Bôi】. Cánh cửa sắt cách âm cực kỳ nặng nề bị Karl cực kỳ lặng lẽ đẩy mở. Không khí khô ráo quen thuộc, mang hương thực vật nhẹ nhàng của quán bar trong nháy mắt bao bọc cô ấy, hữu hiệu xua tan cảm giác nhớt nháp cực kỳ khó chịu mà Phá Dực Bần Dân Quật mang lại.
 
@@ -13928,7 +15610,11 @@ Tiếng cười từ lồng ngực hắn rung lên, mang thứ khoan dung tột 
 
 Karl bước nửa bước, tự nhiên nhận từ tay cô ấy tờ tài liệu hơi chướng mắt, lật úp xuống tầng dưới cùng xe đẩy, như thể chỉ là đống giấy vụn vô giá trị.
 
-"Ngài vừa hoàn thành hoàn mỹ vụ săn bắt không tốn chi phí với chủng tộc thánh thiêng cao giai, lại đêm qua……vất vả 'an ủi' sứ ma của ngài. Khi nói "vất vả", đôi mắt đen sâu đột nhiên lóe tia lửa tối thầm kín, tầm nhìn không tránh được quét qua vết đỏ trên cổ cô ấy chưa hoàn toàn tan, Thể xác nhân loại của ngài thật sự cần thư giãn và dưỡng sức triệt để. Nếu hôm nay ngài không muốn thấy bất kỳ công văn nào, vận hành toàn bộ 【Huyết Hồng Thánh Bôi】 cùng những ánh nhìn toan dòm ngó nơi đây, tại hạ sẽ thay ngài sạch sẽ chặn ngoài cửa."
+"Ngài vừa hoàn thành hoàn mỹ vụ săn bắt không tốn chi phí với chủng tộc thánh thiêng cao giai, lại đêm qua……vất vả 'an ủi' sứ ma của ngài. Khi nói "
+
+Vất vả
+
+", đôi mắt đen sâu đột nhiên lóe tia lửa tối thầm kín, tầm nhìn không tránh được quét qua vết đỏ trên cổ cô ấy chưa hoàn toàn tan, Thể xác nhân loại của ngài thật sự cần thư giãn và dưỡng sức triệt để. Nếu hôm nay ngài không muốn thấy bất kỳ công văn nào, vận hành toàn bộ 【Huyết Hồng Thánh Bôi】 cùng những ánh nhìn toan dòm ngó nơi đây, tại hạ sẽ thay ngài sạch sẽ chặn ngoài cửa."
 
 Hắn hơi cúi người, bàn tay đeo găng trắng tinh đặt lên ngực, hành lễ quản gia ác ma tiêu chuẩn với cô ấy.
 
@@ -14084,7 +15770,11 @@ Còn Karl. Hắn luôn mặc bộ vest tối màu cắt may vừa vặn, đeo g�
 
 Điều khiến cô ấy cảm thấy kỳ diệu nhất là mỗi khi vô tình giao ánh nhìn với hắn lúc tuần tra, vị trợ lý quán bar bề ngoài lạnh lùng nghiêm cầu này luôn dùng tư thế cực kỳ chuyên nghiệp gật nhẹ với cô ấy. Nhưng dưới mặt nạ hoàn hảo công sự đó, trong đồng tử đen sâu luôn giấu tia lửa thầm kín mang nhiệt độ hừng hực chỉ cô ấy đọc được.
 
-Hắn dường như thật sự rất thích vở kịch "ban ngày cấp trên cấp dưới, bí mật nắm toàn quyền sở hữu" này.
+Hắn dường như thật sự rất thích vở kịch
+
+"Ban ngày cấp trên cấp dưới, bí mật nắm toàn quyền sở hữu"
+
+Này.
 
 Chiều hôm đó, quán bar chưa đón cao trào khách buổi tối. Cô ấy đang ngồi khu nghỉ bán mở tầng hai lật 《Tuần San Quỷ Ảnh》 lấy từ A Tát Tạ Nhĩ, Karl bưng tài liệu và ly nước trái cây đặc điều đi lên.
 
@@ -14486,13 +16176,29 @@ Khi tia ánh sáng sáng chói địa ngục đầu tiên xuyên khe rèm chiế
 
 ## Chương 81 – Trở Lại Nhân Gian
 
-Ba ngày yên bình trôi qua. Sáng ngày thứ tư, địa ngục vẫn là bầu trời u ám vạn năm không đổi, nhưng đồng hồ ma thuật trong phòng cô ấy đã chỉ rõ sáng tám giờ nhân gian. "Cốc cốc." Hai tiếng gõ cửa nhịp nhàng, gọn gàng, Karl đẩy cửa bước vào. Khi cô ấy ngẩng đầu nhìn hắn, không nhịn được nhướng mày.
+Ba ngày yên bình trôi qua. Sáng ngày thứ tư, địa ngục vẫn là bầu trời u ám vạn năm không đổi, nhưng đồng hồ ma thuật trong phòng cô ấy đã chỉ rõ sáng tám giờ nhân gian.
 
-Vị sứ ma cao giai thường mặc vest họa tiết bóng tối địa ngục phong cách quý tộc cổ điển, hôm nay cực kỳ hiếm thấy đổi sang bộ complet vest xám bạc đậm vô cùng bám sát thẩm mỹ hiện đại nhân loại. Cắt may vừa vặn hoàn hảo tô vẽ thân hình gầy gò thẳng tắp của hắn. Tóc đen thuần không còn khí mù thoát ra thỉnh thoảng, được chải gọn gàng khô ráo. Khiến cô ấy kinh ngạc hơn nữa là, hắn không rõ dùng ma pháp gì, đã biến làn da phi nhân gần như trong suốt, thoáng thấy đường vân đen thành da người trắng lạnh cực kỳ khỏe mạnh. Ngoài dung mạo xuất chúng quá mức, giờ hắn trông hoàn toàn là con người. "Chào buổi sáng, quản lý." Karl đứng cạnh mép giường cô ấy, ánh mắt sâu thẳm mang chút kỳ vọng và nhiệt huyết cực kỳ bí ẩn. Hắn đưa chiếc áo khoác ngoài màu be nhẹ nhàng treo trên cánh tay cho cô ấy.
+"Cốc cốc."
 
-Sau đó hắn hơi nghiêng người, cho cô ấy xem vài túi giấy bọc ngoài cực kỳ trầm, thậm chí in logo thương hiệu thực phẩm chức năng nhân gian nổi tiếng, hoàn hảo đúng yêu cầu "quà biếu đồng nghiệp tầng trung lưu bình thường khi đến thăm nhà". Nhưng ngón tay Karl khi lướt qua những túi giấy ấy, cực kỳ bí mật chỉ vào túi trong áo vest của hắn. Ở đó, nằm yên lặng một tấm thẻ đen cực kỳ mỏng, chứa sức mua khủng khiếp mà hắn chuyển đổi xuyên hai chiều không gian sang nhân gian.
+Hai tiếng gõ cửa nhịp nhàng, gọn gàng, Karl đẩy cửa bước vào. Khi cô ấy ngẩng đầu nhìn hắn, không nhịn được nhướng mày.
 
-"Tọa độ không gian đã hoàn toàn neo định, dấu ấn thông hành biên giới cũng đã cấy vào lớp lót áo ngoài của ngài và sâu trong linh hồn tôi. Tốc độ thời gian đã đồng bộ đến thời điểm khi ngài rời thế giới đó." Karl đưa bàn tay thon dài không còn đeo găng trắng mà có nhiệt độ và cảm giác chạm thật của con người ra, khóe miệng cong nụ cười hoàn mỹ khiến tim đập mạnh. "Chỉ cần ngài nắm tay tôi, chúng ta lập tức có thể đặt chân lên quê hương. Đã sẵn sàng đưa 'đồng nghiệp bình thường' của ngài đi gặp phụ huynh chưa, quản lý của tôi?"
+Vị sứ ma cao giai thường mặc vest họa tiết bóng tối địa ngục phong cách quý tộc cổ điển, hôm nay cực kỳ hiếm thấy đổi sang bộ complet vest xám bạc đậm vô cùng bám sát thẩm mỹ hiện đại nhân loại. Cắt may vừa vặn hoàn hảo tô vẽ thân hình gầy gò thẳng tắp của hắn. Tóc đen thuần không còn khí mù thoát ra thỉnh thoảng, được chải gọn gàng khô ráo. Khiến cô ấy kinh ngạc hơn nữa là, hắn không rõ dùng ma pháp gì, đã biến làn da phi nhân gần như trong suốt, thoáng thấy đường vân đen thành da người trắng lạnh cực kỳ khỏe mạnh. Ngoài dung mạo xuất chúng quá mức, giờ hắn trông hoàn toàn là con người.
+
+"Chào buổi sáng, quản lý."
+
+Karl đứng cạnh mép giường cô ấy, ánh mắt sâu thẳm mang chút kỳ vọng và nhiệt huyết cực kỳ bí ẩn. Hắn đưa chiếc áo khoác ngoài màu be nhẹ nhàng treo trên cánh tay cho cô ấy.
+
+Sau đó hắn hơi nghiêng người, cho cô ấy xem vài túi giấy bọc ngoài cực kỳ trầm, thậm chí in logo thương hiệu thực phẩm chức năng nhân gian nổi tiếng, hoàn hảo đúng yêu cầu
+
+"Quà biếu đồng nghiệp tầng trung lưu bình thường khi đến thăm nhà"
+
+. Nhưng ngón tay Karl khi lướt qua những túi giấy ấy, cực kỳ bí mật chỉ vào túi trong áo vest của hắn. Ở đó, nằm yên lặng một tấm thẻ đen cực kỳ mỏng, chứa sức mua khủng khiếp mà hắn chuyển đổi xuyên hai chiều không gian sang nhân gian.
+
+"Tọa độ không gian đã hoàn toàn neo định, dấu ấn thông hành biên giới cũng đã cấy vào lớp lót áo ngoài của ngài và sâu trong linh hồn tôi. Tốc độ thời gian đã đồng bộ đến thời điểm khi ngài rời thế giới đó."
+
+Karl đưa bàn tay thon dài không còn đeo găng trắng mà có nhiệt độ và cảm giác chạm thật của con người ra, khóe miệng cong nụ cười hoàn mỹ khiến tim đập mạnh.
+
+"Chỉ cần ngài nắm tay tôi, chúng ta lập tức có thể đặt chân lên quê hương. Đã sẵn sàng đưa 'đồng nghiệp bình thường' của ngài đi gặp phụ huynh chưa, quản lý của tôi?"
 
 Cô ấy nhìn ác ma vest chỉnh chu giả trang như tinh anh xã hội đỉnh cao nhân loại trước mắt, không nhịn được trêu chọc.
 
@@ -14502,61 +16208,137 @@ Cô ấy không đợi hắn trả lời, thu lại sắc mặt đùa, cực k�
 
 "Nhớ, đến nơi đừng tùy tiện nói. Địa ngục, thiên sứ, ác ma, Solomon… tất cả đều là từ cấm tuyệt đối. Dù hiện tại thế nào, ở nhân gian em là phụ nữ bình thường xuất thân trong sạch. Bố mẹ em tuổi cao rồi, không chấp nhận nổi lượng thông tin lớn thế."
 
-Cô ấy ngẩng đầu nhìn hắn cực kỳ nghiêm túc, sợ ác ma quen sống ở địa ngục lộ tẩy. "Và em mới 'nhậm chức' một tháng rưỡi, phải nghĩ cách giải thích việc anh đại cuối tuần cùng em về nhà. Hay... nói anh là tiền bối công việc? Thâm niên hơn em, vì dẫn dắt em trong công việc nên quan hệ khá thân, vừa hay thuận đường nên cùng đến thăm? Còn nữa, tuyệt đối đừng nói công việc em là quản lý đại lý quán bar, cứ nói là nhân viên công ty bình thường. Nhớ chưa?"
+Cô ấy ngẩng đầu nhìn hắn cực kỳ nghiêm túc, sợ ác ma quen sống ở địa ngục lộ tẩy.
 
-Nghe cô ấy gạt bỏ quan hệ, cố gắng đặt hai người vào khoảng cách an toàn xã hội, đôi mắt Karl giả trang màu nâu sẫm dâng lên chút sinh động cùng ý nghĩa tinh tế hơi ác. "Tiền bối thâm niên sâu trong nghề, cuối tuần cùng tân nhân xinh đẹp mới nhậm chức một tháng rưỡi về thăm cha mẹ?" Karl lặp lại âm điệu cô ấy định, giọng trầm khàn cực hay giữa răng môi nhai hai chữ "tiền bối" ra mấy phần hàm ý khiến người đỏ mặt. Hắn hơi cúi xuống, chỉnh cổ áo cho cô ấy, động tác tự nhiên như đã tập trăm nghìn lần. "Lý do không tệ, nghe có sức thuyết phục, Vãn Vãn." Thậm chí hắn đổi cách xưng hô với cô ấy cực kỳ mượt mà, bỏ chức vụ lạnh lùng, thay bằng cách gọi thân mật nhân gian, "Dù xuất phát vẫn hơi đáng ngờ, như kẻ theo đuổi tích cực muốn để lại ấn tượng tốt trước nhạc phụ nhạc mẫu trong tương lai."
+"Và em mới 'nhậm chức' một tháng rưỡi, phải nghĩ cách giải thích việc anh đại cuối tuần cùng em về nhà. Hay... Nói anh là tiền bối công việc? Thâm niên hơn em, vì dẫn dắt em trong công việc nên quan hệ khá thân, vừa hay thuận đường nên cùng đến thăm? Còn nữa, tuyệt đối đừng nói công việc em là quản lý đại lý quán bar, cứ nói là nhân viên công ty bình thường. Nhớ chưa?"
 
-Cô ấy hơi ngẩng đầu, nhìn hắn chỉnh cổ áo cho mình. "Anh đang chê khả năng biên kịch của em à, Karl?"
+Nghe cô ấy gạt bỏ quan hệ, cố gắng đặt hai người vào khoảng cách an toàn xã hội, đôi mắt Karl giả trang màu nâu sẫm dâng lên chút sinh động cùng ý nghĩa tinh tế hơi ác.
+
+"Tiền bối thâm niên sâu trong nghề, cuối tuần cùng tân nhân xinh đẹp mới nhậm chức một tháng rưỡi về thăm cha mẹ?"
+
+Karl lặp lại âm điệu cô ấy định, giọng trầm khàn cực hay giữa răng môi nhai hai chữ "tiền bối" ra mấy phần hàm ý khiến người đỏ mặt. Hắn hơi cúi xuống, chỉnh cổ áo cho cô ấy, động tác tự nhiên như đã tập trăm nghìn lần.
+
+"Lý do không tệ, nghe có sức thuyết phục, Vãn Vãn."
+
+Thậm chí hắn đổi cách xưng hô với cô ấy cực kỳ mượt mà, bỏ chức vụ lạnh lùng, thay bằng cách gọi thân mật nhân gian,
+
+"Dù xuất phát vẫn hơi đáng ngờ, như kẻ theo đuổi tích cực muốn để lại ấn tượng tốt trước nhạc phụ nhạc mẫu trong tương lai."
+
+Cô ấy hơi ngẩng đầu, nhìn hắn chỉnh cổ áo cho mình.
+
+"Anh đang chê khả năng biên kịch của em à, Karl?"
 
 Cô ấy cố ý làm mặt nghiêm, khoanh tay trước ngực, giọng mang chút ngỗ ngược.
 
-"Chứ còn biết làm sao. Em không muốn về xong còn phải đối phó bảy cô tám dì hỏi han. Nếu anh thấy kịch bản này khó diễn, hay anh đừng đi cùng em nữa, em về một mình vậy." Ngón tay Karl chỉnh cổ áo cho cô ấy hơi dừng. Đôi mắt giả trang nâu sẫm của hắn, chút vui vẻ phấn khởi vì trò chơi vai vế vừa dâng lên, trong nháy mắt chìm xuống, thay bằng ánh sáng chấp niệm sâu thẳm khiến tim người run. "Không được." Hắn từ chối cực kỳ quả quyết, giọng trầm thậm chí không còn sự trơn tru ung dung thường ngày, mà thấm chút cứng nhắc không cho bàn cãi. Karl thu tay, thuận thế nhẹ nhàng nắm cổ tay cô ấy khoanh trước ngực, kéo tay cô ấy từng chút xuống, bọc vào lòng bàn tay ấm áp của hắn. Nhiệt độ con người mô phỏng gần hoàn hảo, thậm chí cảm giác sần chai cầm bút lâu năm trong lòng bàn tay cũng chân thực vô cùng. "Xin đừng tùy tiện dùng giả định 'một mình về' để trừng phạt trợ lý của ngài, Vãn Vãn."
+"Chứ còn biết làm sao. Em không muốn về xong còn phải đối phó bảy cô tám dì hỏi han. Nếu anh thấy kịch bản này khó diễn, hay anh đừng đi cùng em nữa, em về một mình vậy."
+
+Ngón tay Karl chỉnh cổ áo cho cô ấy hơi dừng. Đôi mắt giả trang nâu sẫm của hắn, chút vui vẻ phấn khởi vì trò chơi vai vế vừa dâng lên, trong nháy mắt chìm xuống, thay bằng ánh sáng chấp niệm sâu thẳm khiến tim người run.
+
+"Không được."
+
+Hắn từ chối cực kỳ quả quyết, giọng trầm thậm chí không còn sự trơn tru ung dung thường ngày, mà thấm chút cứng nhắc không cho bàn cãi. Karl thu tay, thuận thế nhẹ nhàng nắm cổ tay cô ấy khoanh trước ngực, kéo tay cô ấy từng chút xuống, bọc vào lòng bàn tay ấm áp của hắn. Nhiệt độ con người mô phỏng gần hoàn hảo, thậm chí cảm giác sần chai cầm bút lâu năm trong lòng bàn tay cũng chân thực vô cùng.
+
+"Xin đừng tùy tiện dùng giả định 'một mình về' để trừng phạt trợ lý của ngài, Vãn Vãn."
 
 Hắn hơi cúi xuống, ngang tầm mắt cô ấy, ánh nhìn chuyên chú như muốn nuốt chửng cả con người cô ấy.
 
-Sau đó hắn cong khóe miệng, nụ cười ấy xứng đáng mẫu mực hoàn mỹ của tinh anh thương giới xã hội nhân loại, đắc thể, tự tin, mang áp lực vừa phải. "Về tính logic chặt chẽ của kịch bản, ngài dường như đánh giá thấp năng lực phân tích trật tự xã hội nhân loại của sứ ma cao giai." Karl nắm tay cô ấy đi đến trước gương mặc áo, để cô ấy nhìn hai người đứng vai kề vai trong gương. "Thân phận tôi bịa cho ngài là: Karl Lorenz, ba mươi tuổi. Đương nhiệm đối tác cấp cao kiêm cố vấn đánh giá rủi ro khu vực Đại Trung Hoa của tập đoàn quản lý tài sản xuyên quốc gia. Còn ngài, là nhà phân tích sơ cấp có tiềm năng thương mại cực lớn mà tôi rất coi trọng." Hắn nhìn cô ấy trong gương, giọng bình tĩnh tung ra từng "thiết định"
+Sau đó hắn cong khóe miệng, nụ cười ấy xứng đáng mẫu mực hoàn mỹ của tinh anh thương giới xã hội nhân loại, đắc thể, tự tin, mang áp lực vừa phải.
 
-kinh hãi.
+"Về tính logic chặt chẽ của kịch bản, ngài dường như đánh giá thấp năng lực phân tích trật tự xã hội nhân loại của sứ ma cao giai."
 
-"Hồ sơ tôi có bằng tiến sĩ kép Ivy League, hồ sơ thuế quá khứ hoàn mỹ không tì vết, dưới tên có nhiều bất động sản cao cấp không gây chú ý quá mức. Tôi không những có thể hoàn hảo trả lời mọi câu hỏi hóc búa của cha mẹ ngài về quê quán, gia đình (Hoa kiều hải ngoại đã quá cố để lại di sản phong phú), thu nhập thậm chí sở thích ăn uống, còn có thể thuận lý thành chương dùng danh nghĩa 'quan tâm công sở' để chặn mọi họ hàng nhàm chán muốn sắp xếp hẹn hò cho ngài." Karl hơi nghiêng đầu, hơi thở ấm phả qua vành tai cô ấy. "Thậm chí tôi đã sắp xếp sẵn một chiếc xe thương vụ trầm phù hợp thân phận 'công nhân viên cao cấp' này trong bãi đỗ ngầm khu nhà các ngài. Vậy nên không cần ngài vắt óc bịa lý do." Đôi mắt nâu sẫm của hắn lấp lánh ánh sáng làm chủ tuyệt đối, tay nắm tay cô ấy hơi siết chặt. "Ngài chỉ cần dẫn đường, mọi rắc rối còn lại, dù là tra hỏi thực tế hay trở ngại chiều không gian, 'tiền bối' của ngài sẽ thay ngài quét sạch."
+Karl nắm tay cô ấy đi đến trước gương mặc áo, để cô ấy nhìn hai người đứng vai kề vai trong gương.
 
-Trước lớp vỏ ngụy trang hoàn mỹ không kẽ hở này, cô ấy hoàn toàn mất khả năng phản bác. Theo lời Karl, quanh người hắn bắt đầu tỏa sóng ma lực xám bạc cực kỳ bí ẩn. Sóng này không có mùi lưu huỳnh sâu địa ngục, ngược lại mang hơi thở lạnh lẽo thuần khiết như tinh không. "Độ cong không gian đã khóa, xác minh quyền thông hành đã thông qua."
+"Thân phận tôi bịa cho ngài là: Karl Lorenz, ba mươi tuổi. Đương nhiệm đối tác cấp cao kiêm cố vấn đánh giá rủi ro khu vực Đại Trung Hoa của tập đoàn quản lý tài sản xuyên quốc gia. Còn ngài, là nhà phân tích sơ cấp có tiềm năng thương mại cực lớn mà tôi rất coi trọng."
+
+Hắn nhìn cô ấy trong gương, giọng bình tĩnh tung ra từng "thiết định"
+
+Kinh hãi.
+
+"Hồ sơ tôi có bằng tiến sĩ kép Ivy League, hồ sơ thuế quá khứ hoàn mỹ không tì vết, dưới tên có nhiều bất động sản cao cấp không gây chú ý quá mức. Tôi không những có thể hoàn hảo trả lời mọi câu hỏi hóc búa của cha mẹ ngài về quê quán, gia đình (Hoa kiều hải ngoại đã quá cố để lại di sản phong phú), thu nhập thậm chí sở thích ăn uống, còn có thể thuận lý thành chương dùng danh nghĩa 'quan tâm công sở' để chặn mọi họ hàng nhàm chán muốn sắp xếp hẹn hò cho ngài."
+
+Karl hơi nghiêng đầu, hơi thở ấm phả qua vành tai cô ấy.
+
+"Thậm chí tôi đã sắp xếp sẵn một chiếc xe thương vụ trầm phù hợp thân phận 'công nhân viên cao cấp' này trong bãi đỗ ngầm khu nhà các ngài. Vậy nên không cần ngài vắt óc bịa lý do."
+
+Đôi mắt nâu sẫm của hắn lấp lánh ánh sáng làm chủ tuyệt đối, tay nắm tay cô ấy hơi siết chặt.
+
+"Ngài chỉ cần dẫn đường, mọi rắc rối còn lại, dù là tra hỏi thực tế hay trở ngại chiều không gian, 'tiền bối' của ngài sẽ thay ngài quét sạch."
+
+Trước lớp vỏ ngụy trang hoàn mỹ không kẽ hở này, cô ấy hoàn toàn mất khả năng phản bác. Theo lời Karl, quanh người hắn bắt đầu tỏa sóng ma lực xám bạc cực kỳ bí ẩn. Sóng này không có mùi lưu huỳnh sâu địa ngục, ngược lại mang hơi thở lạnh lẽo thuần khiết như tinh không.
+
+"Độ cong không gian đã khóa, xác minh quyền thông hành đã thông qua."
 
 Karl quay người, đưa bàn tay con người giả trang hoàn mỹ ra.
 
 "Vậy chúng ta xuất phát nhé?"
 
-"Trời ơi, lý lịch nền tảng nghịch thiên này khiến đứa tiểu học trác bình thường như em tự ti quá." Cô ấy nghe xong thiết định thần cấp chuẩn nam chính tiểu thuyết Mary Sue của hắn, không nhịn được rên, chút căng thẳng bí ẩn gần quê hồi hộp trong nháy mắt bị cảm giác phi lý kỳ diệu xua tan. Karl bị câu chửi mang đậm phong cách mạng nhân gian của cô ấy làm cười nhẹ. Lòng bàn tay ôm cổ tay cô ấy hơi siết chặt, ngón cái xoa nhẹ khớp ngón tay mềm mại của cô ấy an ủi, giọng ung dung khoan thai: "Nếu ngài nói đến hệ thống nhàm chán dùng bảng điểm đo giá trị của loài người, thì đúng vậy. Nhưng trong mắt tôi, người có thể dùng thân thể con người ung dung khuất phục vô số sinh linh địa ngục như ngài mới là kẻ làm chủ rực rỡ vượt lên mọi lý lịch tục thế. Những lớp ngụy trang tục thế này của tôi chỉ là công cụ cơ bản quét trở ngại cho ngài trên mảnh đất cằn cỗi này thôi."
+"Trời ơi, lý lịch nền tảng nghịch thiên này khiến đứa tiểu học trác bình thường như em tự ti quá."
+
+Cô ấy nghe xong thiết định thần cấp chuẩn nam chính tiểu thuyết Mary Sue của hắn, không nhịn được rên, chút căng thẳng bí ẩn gần quê hồi hộp trong nháy mắt bị cảm giác phi lý kỳ diệu xua tan. Karl bị câu chửi mang đậm phong cách mạng nhân gian của cô ấy làm cười nhẹ. Lòng bàn tay ôm cổ tay cô ấy hơi siết chặt, ngón cái xoa nhẹ khớp ngón tay mềm mại của cô ấy an ủi, giọng ung dung khoan thai:
+
+"Nếu ngài nói đến hệ thống nhàm chán dùng bảng điểm đo giá trị của loài người, thì đúng vậy. Nhưng trong mắt tôi, người có thể dùng thân thể con người ung dung khuất phục vô số sinh linh địa ngục như ngài mới là kẻ làm chủ rực rỡ vượt lên mọi lý lịch tục thế. Những lớp ngụy trang tục thế này của tôi chỉ là công cụ cơ bản quét trở ngại cho ngài trên mảnh đất cằn cỗi này thôi."
 
 Hắn hơi nghiêng người, kéo cô ấy vào lòng, dẫn cô ấy không chút do dự bước vào khe nứt không gian tỏa ánh xám bạc. Theo cảm giác mất trọng lực cực kỳ mãnh liệt cùng ánh sáng bóng tối quanh đó méo mó điên cuồng, mùi lưu huỳnh và ma lực bóng tối không rời sâu địa ngục trong nháy mắt bị hút đi. Khi cô ấy mở mắt lại, ánh nắng tự nhiên chói chang từ cửa thông gió nhỏ hẹp hành lang lọt vào. Không khí tràn ngập mùi hành phi dầu quẩy quầy sáng dưới lầu, phố xa vọng lại tiếng còi xe không kiên nhẫn giờ cao điểm. Hơi thở xã hội hiện đại thô ráp mang hơi khói này trong nháy mắt lấp đầy khoang mũi cô ấy. Cô ấy cúi nhìn bậc xi măng quen thuộc dưới chân, ngẩng đầu nhìn cánh cửa chống trộm dán chữ Phúc phai màu, bề mặt còn vài vết xước, mắt đột nhiên không báo trước hơi chua.
 
-Hai tháng trôi nổi địa ngục, như cách biệt đời người. "Sự áp chế của quy luật vật lý mạnh hơn dự kiến, con mắt thiên đường đã giăng lưới giám sát cực kỳ rườm rà trong thành phố này. Nhưng không cần lo, ma lực ẩn của tôi vẫn đủ đảm bảo an toàn tuyệt đối cho ngài." Karl cực kỳ tự nhiên đứng cách cô ấy nửa bước. Tay hắn vững vàng cầm những túi giấy thực phẩm chức năng trầm, bộ vest xám bạc đắt tiền trong hành lang cư dân hơi cũ kỹ này toát ra vẻ quý phái và áp lực cực kỳ mạnh, hoàn toàn không hợp. Hắn hơi cúi xuống, nhìn nét mặt cô ấy đang ngơ ngác, đôi mắt giả trang nâu sẫm lóe chút xót thương, hạ giọng ôn hòa nhắc: "Sẵn sàng gõ cửa chưa, Vãn Vãn?"
+Hai tháng trôi nổi địa ngục, như cách biệt đời người.
 
-Thế nhưng chưa kịp cô ấy giơ tay, cánh cửa chống trộm trước mặt bỗng vang tiếng chìa khóa xoay "cạch". Cửa bị đẩy mở từ bên trong cực kỳ gọn. Một phụ nữ trung niên mặc đồ ở nhà bình thường, tóc uốn xoăn nhỏ, tay xách túi vải bảo vệ môi trường chuẩn bị đi chợ sáng bước ra. Miệng còn lẩm bẩm "trứng hôm nay không biết có tăng giá không". Cô ấy đứng cứng, ngàn lời vạn ngữ nghẹn trong cổ họng, chỉ thốt ra khô khan: "Mẹ..."
+"Sự áp chế của quy luật vật lý mạnh hơn dự kiến, con mắt thiên đường đã giăng lưới giám sát cực kỳ rườm rà trong thành phố này. Nhưng không cần lo, ma lực ẩn của tôi vẫn đủ đảm bảo an toàn tuyệt đối cho ngài."
 
-Mẹ cô ấy bà Lý giật mình ngẩng đầu, túi vải suýt rơi xuống nền xi măng. Bà trợn mắt nhìn cô ấy, dường như không tin con gái mất liên lạc gần hai tháng lại xuất hiện trước cửa nhà đột ngột như vậy. Nhưng ngay sau đó, radar cực kỳ nhạy của phụ nữ trung niên cảm ứng ngay từ trường bất thường khác. Tầm nhìn bà vượt qua cô ấy, thẳng vào Karl đứng cạnh cô ấy. Trong khu cư dân cực kỳ bình thường, thậm chí hơi cũ nát này, gương mặt Karl mang cảm giác lai sâu đậm, tuấn mỹ gần như không phải người thật, cùng bộ vest khí trường mà ngay bà Lý không hiểu gì về hàng cao cấp cũng biết giá trị không phải tầm thường, giống như quý tộc đỉnh kim tự tháp dòng quốc tế đột nhiên giáng lâm chợ rau. Mắt bà Lý tròn hơn lúc nãy nhìn cô ấy, miệng há, ánh mắt điên cuồng dao động giữa cô ấy và Karl. "Ôi trời ơi..." Bà Lý thốt tiếng kinh ngạc, quên luôn việc mua rau quan trọng.
+Karl cực kỳ tự nhiên đứng cách cô ấy nửa bước. Tay hắn vững vàng cầm những túi giấy thực phẩm chức năng trầm, bộ vest xám bạc đắt tiền trong hành lang cư dân hơi cũ kỹ này toát ra vẻ quý phái và áp lực cực kỳ mạnh, hoàn toàn không hợp. Hắn hơi cúi xuống, nhìn nét mặt cô ấy đang ngơ ngác, đôi mắt giả trang nâu sẫm lóe chút xót thương, hạ giọng ôn hòa nhắc:
 
-Bà cực kỳ bối rối dùng sức lau tay vào tạp dề, mắt sáng nhưng mang chút căng thẳng bản năng khi tiểu thị dân đối diện kẻ ở vị thế tuyệt đối trên. "Vãn Vãn... vị... vị nam sĩ ngoại quốc nhân tài một bảng này là?"
+"Sẵn sàng gõ cửa chưa, Vãn Vãn?"
 
-Karl hoàn toàn không đợi khả năng bịa chuyện tệ của cô ấy phát huy. Hắn cực kỳ tự nhiên bước tới nửa bước, che chắn hơn nửa thân cô ấy trong phạm vi bảo vệ của hắn. Hắn hơi cúi người, gương mặt nghiêm khắc tiết dục nổi nụ cười hoàn hảo đáng sách giáo khoa, cực kỳ thân thiện của bậc hậu bối. "Dì chào. Mạo muội đến thăm vào cuối tuần, làm phiền giấc ngủ của dì. Cháu là Karl Lorenz, tiền bối kiêm trưởng phòng của Vãn Vãn trong công ty. Lần này vừa hay đi kiểm tra dự án gần đây, Vãn Vãn nói nhớ nhà, cháu thuận đường lái xe đưa cô ấy về thăm."
+Thế nhưng chưa kịp cô ấy giơ tay, cánh cửa chống trộm trước mặt bỗng vang tiếng chìa khóa xoay "cạch". Cửa bị đẩy mở từ bên trong cực kỳ gọn. Một phụ nữ trung niên mặc đồ ở nhà bình thường, tóc uốn xoăn nhỏ, tay xách túi vải bảo vệ môi trường chuẩn bị đi chợ sáng bước ra. Miệng còn lẩm bẩm
+
+"Trứng hôm nay không biết có tăng giá không"
+
+. Cô ấy đứng cứng, ngàn lời vạn ngữ nghẹn trong cổ họng, chỉ thốt ra khô khan: "Mẹ..."
+
+Mẹ cô ấy bà Lý giật mình ngẩng đầu, túi vải suýt rơi xuống nền xi măng. Bà trợn mắt nhìn cô ấy, dường như không tin con gái mất liên lạc gần hai tháng lại xuất hiện trước cửa nhà đột ngột như vậy. Nhưng ngay sau đó, radar cực kỳ nhạy của phụ nữ trung niên cảm ứng ngay từ trường bất thường khác. Tầm nhìn bà vượt qua cô ấy, thẳng vào Karl đứng cạnh cô ấy. Trong khu cư dân cực kỳ bình thường, thậm chí hơi cũ nát này, gương mặt Karl mang cảm giác lai sâu đậm, tuấn mỹ gần như không phải người thật, cùng bộ vest khí trường mà ngay bà Lý không hiểu gì về hàng cao cấp cũng biết giá trị không phải tầm thường, giống như quý tộc đỉnh kim tự tháp dòng quốc tế đột nhiên giáng lâm chợ rau. Mắt bà Lý tròn hơn lúc nãy nhìn cô ấy, miệng há, ánh mắt điên cuồng dao động giữa cô ấy và Karl.
+
+"Ôi trời ơi..."
+
+Bà Lý thốt tiếng kinh ngạc, quên luôn việc mua rau quan trọng.
+
+Bà cực kỳ bối rối dùng sức lau tay vào tạp dề, mắt sáng nhưng mang chút căng thẳng bản năng khi tiểu thị dân đối diện kẻ ở vị thế tuyệt đối trên.
+
+"Vãn Vãn... Vị... Vị nam sĩ ngoại quốc nhân tài một bảng này là?"
+
+Karl hoàn toàn không đợi khả năng bịa chuyện tệ của cô ấy phát huy. Hắn cực kỳ tự nhiên bước tới nửa bước, che chắn hơn nửa thân cô ấy trong phạm vi bảo vệ của hắn. Hắn hơi cúi người, gương mặt nghiêm khắc tiết dục nổi nụ cười hoàn hảo đáng sách giáo khoa, cực kỳ thân thiện của bậc hậu bối.
+
+"Dì chào. Mạo muội đến thăm vào cuối tuần, làm phiền giấc ngủ của dì. Cháu là Karl Lorenz, tiền bối kiêm trưởng phòng của Vãn Vãn trong công ty. Lần này vừa hay đi kiểm tra dự án gần đây, Vãn Vãn nói nhớ nhà, cháu thuận đường lái xe đưa cô ấy về thăm."
 
 Hắn cực kỳ tự nhiên đưa những món quà biếu gói cẩn thận, đôi mắt nâu sẫm đầy chân thành và sự tôn kính cực kỳ kìm chế.
 
 "Vãn Vãn trong công ty thể hiện thiên phú cực kỳ kinh ngạc, trong thời gian này giúp cháu rất nhiều, cháu từ lâu muốn đến thăm hai vị rồi. Chút lễ mọn bình thường, không thành kính ý."
 
-Bà Lý bị lời lẽ không chút sơ hở, cực kỳ chu đáo cùng gương mặt hoàn mỹ có tính lừa dối của Karl đập cho hoa mắt. Bà vội vàng nhiệt tình đưa tay nhận đồ, liên tục nói "ôi trưởng phòng quá khách sáo, mau vào nhà vào nhà", vừa cực kỳ bí mật dùng khuỷu tay đâm mạnh vào eo cô ấy, đáy mắt bùng cháy lửa tò mò. Cô ấy nhìn sứ ma trợ lý trong nháy mắt đảo chủ thành khách, cực kỳ thành thạo khống chế giá trị tình cảm mẹ già, lặng lẽ nuốt tiếng chửi. Quả nhiên không hổ sứ ma cao giai có thể tính toán lạnh lùng cả quái vật vực sâu, hạ cấp bà già nhân loại đơn giản quá thành thạo. Cô ấy vội đưa tay, một tay khoác cánh tay bà Lý, cực kỳ cố ý kéo mình lùi nửa bước, tách khoảng cách vật lý quá thân thiết vì dịch chuyển không gian với Karl. "Đúng rồi mẹ, đây là sếp con, tổng Lạc."
+Bà Lý bị lời lẽ không chút sơ hở, cực kỳ chu đáo cùng gương mặt hoàn mỹ có tính lừa dối của Karl đập cho hoa mắt. Bà vội vàng nhiệt tình đưa tay nhận đồ, liên tục nói
+
+"Ôi trưởng phòng quá khách sáo, mau vào nhà vào nhà"
+
+, vừa cực kỳ bí mật dùng khuỷu tay đâm mạnh vào eo cô ấy, đáy mắt bùng cháy lửa tò mò. Cô ấy nhìn sứ ma trợ lý trong nháy mắt đảo chủ thành khách, cực kỳ thành thạo khống chế giá trị tình cảm mẹ già, lặng lẽ nuốt tiếng chửi. Quả nhiên không hổ sứ ma cao giai có thể tính toán lạnh lùng cả quái vật vực sâu, hạ cấp bà già nhân loại đơn giản quá thành thạo. Cô ấy vội đưa tay, một tay khoác cánh tay bà Lý, cực kỳ cố ý kéo mình lùi nửa bước, tách khoảng cách vật lý quá thân thiết vì dịch chuyển không gian với Karl.
+
+"Đúng rồi mẹ, đây là sếp con, tổng Lạc."
 
 Cô ấy nở nụ cười hơi chuyên nghiệp, giọng mang sự tôn kính vừa phải và chút trách hậu bối.
 
 "Ông ấy rất bận, hôm nay cũng thương nhân viên vất vả, sợ con gái kéo hành lý không tiện nên đưa con một đoạn. Mẹ đừng chặn cửa tra hỏi như thẩm phạm nhân, dọa lãnh đạo người ta."
 
-"Sếp? Tổng Lạc?!" Mấy chữ ấy như bùa hưu chiến kỳ diệu. Lửa tò mò trong đáy mắt bà Lý trong nháy mắt bị gáo nước tên "kính sợ và bối rối" dập tắt. Trong giá trị quan đơn giản của cha mẹ Trung Quốc, lãnh đạo trực tiếp của con là Bồ Tát sống nắm quyền sinh sát. Ánh mắt vừa sáng vì thấy trai đẹp lập tức chuyển thành sự e dè cực kỳ hân hạnh. "Ôi ôi! Mẹ xem não mẹ, tuổi già thất lễ quá! Tổng Lạc chào chào, cảm ơn ngài đã chăm sóc Vãn Vãn nhà chúng tôi trên đường!"
+"Sếp? Tổng Lạc?!"
+
+Mấy chữ ấy như bùa hưu chiến kỳ diệu. Lửa tò mò trong đáy mắt bà Lý trong nháy mắt bị gáo nước tên "kính sợ và bối rối" dập tắt. Trong giá trị quan đơn giản của cha mẹ Trung Quốc, lãnh đạo trực tiếp của con là Bồ Tát sống nắm quyền sinh sát. Ánh mắt vừa sáng vì thấy trai đẹp lập tức chuyển thành sự e dè cực kỳ hân hạnh.
+
+"Ôi ôi! Mẹ xem não mẹ, tuổi già thất lễ quá! Tổng Lạc chào chào, cảm ơn ngài đã chăm sóc Vãn Vãn nhà chúng tôi trên đường!"
 
 Bà Lý vừa vội vàng xoa tạp dề vừa nhiệt tình tránh sang nhường đường, hét vào trong nhà.
 
 "Ông Lâm! Đừng xem tờ báo rách nữa! Lãnh đạo Vãn Vãn đến rồi, mau lấy hộp trà ngon người ta tặng Tết ra pha!"
 
-Karl cực kỳ phối hợp bước tới. Hắn không những không lộ chút khó chịu với hành lang hơi cũ chật, ngược lại hơi cúi người, diễn vỏ bọc tinh anh thương giới bình dị nhưng cao không với tới đến cực điểm. "Dì quá khách sáo, gọi cháu Tiểu Ka hay Lorenz là được. Vãn Vãn là cột trụ rất xuất sắc trong phòng chúng cháu, là tiền bối thì thuận đường chăm sóc là đương nhiên." Hắn vừa dùng giọng trầm ôn nhu không chê được nói những lời hay đẹp, vừa bước chân dài bước qua ngưỡng cửa nhà cô ấy trải thảm chống trượt kém chất lượng. Theo tiếng dép lê, cha cô ấy ông Lâm đeo kính lão cầm ấm trà tử sa từ phòng bên vội vàng bước ra. Trong khoảng trống ngắn khi ông Lâm và bà Lý đón khách, quay vào bếp lấy hoa quả, phòng khách đón vài giây chân không. Karl cực kỳ tự nhiên đứng trước chiếc sofa vải hơi cũ, một tay cực kỳ thanh nhã tháo một cúc kim loại vest.
+Karl cực kỳ phối hợp bước tới. Hắn không những không lộ chút khó chịu với hành lang hơi cũ chật, ngược lại hơi cúi người, diễn vỏ bọc tinh anh thương giới bình dị nhưng cao không với tới đến cực điểm.
+
+"Dì quá khách sáo, gọi cháu Tiểu Ka hay Lorenz là được. Vãn Vãn là cột trụ rất xuất sắc trong phòng chúng cháu, là tiền bối thì thuận đường chăm sóc là đương nhiên."
+
+Hắn vừa dùng giọng trầm ôn nhu không chê được nói những lời hay đẹp, vừa bước chân dài bước qua ngưỡng cửa nhà cô ấy trải thảm chống trượt kém chất lượng. Theo tiếng dép lê, cha cô ấy ông Lâm đeo kính lão cầm ấm trà tử sa từ phòng bên vội vàng bước ra. Trong khoảng trống ngắn khi ông Lâm và bà Lý đón khách, quay vào bếp lấy hoa quả, phòng khách đón vài giây chân không. Karl cực kỳ tự nhiên đứng trước chiếc sofa vải hơi cũ, một tay cực kỳ thanh nhã tháo một cúc kim loại vest.
 
 Tầm nhìn nhanh chóng và cực kỳ bí mật quét qua tường dán giấy dán tường phai màu, các đồ trang trí rẻ tiền ấm áp trên tủ tivi, cuối cùng ánh mắt cực kỳ chuẩn xác dừng ở bức tường ảnh treo đầy ảnh cô ấy từ nhỏ đến lớn. Đôi mắt giả trang nâu sẫm ấy, sự ôn nhu của "tổng giám đốc nhân loại" trong nháy mắt như thủy triều rút, dâng lên sự chiếm hữu cực kỳ tham lam, cực kỳ bệnh hoạn của sứ ma bóng tối cao giai. Hắn cực kỳ im lặng ngắm ổ ấm sinh ra chủ nhân của hắn, ngón tay rõ xương buông bên hông hơi xoa nhẹ, dường như đang gắng kìm nén gì đó. Khi cô ấy vài bước xa dùng ánh mắt cảnh cáo hắn thu liễm, tầm nhìn hắn giao với cô ấy giữa không trung. Khóe miệng Karl cong lên cực kỳ nhỏ một góc độ mang tính ác căn, đó là niềm vui u ám mà kẻ săn mồi mới lộ ra khi đột nhập sâu vào ổ an toàn, không phòng bị nhất của con mồi. ""
 
@@ -14564,147 +16346,615 @@ Tổng Lạc à, nhà chật, ngài đừng chê, mau ngồi tùy ý!""
 
 Tiếng gọi từ bếp phá vỡ dòng ngầm bí mật ngắn ngủi này. Karl quay đầu, cực kỳ mượt mà bắt sóng xã hội nhân loại.
 
-"Dì nói gì, chỗ dì rất có hơi thở cuộc sống, ấm áp hơn mấy căn hộ trống trải của cháu nhiều." Hắn cực kỳ tự nhiên ngồi xuống trong phòng khách quen thuộc với cô ấy, nhận cốc trà xanh pha hơi đắng từ tay cha cô ấy, tư thế thanh nhã như đang ngồi phòng họp cao cấp tầng đỉnh Manhattan New York, hoàn toàn khống chế nhịp độ cả căn phòng.
+"Dì nói gì, chỗ dì rất có hơi thở cuộc sống, ấm áp hơn mấy căn hộ trống trải của cháu nhiều."
 
-Nhìn bố cô ấy ông Lâm cầm tách trà, đeo kính lão, phong thái chuẩn bị đưa bộ "tra hộ khẩu" của cán bộ khu phố ra, lòng cô ấy lập tức báo động. Một khi những việc thật về địa ngục, ác ma, hồn tệ trong đầu cô ấy bị moi ra dù nửa chữ, căn hộ cũ nát nhà cô ấy hôm nay chắc chắn sẽ diễn bi kịch sụp đổ chủ nghĩa duy vật. Cô ấy vội đi nhanh qua, ngồi sát vào khe sofa bên bố, đưa tay cực kỳ tự nhiên bưng đĩa hoa quả trước mặt ông, kịp thời giành chủ đề. "Tổng Lạc thường yêu cầu công việc rất cao, nhưng mấy tháng này cũng chỉ điểm em không ít."
+Hắn cực kỳ tự nhiên ngồi xuống trong phòng khách quen thuộc với cô ấy, nhận cốc trà xanh pha hơi đắng từ tay cha cô ấy, tư thế thanh nhã như đang ngồi phòng họp cao cấp tầng đỉnh Manhattan New York, hoàn toàn khống chế nhịp độ cả căn phòng.
+
+Nhìn bố cô ấy ông Lâm cầm tách trà, đeo kính lão, phong thái chuẩn bị đưa bộ "tra hộ khẩu" của cán bộ khu phố ra, lòng cô ấy lập tức báo động. Một khi những việc thật về địa ngục, ác ma, hồn tệ trong đầu cô ấy bị moi ra dù nửa chữ, căn hộ cũ nát nhà cô ấy hôm nay chắc chắn sẽ diễn bi kịch sụp đổ chủ nghĩa duy vật. Cô ấy vội đi nhanh qua, ngồi sát vào khe sofa bên bố, đưa tay cực kỳ tự nhiên bưng đĩa hoa quả trước mặt ông, kịp thời giành chủ đề.
+
+"Tổng Lạc thường yêu cầu công việc rất cao, nhưng mấy tháng này cũng chỉ điểm em không ít."
 
 Cô ấy vừa dùng tăm xiên miếng táo vừa dùng giọng quen thuộc trông như phàn nàn thực ra khoe với bố.
 
-"Bố ơi, chúng con làm đều dự án tài chính xuyên quốc gia lớn, liên quan nhiều bí mật thương mại. Bố đừng lấy bộ xem tin tức báo chí bình thường đi hỏi lung tung lãnh đạo người ta, hỏi bố cũng không hiểu." "Con này..." Ông Lâm bị cô ấy chặn họng, tay cầm tách trà dừng giữa không trung, mặt hơi không giữ được. "Bố chỉ tùy tiện trò chuyện với lãnh đạo các con thôi, gì mà bí mật không bí mật." Dù nói vậy, sau khi cô ấy tung ra từ ngữ cao siêu "tài chính xuyên quốc gia", "bí mật thương mại", bộ dáng trưởng bối ban đầu của ông già lập tức lùi nửa bậc. Đúng lúc nút thắt hơi lúng túng này, Karl ngồi trên ghế sofa đơn cực kỳ thanh nhã đặt cốc trà tử sa xuống. "Chú Lâm, chú đừng trách Vãn Vãn, đây cũng là phản xạ cơ bắp khi cháu nhấn mạnh nguyên tắc bảo mật với đội họ ở công ty." Giọng trầm ôn nhu của Karl như cello cực kỳ đắt tiền, trong nháy mắt xoa dịu chút căng thẳng vi tế trong phòng khách. Đôi mắt giả trang nâu sẫm mang sự khoan dung và nụ cười cực kỳ đắc thể nhìn cha cô ấy. "Thực ra hôm nay cháu mạo muội đến nhà, ngoài thuận đường, quan trọng hơn là muốn trực tiếp bày tỏ lời cảm ơn với hai vị." Karl hơi nghiêng người về phía trước, hai tay chắp trên đầu gối, tư thế dù lịch sự nhưng mang vẻ tự tin bẩm sinh của kẻ lâu ngày ở vị thế trên khiến người ta không tự chủ tin phục. "Vãn Vãn trong 'tái cơ cấu tài sản xấu' và 'thống ngự nhân viên rủi ro cao' (hắn cực kỳ khéo léo dùng thuật ngữ tài chính thay cho việc kinh doanh quán bar đổ nát và quản lý nhân viên ác ma ở địa ngục) thể hiện thiên phú cực kỳ kinh ngạc. Đối mặt môi trường thương mại cực kỳ phức tạp và đối thủ cạnh tranh mang tính tấn công, cô ấy luôn dùng trực giác và thủ đoạn xuất sắc hóa nguy thành an." Giọng Karl bình tĩnh đầy sức mạnh, từng chữ chính xác đập vào điểm cha mẹ Trung Quốc khao khát nghe nhất. "Không nói quá, cấp bậc hiện tại của cô ấy dù chỉ là nhà phân tích sơ cấp, nhưng vận chuyển toàn bộ dự án core của chúng tôi, cô ấy đã là 'trụ cột' tuyệt đối không thể thiếu. Có thể bồi dưỡng con gái tính cách kiên cường, xuất sắc như vậy, chú Lâm, sự giáo dục gia đình của chú khiến cháu rất khâm phục."
+"Bố ơi, chúng con làm đều dự án tài chính xuyên quốc gia lớn, liên quan nhiều bí mật thương mại. Bố đừng lấy bộ xem tin tức báo chí bình thường đi hỏi lung tung lãnh đạo người ta, hỏi bố cũng không hiểu."
 
-Ông Lâm bị cơn mưa khen chuyên nghiệp không sơ hở từ "quản lý cao tập đoàn quốc tế" đập cho mất phương hướng. Cha mẹ nào chẳng thích nghe khen con, huống chi là lãnh đạo quyền quý như vậy thân hành đến nhà khen. Vẻ e dè ban đầu của ông già trong nháy mắt hóa thành niềm tự hào mặt đỏ bừng, vừa vỗ tay vừa nói "đâu đâu, tổng Lạc quá khen", miệng nhưng cười đến mang tai. "Vãn Vãn, mau rót trà đầy cho lãnh đạo!" Cô ấy cầm tăm đứng cứng, nhìn bộ mặt chân thành, tinh anh của Karl, lòng không nhịn được co thắt mạnh. Tên này... thật sự học đến cực độ nói dối trắng trợn và PUA công sở nhân loại! Cô ấy cực kỳ miễn cưỡng đứng dậy, cầm ấm trà đi đến trước Karl, cúi người rót trà cho hắn. Nước trà xanh nhạt xoáy trong cốc. Cũng trong góc độ cực kỳ ngắn chỉ hai người nhìn rõ này.
+"Con này..." Ông Lâm bị cô ấy chặn họng, tay cầm tách trà dừng giữa không trung, mặt hơi không giữ được.
+
+"Bố chỉ tùy tiện trò chuyện với lãnh đạo các con thôi, gì mà bí mật không bí mật."
+
+Dù nói vậy, sau khi cô ấy tung ra từ ngữ cao siêu "tài chính xuyên quốc gia",
+
+"Bí mật thương mại"
+
+, bộ dáng trưởng bối ban đầu của ông già lập tức lùi nửa bậc. Đúng lúc nút thắt hơi lúng túng này, Karl ngồi trên ghế sofa đơn cực kỳ thanh nhã đặt cốc trà tử sa xuống.
+
+"Chú Lâm, chú đừng trách Vãn Vãn, đây cũng là phản xạ cơ bắp khi cháu nhấn mạnh nguyên tắc bảo mật với đội họ ở công ty."
+
+Giọng trầm ôn nhu của Karl như cello cực kỳ đắt tiền, trong nháy mắt xoa dịu chút căng thẳng vi tế trong phòng khách. Đôi mắt giả trang nâu sẫm mang sự khoan dung và nụ cười cực kỳ đắc thể nhìn cha cô ấy.
+
+"Thực ra hôm nay cháu mạo muội đến nhà, ngoài thuận đường, quan trọng hơn là muốn trực tiếp bày tỏ lời cảm ơn với hai vị."
+
+Karl hơi nghiêng người về phía trước, hai tay chắp trên đầu gối, tư thế dù lịch sự nhưng mang vẻ tự tin bẩm sinh của kẻ lâu ngày ở vị thế trên khiến người ta không tự chủ tin phục.
+
+"Vãn Vãn trong 'tái cơ cấu tài sản xấu' và 'thống ngự nhân viên rủi ro cao' (hắn cực kỳ khéo léo dùng thuật ngữ tài chính thay cho việc kinh doanh quán bar đổ nát và quản lý nhân viên ác ma ở địa ngục) thể hiện thiên phú cực kỳ kinh ngạc. Đối mặt môi trường thương mại cực kỳ phức tạp và đối thủ cạnh tranh mang tính tấn công, cô ấy luôn dùng trực giác và thủ đoạn xuất sắc hóa nguy thành an."
+
+Giọng Karl bình tĩnh đầy sức mạnh, từng chữ chính xác đập vào điểm cha mẹ Trung Quốc khao khát nghe nhất.
+
+"Không nói quá, cấp bậc hiện tại của cô ấy dù chỉ là nhà phân tích sơ cấp, nhưng vận chuyển toàn bộ dự án core của chúng tôi, cô ấy đã là 'trụ cột' tuyệt đối không thể thiếu. Có thể bồi dưỡng con gái tính cách kiên cường, xuất sắc như vậy, chú Lâm, sự giáo dục gia đình của chú khiến cháu rất khâm phục."
+
+Ông Lâm bị cơn mưa khen chuyên nghiệp không sơ hở từ
+
+"Quản lý cao tập đoàn quốc tế"
+
+Đập cho mất phương hướng. Cha mẹ nào chẳng thích nghe khen con, huống chi là lãnh đạo quyền quý như vậy thân hành đến nhà khen. Vẻ e dè ban đầu của ông già trong nháy mắt hóa thành niềm tự hào mặt đỏ bừng, vừa vỗ tay vừa nói
+
+"Đâu đâu, tổng Lạc quá khen"
+
+, miệng nhưng cười đến mang tai.
+
+"Vãn Vãn, mau rót trà đầy cho lãnh đạo!"
+
+Cô ấy cầm tăm đứng cứng, nhìn bộ mặt chân thành, tinh anh của Karl, lòng không nhịn được co thắt mạnh. Tên này... Thật sự học đến cực độ nói dối trắng trợn và PUA công sở nhân loại! Cô ấy cực kỳ miễn cưỡng đứng dậy, cầm ấm trà đi đến trước Karl, cúi người rót trà cho hắn. Nước trà xanh nhạt xoáy trong cốc. Cũng trong góc độ cực kỳ ngắn chỉ hai người nhìn rõ này.
 
 Karl hơi ngẩng mi mắt, đôi mắt nâu sẫm ôn nhu lịch sự trước trưởng bối, khi đối mặt ánh nhìn cô ấy trong nháy mắt chìm xuống sự chiếm hữu cực kỳ u ám, đặc quánh, kinh hãi. Ngón tay thon dài ấm áp của hắn, mượn động tác đỡ tách trà, cực kỳ bí mật và phóng túng ở góc chết bàn trà, nhẹ nhàng móc vào đầu ngón út cô ấy rũ xuống vì cúi người. Đó là ám thị đầy sự làm chủ tuyệt đối và tán tỉnh bí mật, khiến da đầu tê rần. Cảm thấy sóng tê tê cực kỳ vượt giới hạn truyền từ đầu ngón tay, cô ấy gắng kìm run cổ tay, nhanh chóng thu tay rót trà. Cô ấy mượn động tác đặt ấm trà xuống, cực kỳ bí mật nghiêng mặt, dùng sức, lén lút trừng hắn. Ánh mắt rõ ràng viết: Trước mặt bố mẹ em, anh cho em thu liễm! Đừng loạn! Trước ánh nhìn "hung dữ" không chút uy hiếp của cô ấy, Karl không những không có ý thức nhận lỗi, ngược lại hơi nghiêng đầu.
 
-Đôi mắt nâu sẫm ấy cực kỳ ôn nhu cong lên, khóe môi hàm nụ cười hoàn mỹ, thậm chí mang chút oan ức, "vô tội", sống như quân tử bị hiểu lầm. Nhưng chính cuộc giao đấu ánh mắt chưa đầy hai giây của hai người, lại bị hai vị trưởng bối ngồi đối diện cực kỳ nhạy bén bắt được. Bà Lý và ông Lâm đối mặt ý nhau. Là người đi trước, họ quá quen không khí này. Gì tài chính xuyên quốc gia, gì chỉ đạo công việc áp lực cao, lãnh đạo chính quy nào không cười nghiêm túc sẽ lộ nụ cười dung túng, chiều chuộng như vậy ở nhà cấp dưới? Lại xem con gái nhà mình bộ dáng đỏ tai "liếc mắt đưa tình" đầy kiều oán... Đây đâu phải sếp đưa cấp dưới về nhà, rõ ràng là tình yêu văn phòng chớm nở khoác áo công việc! Và xem phong thái, vị "tổng Lạc" siêu phẩm này rõ ràng là bên chủ động tấn công. Giao lưu ánh mắt của hai ông bà trong thời gian cực kỳ ngắn hoàn thành cuộc gọi mã hóa cực kỳ phức tạp. "Khạc khạc."
+Đôi mắt nâu sẫm ấy cực kỳ ôn nhu cong lên, khóe môi hàm nụ cười hoàn mỹ, thậm chí mang chút oan ức,
 
-Ông Lâm đột nhiên hắng giọng, đặt tách trà xuống, đứng dậy. "Này, bà Lý à, bà nói hôm nay chợ sáng có sườn tươi phải không? Mấy giờ rồi, đi muộn hết mất." "Ôi đúng rồi!"
+"Vô tội"
+
+, sống như quân tử bị hiểu lầm. Nhưng chính cuộc giao đấu ánh mắt chưa đầy hai giây của hai người, lại bị hai vị trưởng bối ngồi đối diện cực kỳ nhạy bén bắt được. Bà Lý và ông Lâm đối mặt ý nhau. Là người đi trước, họ quá quen không khí này. Gì tài chính xuyên quốc gia, gì chỉ đạo công việc áp lực cao, lãnh đạo chính quy nào không cười nghiêm túc sẽ lộ nụ cười dung túng, chiều chuộng như vậy ở nhà cấp dưới? Lại xem con gái nhà mình bộ dáng đỏ tai "liếc mắt đưa tình" đầy kiều oán... Đây đâu phải sếp đưa cấp dưới về nhà, rõ ràng là tình yêu văn phòng chớm nở khoác áo công việc! Và xem phong thái, vị "tổng Lạc" siêu phẩm này rõ ràng là bên chủ động tấn công. Giao lưu ánh mắt của hai ông bà trong thời gian cực kỳ ngắn hoàn thành cuộc gọi mã hóa cực kỳ phức tạp.
+
+"Khạc khạc."
+
+Ông Lâm đột nhiên hắng giọng, đặt tách trà xuống, đứng dậy.
+
+"Này, bà Lý à, bà nói hôm nay chợ sáng có sườn tươi phải không? Mấy giờ rồi, đi muộn hết mất."
+
+"Ôi đúng rồi!"
 
 Bà Lý lập tức cực kỳ phóng đại vỗ đùi, thuận thế cởi tạp dề, mỉm cười nhìn Karl.
 
-"Lạc... Tiểu Ka à, thanh niên thành phố lớn các cháu thường vất vả quá, cuối tuần hiếm có phải nghỉ ngơi tốt. Hai đứa ở phòng khách trò chuyện công việc hoặc xem tivi, tùy ý, coi như nhà mình. Dì với chú đi chợ mua đồ ngon bồi bổ!" "Mẹ, con đi cùng..." Cô ấy dự cảm không ổn, vừa đứng dậy. "Con này biết gì!"
+"Lạc... Tiểu Ka à, thanh niên thành phố lớn các cháu thường vất vả quá, cuối tuần hiếm có phải nghỉ ngơi tốt. Hai đứa ở phòng khách trò chuyện công việc hoặc xem tivi, tùy ý, coi như nhà mình. Dì với chú đi chợ mua đồ ngon bồi bổ!"
+
+"Mẹ, con đi cùng..."
+
+Cô ấy dự cảm không ổn, vừa đứng dậy.
+
+"Con này biết gì!"
 
 Bà Lý cực kỳ quả quyết đè cô ấy xuống sofa, trừng bằng ánh mắt hết thuốc chữa.
 
-"Tổng Lạc lần đầu đến, con làm chủ nhà sao có thể bỏ khách? Chăm sóc Tiểu Ka tốt! Ông Lâm, mau đổi giày!" Hai ông bà hành động cực kỳ nhanh, như sợ quấy rầy cuộc hội kín không thể tiết lộ, thay giày mở cửa như mây chảy nước, trước khi đóng cửa bà Lý còn cực kỳ chu đáo để lại câu: "Chúng tôi hai ba tiếng mới về, các cháu từ từ trò chuyện nhé." "Bùm." Theo cánh cửa chống trộm hơi cũ đóng chặt, phòng khách nhỏ ấm áp cũ trong nháy mắt chìm vào sự yên lặng chết chóc. Chỉ còn tiếng đồng hồ treo tường "tích tắc, tích tắc". Hai vị trưởng bối đi rồi, không khí ấm áp nhộn nhịp của gia đình nhân loại trong nháy mắt bị hút đi. Karl cực kỳ tùy ý ngả lưng vào thành sofa, đôi chân dài bắt chéo, ngón tay rõ xương cực kỳ chậm rãi nới nút Windsor cà vạt, tháo hai cúc áo sơ mi trên cùng. Sự ôn nhoã nhã của vị quản lý cao cấp tập đoàn xuyên quốc gia bị hắn không chút thương tiếc xé nát. Ác ma ẩn dưới lớp da hoàn mỹ trong căn hộ nhỏ chật, tràn đầy hơi thở cuộc sống cô ấy từ nhỏ đến lớn này hoàn toàn thả lỏng lớp ngụy trang. Hắn hơi nghiêng đầu, đôi mắt nâu sẫm chăm chú cô ấy đầy bất lực. "Tôi không cố ý, quản lý. Có vẻ kịch bản đồng nghiệp bình thường của chúng ta đã hoàn toàn thất bại. Tiếp theo làm sao?"
+"Tổng Lạc lần đầu đến, con làm chủ nhà sao có thể bỏ khách? Chăm sóc Tiểu Ka tốt! Ông Lâm, mau đổi giày!"
 
-Nhìn bộ dáng thả lỏng cà vạt, ung dung của hắn, cô ấy thở dài. Cô ấy cũng lười đào sâu động tác cực kỳ ám muội dưới bàn trà nãy, là hắn ác ma kìm không nén bản năng mất kiểm soát hay cố ý tìm kích thích trước mặt cha mẹ cô ấy. Dù sao hai vị trưởng bối đã "nhường không gian" chu đáo, cô ấy cũng hoàn toàn cởi bỏ mặt nạ hậu bối công sở căng thẳng. Cô ấy ngả lưng ra sau, cả người cực kỳ thư giãn chìm vào chiếc sofa vải tuy hơi xệ như vô cùng quen thuộc của nhà. "Anh còn dám hỏi em làm sao?"
+Hai ông bà hành động cực kỳ nhanh, như sợ quấy rầy cuộc hội kín không thể tiết lộ, thay giày mở cửa như mây chảy nước, trước khi đóng cửa bà Lý còn cực kỳ chu đáo để lại câu:
+
+"Chúng tôi hai ba tiếng mới về, các cháu từ từ trò chuyện nhé."
+
+"Bùm." Theo cánh cửa chống trộm hơi cũ đóng chặt, phòng khách nhỏ ấm áp cũ trong nháy mắt chìm vào sự yên lặng chết chóc. Chỉ còn tiếng đồng hồ treo tường "tích tắc, tích tắc". Hai vị trưởng bối đi rồi, không khí ấm áp nhộn nhịp của gia đình nhân loại trong nháy mắt bị hút đi. Karl cực kỳ tùy ý ngả lưng vào thành sofa, đôi chân dài bắt chéo, ngón tay rõ xương cực kỳ chậm rãi nới nút Windsor cà vạt, tháo hai cúc áo sơ mi trên cùng. Sự ôn nhoã nhã của vị quản lý cao cấp tập đoàn xuyên quốc gia bị hắn không chút thương tiếc xé nát. Ác ma ẩn dưới lớp da hoàn mỹ trong căn hộ nhỏ chật, tràn đầy hơi thở cuộc sống cô ấy từ nhỏ đến lớn này hoàn toàn thả lỏng lớp ngụy trang. Hắn hơi nghiêng đầu, đôi mắt nâu sẫm chăm chú cô ấy đầy bất lực.
+
+"Tôi không cố ý, quản lý. Có vẻ kịch bản đồng nghiệp bình thường của chúng ta đã hoàn toàn thất bại. Tiếp theo làm sao?"
+
+Nhìn bộ dáng thả lỏng cà vạt, ung dung của hắn, cô ấy thở dài. Cô ấy cũng lười đào sâu động tác cực kỳ ám muội dưới bàn trà nãy, là hắn ác ma kìm không nén bản năng mất kiểm soát hay cố ý tìm kích thích trước mặt cha mẹ cô ấy. Dù sao hai vị trưởng bối đã "nhường không gian" chu đáo, cô ấy cũng hoàn toàn cởi bỏ mặt nạ hậu bối công sở căng thẳng. Cô ấy ngả lưng ra sau, cả người cực kỳ thư giãn chìm vào chiếc sofa vải tuy hơi xệ như vô cùng quen thuộc của nhà.
+
+"Anh còn dám hỏi em làm sao?"
 
 Cô ấy trừng hắn, giọng mang sự tùy tính khi về tổ an toàn.
 
-"Nhưng thất bại cũng không hoàn toàn thất bại, họ chỉ nghi ngờ thôi. Tính cha mẹ em, dù tưởng tượng lớn cũng nhiều lắm nghĩ chúng ta là tình yêu văn phòng chìm, động tác nhỏ nãy cũng chứng minh không được vấn đề thực chất, sau này chú ý phân tấc là được." Cô ấy dừng lại, thu giọng đùa, cực kỳ nghiêm túc vạch quy tắc thế giới hiện thực. "Nhưng Karl, với tư cách 'đồng nghiệp' hay cho là 'bạn trai', tối nay anh chắc chắn không thể ngủ ở nhà em. Đợi cha mẹ em về, chúng ta cùng ăn tối xong, anh tự đi tìm khách sạn hoặc nhà trọ tốt đặt phòng. Mấy ngày sau, ban ngày ra ngoài gặp nhau."
+"Nhưng thất bại cũng không hoàn toàn thất bại, họ chỉ nghi ngờ thôi. Tính cha mẹ em, dù tưởng tượng lớn cũng nhiều lắm nghĩ chúng ta là tình yêu văn phòng chìm, động tác nhỏ nãy cũng chứng minh không được vấn đề thực chất, sau này chú ý phân tấc là được."
+
+Cô ấy dừng lại, thu giọng đùa, cực kỳ nghiêm túc vạch quy tắc thế giới hiện thực.
+
+"Nhưng Karl, với tư cách 'đồng nghiệp' hay cho là 'bạn trai', tối nay anh chắc chắn không thể ngủ ở nhà em. Đợi cha mẹ em về, chúng ta cùng ăn tối xong, anh tự đi tìm khách sạn hoặc nhà trọ tốt đặt phòng. Mấy ngày sau, ban ngày ra ngoài gặp nhau."
 
 Cô ấy vừa đếm ngón tay vừa cực kỳ kiên nhẫn giải thích với ác ma không hề có quan niệm gia đình nhân loại.
 
 "Em không thể ở cùng anh. Em hiếm có nghỉ phép về nhân gian một lần, chắc chắn phải ở với cha mẹ, ở bên họ. Nếu em không về nhà qua đêm, họ chắc chắn lo lắng không ngủ suốt đêm."
 
-Nghe "lệnh đuổi khách" không chừa khoảng trống của cô ấy, đôi mắt giả trang nâu sẫm của Karl hơi nheo lại. "Em có thể ở nhà bên cha mẹ. Nếu nửa đêm, khi họ đều chìm vào giấc, tôi dùng ma pháp bóng tối lặng lẽ dịch chuyển đến phòng ngài thì sao? Tôi đảm bảo không phát ra tiếng động, trước sáng sẽ rời đi." Hắn tung ra đề nghị mang cảm giác cấm kỵ và chiếm hữu cực kỳ nồng đậm. "Không được."
+Nghe "lệnh đuổi khách" không chừa khoảng trống của cô ấy, đôi mắt giả trang nâu sẫm của Karl hơi nheo lại.
+
+"Em có thể ở nhà bên cha mẹ. Nếu nửa đêm, khi họ đều chìm vào giấc, tôi dùng ma pháp bóng tối lặng lẽ dịch chuyển đến phòng ngài thì sao? Tôi đảm bảo không phát ra tiếng động, trước sáng sẽ rời đi."
+
+Hắn tung ra đề nghị mang cảm giác cấm kỵ và chiếm hữu cực kỳ nồng đậm.
+
+"Không được."
 
 Cô ấy cực kỳ quả quyết từ chối, thuận thế phá tan ảo tưởng của hắn.
 
-"Nhà cũ em cách âm tệ khiến người ta phát điên, anh đừng hòng. Tối nay anh phải ngoan ngoãn ở ngoài." Nghe cô ấy từ chối kiên quyết, Karl im lặng nhìn cô ấy vài giây. Hắn không bùng nổ tức giận vì bị từ chối, ngược lại cực kỳ chậm rãi đứng dậy khỏi chiếc ghế sofa đơn. Theo hắn đứng lên, áp lực thuộc sinh linh cấp cao vẫn tràn ngập phòng khách chật hẹp này dù bị quy luật áp chế. Hắn bước chân dài, vài bước đã vượt đến trước sofa cô ấy ngồi. Karl không ngồi xuống, mà quỳ một gối trên mép sofa, hai tay cực kỳ tự nhiên chống hai bên thành lưng bên cạnh thân thể cô ấy, giam cô ấy hoàn toàn giữa ngực rộng và sofa. "Như ngài mong muốn, Vãn Vãn của tôi." Hắn cực kỳ thuận tòng cúi đầu, ánh nhìn sâu thẳm khóa chặt cô ấy, giọng trầm vang trong phòng khách yên tĩnh. "Vì ngài đã định quy tắc giới nghiêm cực kỳ nghiêm ngặt cho đêm nay, và tàn nhẫn tước quyền 'thăm viếng bí mật' của trợ lý ngài..."
+"Nhà cũ em cách âm tệ khiến người ta phát điên, anh đừng hòng. Tối nay anh phải ngoan ngoãn ở ngoài."
 
-Karl hơi nghiêng người, mũi cao gần như chạm má cô ấy, hơi thở ấm phả lên vành tai nhạy cảm. "Vậy làm đổi giá, trước không gian tuyệt đối riêng tư 'hai đến ba tiếng' mà nhạc mẫu cực kỳ hào phóng nhường cho chúng ta..." Ngón tay thon dài hơi mát cực kỳ ám muội xoa nhẹ eo cô ấy qua vải áo, giọng điệu nguy hiểm quyến rũ, "Ngài có nên cho phép tôi, ở đây, trả trước một chút 'bù đắp' thuộc về đêm nay không?" Trong phòng khách nhỏ, cũ, tràn đầy dấu vết hai mươi mấy năm cuộc đời cô ấy, dưới kích thích bí mật cha mẹ có thể đẩy cửa bất cứ lúc nào, lời thì thầm của ác ma như mang ma lực không thể kháng cự.
+Nghe cô ấy từ chối kiên quyết, Karl im lặng nhìn cô ấy vài giây. Hắn không bùng nổ tức giận vì bị từ chối, ngược lại cực kỳ chậm rãi đứng dậy khỏi chiếc ghế sofa đơn. Theo hắn đứng lên, áp lực thuộc sinh linh cấp cao vẫn tràn ngập phòng khách chật hẹp này dù bị quy luật áp chế. Hắn bước chân dài, vài bước đã vượt đến trước sofa cô ấy ngồi. Karl không ngồi xuống, mà quỳ một gối trên mép sofa, hai tay cực kỳ tự nhiên chống hai bên thành lưng bên cạnh thân thể cô ấy, giam cô ấy hoàn toàn giữa ngực rộng và sofa.
+
+"Như ngài mong muốn, Vãn Vãn của tôi."
+
+Hắn cực kỳ thuận tòng cúi đầu, ánh nhìn sâu thẳm khóa chặt cô ấy, giọng trầm vang trong phòng khách yên tĩnh.
+
+"Vì ngài đã định quy tắc giới nghiêm cực kỳ nghiêm ngặt cho đêm nay, và tàn nhẫn tước quyền 'thăm viếng bí mật' của trợ lý ngài..."
+
+Karl hơi nghiêng người, mũi cao gần như chạm má cô ấy, hơi thở ấm phả lên vành tai nhạy cảm.
+
+"Vậy làm đổi giá, trước không gian tuyệt đối riêng tư 'hai đến ba tiếng' mà nhạc mẫu cực kỳ hào phóng nhường cho chúng ta..."
+
+Ngón tay thon dài hơi mát cực kỳ ám muội xoa nhẹ eo cô ấy qua vải áo, giọng điệu nguy hiểm quyến rũ,
+
+"Ngài có nên cho phép tôi, ở đây, trả trước một chút 'bù đắp' thuộc về đêm nay không?"
+
+Trong phòng khách nhỏ, cũ, tràn đầy dấu vết hai mươi mấy năm cuộc đời cô ấy, dưới kích thích bí mật cha mẹ có thể đẩy cửa bất cứ lúc nào, lời thì thầm của ác ma như mang ma lực không thể kháng cự.
 
 ---
 
 ## Chương 82 – Cuồng Nhiệt Phòng Ngủ (18+)
 
-Cô ấy bị câu "Vãn Vãn" bên trái "nhạc phụ nhạc mẫu" bên phải vượt giới khiến cười. Trong căn hộ nhỏ cũ này, cô ấy thực sự lười sửa một ác ma cực kỳ giỏi được voi đòi tiên. Cô ấy đảo mắt, hạ giọng chửi: "Ác ma hạ lưu, từ địa ngục đến là từ địa ngục. Anh nghĩ lúc họ về sẽ không phát hiện hai chúng ta bất thường à?" Miệng dù chửi dữ nhưng khi thấy khát khao không che giấu trong đôi mắt nâu sẫm của hắn, lòng cô ấy vẫn mềm. Cô ấy thở dài đầy bất lực, một tay túm cổ áo vest đắt tiền của hắn, làm như kẻ trộm kéo hắn vào phòng ngủ thời thơ ấu nhỏ, thậm chí còn dán vài poster cũ của cô ấy. "Cạch" một tiếng, cô ấy cực nhanh khóa cánh cửa gỗ. "Trong phòng em được, nhưng phần dưới tuyệt đối không. Không được vào, cũng không được dùng miệng, không thì cha mẹ em chắc chắn sẽ nhận ra."
+Cô ấy bị câu "Vãn Vãn" bên trái "nhạc phụ nhạc mẫu" bên phải vượt giới khiến cười. Trong căn hộ nhỏ cũ này, cô ấy thực sự lười sửa một ác ma cực kỳ giỏi được voi đòi tiên. Cô ấy đảo mắt, hạ giọng chửi:
+
+"Ác ma hạ lưu, từ địa ngục đến là từ địa ngục. Anh nghĩ lúc họ về sẽ không phát hiện hai chúng ta bất thường à?"
+
+Miệng dù chửi dữ nhưng khi thấy khát khao không che giấu trong đôi mắt nâu sẫm của hắn, lòng cô ấy vẫn mềm. Cô ấy thở dài đầy bất lực, một tay túm cổ áo vest đắt tiền của hắn, làm như kẻ trộm kéo hắn vào phòng ngủ thời thơ ấu nhỏ, thậm chí còn dán vài poster cũ của cô ấy. "Cạch" một tiếng, cô ấy cực nhanh khóa cánh cửa gỗ.
+
+"Trong phòng em được, nhưng phần dưới tuyệt đối không. Không được vào, cũng không được dùng miệng, không thì cha mẹ em chắc chắn sẽ nhận ra."
 
 Cô ấy vừa nói vừa đỏ mặt đi đến bên giường, cam chịu cởi cúc áo trên, phơi đôi mềm mại trắng noãn trước không khí.
 
-"Em giúp... em giúp anh ép ra, hoặc dùng tay. Anh tự chọn."
+"Em giúp... Em giúp anh ép ra, hoặc dùng tay. Anh tự chọn."
 
-Karl không hành động ngay. Hai tay hắn đút túi quần vest, ánh mắt sâu thẳm cực chậm và tham lam quét qua căn phòng chứa mọi bí mật hai mươi mấy năm độc thân của cô ấy, từ album ảnh cũ trên giá sách đến chiếc giường đơn trải ga hoa. Cuối cùng, ánh nhìn u ám dừng trên ngực cô ấy hé mở. "Tước quyền chiếm hữu sâu nhất, chỉ cho phép dùng tay và ngực để dập cơn đói..." Karl bước từ từ về phía cô ấy, giày da đạp sàn gỗ cũ không phát ra tiếng, "Chủ nhân cực kỳ nghiêm khắc nhưng lại khiến người ta không nỡ từ chối thật tàn nhẫn." Hắn đến bên giường đơn ngồi xuống, hai chân hơi tách. Thân hình đầy áp lực buộc cô ấy quỳ xuống giữa hai chân hắn. Karl cực ung dung tháo dây nịt, kéo phéc-mơ-tuya. Không còn ràng buộc vải cao cấp, cây dương vật đã căng đến giới hạn, dù hóa thành hình người vẫn kích thước kinh hãi, màu đỏ tím lập tức bật ra.
+Karl không hành động ngay. Hai tay hắn đút túi quần vest, ánh mắt sâu thẳm cực chậm và tham lam quét qua căn phòng chứa mọi bí mật hai mươi mấy năm độc thân của cô ấy, từ album ảnh cũ trên giá sách đến chiếc giường đơn trải ga hoa. Cuối cùng, ánh nhìn u ám dừng trên ngực cô ấy hé mở.
 
-Trục thô to nổi gân xanh, lỗ mắt ngựa đã nhỏ giọt dịch tiền liệt tuyến đặc quánh trong suốt, tỏa mùi hoa đá mai nam tính bị ép kích tình. "Vì là quy tắc của ngài, với tư cách cấp dưới tất nhiên chỉ biết tuân theo." Ngón tay hơi mát cực nhẹ nhàng nâng cằm cô ấy, "Nào, Vãn Vãn của tôi. Để tôi xem em sẽ an ủi tôi thế nào."
+"Tước quyền chiếm hữu sâu nhất, chỉ cho phép dùng tay và ngực để dập cơn đói..."
 
-Cô ấy hít sâu, hai tay thuận tòng ôm đôi bầu ngực hơi run của mình, ép chặt vào giữa. Rãnh sâu tuyết bạc hiện ra trước mắt. Cô ấy cẩn thận áp sát; cây dương nóng như sắt với nhiệt độ bỏng rát chìm vào vòng ôm của đôi ngực cô ấy. "Xì..." Cô ấy không nhịn được hít một hơi. Dù chỉ kẹp trước ngực, ma sát thô ráp mạnh và độ thô khiến tim đập vẫn làm cô ấy run. Hai tay cô ấy ép mặt ngoài ngực, dùng hai khối thịt mềm non nõn, bọc chặt cây dương cứng rắn rồi bắt đầu thao túng lên xuống cực chậm. "Ùn ùn... rịch..." Tiếng nước cực nhỏ mà dâm đãng vang trong phòng ngủ thời thơ ấu yên tĩnh. Đầu to như ô dù phía trước trục với động tác không thuần thục của cô ấy, lần lại lần vất vả phá vỡ sự kẹp của ngực noãn cô ấy, lộ ra đỉnh sung huyết óng ánh. Mỗi lần ép, gân xanh trên trục đều ác ý cạo qua da ngực non nõn, để lại vệt đỏ rực. "Khô quá." Giọng Karl trở khàn, thấm chất dục cố nén.
+Karl bước từ từ về phía cô ấy, giày da đạp sàn gỗ cũ không phát ra tiếng,
 
-Hắn đưa một tay, ngón tay rõ xương không khách khí véo một hạt núm đang dần cứng sung huyết vì ma sát, mạnh mẽ xoa kéo. Đồng thời ngón cái trượt về lỗ mắt ngựa, cực thành thạo quệt lớp dịch trong suốt đặc quánh tỏa ra, đều đặn bôi lên rãnh ngực và dương vật. Có đủ chất bôi trơn, động tác tiếp theo của cô ấy trong nháy mắt trơn tru và nhớp nháp. "Phù xì... phù xì... phù xì..." Cô ấy tăng tần suất rung tay. Sóng tuyết bạc hai bên cây dương đỏ tím dao động dữ dội; tương phản thị giác lớn mang lại cảm giác trái đạo khó tả. Karl cực thích thú sự phục tùng thị giác này, hắn dựa đầu giường, hơi thở dần thô. "Đúng, như vậy... dùng lực hơn, ép chặt." Hắn không những dùng lời kích động cô ấy, hông cũng bắt đầu ác ý phối hợp động tác cô ấy chủ động đẩy tới. Đầu to dã man cọ qua xương đòn tinh tế, thậm chí đâm tới cằm. Mỗi cú đập sâu, cây hung khí nóng bỏng ấy đều bị ép biến dạng giữa hai khối mềm.
+"Chủ nhân cực kỳ nghiêm khắc nhưng lại khiến người ta không nỡ từ chối thật tàn nhẫn."
 
-Dù phần dưới không tiếp xúc, sự kích thích mạnh của hormone nam và thị giác vẫn khiến khe bí mật giữa đùi cô ấy không kiểm soát tiết nước trong, lặng lẽ thấm ướt quần lót. "Ư... tay mỏi quá... Karl..." Sau mười mấy phút ma sát cường độ cao, cánh tay cô ấy bắt đầu run, động tác chậm lại. Nhưng cây hung khí kẹp trước ngực không hề mềm, ngược lại vì sự nghiền của ngực càng cứng nóng. Karl cực nhạy bén nhận ra sự mệt mỏi của cô ấy. Hắn cười thấp, đôi mắt giả trang nâu lúc này dâng sóng ngầm. Hắn không ép cô ấy tiếp tục, mà cực quả quyết rút một tay, nắm chặt cổ tay cô ấy đang ép ngực, tay kia trực tiếp nắm đáy cây dương vật nhớp nháp của chính hắn. "Phần còn lại để tôi." Hắn siết chặt tay cô ấy, gượng ép dẫn bàn tay cô ấy bọc lên cây trục nóng bỏng, sau đó đưa tay cô ấy với tốc độ cuồng bạo chóng mặt, bắt đầu cú thao túng tay cuối cùng cực mãnh liệt! "Đập đập đập đập!"
+Hắn đến bên giường đơn ngồi xuống, hai chân hơi tách. Thân hình đầy áp lực buộc cô ấy quỳ xuống giữa hai chân hắn. Karl cực ung dung tháo dây nịt, kéo phéc-mơ-tuya. Không còn ràng buộc vải cao cấp, cây dương vật đã căng đến giới hạn, dù hóa thành hình người vẫn kích thước kinh hãi, màu đỏ tím lập tức bật ra.
 
-Tiếng ma sát cực dữ dội giữa lòng bàn tay và trục nổi gân vang trong phòng. Hắn ép cô ấy cảm nhận nhiệt độ kinh hãi cùng nhịp đập của hắn. Dưới sự tự giải tỏa gần như thô bạo và sự ràng buộc đôi tay cô ấy, sức chịu đựng của ác ma cuối cùng bị đẩy đến đỉnh điểm. "Bịt miệng, đừng ra tiếng..." Karl cảnh cáo khàn đặc, cơ bụng trong nháy mắt căng đến cực hạn. "Rì... phù xì... rì rì!" Giây tiếp theo, lỗ mắt ngựa co thắt cực mãnh liệt, một dòng, hai dòng, ba dòng... lượng lớn tinh dịch đục đặc, như vòi nước áp suất cao vỡ đê, cực cuồng bạo phun ra! Tinh dịch nóng bỏng phần lớn cực chuẩn xác bắn lên ngực trắng mềm mại của cô ấy, men theo rãnh bị mài đỏ chảy xuống, còn một phần thậm chí bắn thẳng lên cổ thanh mảnh và xương đòn tinh tế của cô ấy, kéo ra sợi bạc dâm đãng. Trong không khí, mùi tanh ngọt cực nồng đậm của nam tính trong nháy mắt lan tỏa khắp phòng ngủ thiếu nữ ấm áp này.
+Trục thô to nổi gân xanh, lỗ mắt ngựa đã nhỏ giọt dịch tiền liệt tuyến đặc quánh trong suốt, tỏa mùi hoa đá mai nam tính bị ép kích tình.
 
-Cô ấy nằm ngửa trên giường, vì động tác thao túng vừa rất dùng sức, ngực còn dao động dữ dội. Nhìn Karl bộ dáng thỏa mãn chậm rãi chỉnh tề vest, cô ấy thở dốc ra lệnh: "Anh làm... anh tự dọn sạch. Anh tốt nhất dùng ma pháp của anh, xóa sạch mùi trong phòng này đi, không được sót chút nào." "Tuân lệnh, quản lý khắc nghiệt của tôi." Karl cười nhẹ. Đôi tay vừa dính đầy dịch đục vung trong không trung gõ một cái vỗ giòn. Vòng gợn sóng bóng tối mắt thường không thấy như cơn gió nhẹ quét qua toàn phòng. Trong nháy mắt, chất trắng đặc dính trước ngực cô ấy, vệt nước trên sàn, thậm chí mùi tanh ngọt hoa đá mai cực nồng trong không khí, tất cả như bị hố đen nuốt chửng biến mất không dấu vết, thậm chí không để lại vệt nước nhỏ nhất. Phòng ngủ cũ khôi phục mùi nước giặt hòa lẫn sách cũ nhạt nhạt. Dọn xong hiện trường, Karl không có động tác vượt giới nữa.
+"Vì là quy tắc của ngài, với tư cách cấp dưới tất nhiên chỉ biết tuân theo."
 
-Hai tay hắn đút túi quần vest, đôi mắt giả trang nâu sẫm bắt đầu cực chính thức, cực tỉ mỉ ngắm căn phòng cô ấy lớn lên. Từ tủ quần áo dán poster hoạt hình ố vàng đến tài liệu giảng dạy xếp gọn gàng trên giá sách, đến chiếc giường đơn hơi chật. Cảnh tương phản cực mạnh khiến cô ấy hậu tri hậu giác sinh ra chút xấu hổ rõ ràng, cô ấy mới thực sự có cảm giác đưa một nam nhân trưởng thành cực kỳ nguy hiểm vào lĩnh vực đời sống riêng tư tuyệt đối của mình. Để che đậy sự xấu hổ không thoải mái này, cô ấy vội bò dậy khỏi giường, kéo áo, đi đến bên giá sách lấy cuốn album ảnh cũ. "Khạc... anh xem, đây là vài ảnh em chụp trước."
+Ngón tay hơi mát cực nhẹ nhàng nâng cằm cô ấy,
+
+"Nào, Vãn Vãn của tôi. Để tôi xem em sẽ an ủi tôi thế nào."
+
+Cô ấy hít sâu, hai tay thuận tòng ôm đôi bầu ngực hơi run của mình, ép chặt vào giữa. Rãnh sâu tuyết bạc hiện ra trước mắt. Cô ấy cẩn thận áp sát; cây dương nóng như sắt với nhiệt độ bỏng rát chìm vào vòng ôm của đôi ngực cô ấy. "Xì..." Cô ấy không nhịn được hít một hơi. Dù chỉ kẹp trước ngực, ma sát thô ráp mạnh và độ thô khiến tim đập vẫn làm cô ấy run. Hai tay cô ấy ép mặt ngoài ngực, dùng hai khối thịt mềm non nõn, bọc chặt cây dương cứng rắn rồi bắt đầu thao túng lên xuống cực chậm.
+
+"Ùn ùn... Rịch..."
+
+Tiếng nước cực nhỏ mà dâm đãng vang trong phòng ngủ thời thơ ấu yên tĩnh. Đầu to như ô dù phía trước trục với động tác không thuần thục của cô ấy, lần lại lần vất vả phá vỡ sự kẹp của ngực noãn cô ấy, lộ ra đỉnh sung huyết óng ánh. Mỗi lần ép, gân xanh trên trục đều ác ý cạo qua da ngực non nõn, để lại vệt đỏ rực.
+
+"Khô quá."
+
+Giọng Karl trở khàn, thấm chất dục cố nén.
+
+Hắn đưa một tay, ngón tay rõ xương không khách khí véo một hạt núm đang dần cứng sung huyết vì ma sát, mạnh mẽ xoa kéo. Đồng thời ngón cái trượt về lỗ mắt ngựa, cực thành thạo quệt lớp dịch trong suốt đặc quánh tỏa ra, đều đặn bôi lên rãnh ngực và dương vật. Có đủ chất bôi trơn, động tác tiếp theo của cô ấy trong nháy mắt trơn tru và nhớp nháp.
+
+"Phù xì... Phù xì... Phù xì..."
+
+Cô ấy tăng tần suất rung tay. Sóng tuyết bạc hai bên cây dương đỏ tím dao động dữ dội; tương phản thị giác lớn mang lại cảm giác trái đạo khó tả. Karl cực thích thú sự phục tùng thị giác này, hắn dựa đầu giường, hơi thở dần thô.
+
+"Đúng, như vậy... Dùng lực hơn, ép chặt."
+
+Hắn không những dùng lời kích động cô ấy, hông cũng bắt đầu ác ý phối hợp động tác cô ấy chủ động đẩy tới. Đầu to dã man cọ qua xương đòn tinh tế, thậm chí đâm tới cằm. Mỗi cú đập sâu, cây hung khí nóng bỏng ấy đều bị ép biến dạng giữa hai khối mềm.
+
+Dù phần dưới không tiếp xúc, sự kích thích mạnh của hormone nam và thị giác vẫn khiến khe bí mật giữa đùi cô ấy không kiểm soát tiết nước trong, lặng lẽ thấm ướt quần lót.
+
+"Ư... Tay mỏi quá... Karl..."
+
+Sau mười mấy phút ma sát cường độ cao, cánh tay cô ấy bắt đầu run, động tác chậm lại. Nhưng cây hung khí kẹp trước ngực không hề mềm, ngược lại vì sự nghiền của ngực càng cứng nóng. Karl cực nhạy bén nhận ra sự mệt mỏi của cô ấy. Hắn cười thấp, đôi mắt giả trang nâu lúc này dâng sóng ngầm. Hắn không ép cô ấy tiếp tục, mà cực quả quyết rút một tay, nắm chặt cổ tay cô ấy đang ép ngực, tay kia trực tiếp nắm đáy cây dương vật nhớp nháp của chính hắn.
+
+"Phần còn lại để tôi."
+
+Hắn siết chặt tay cô ấy, gượng ép dẫn bàn tay cô ấy bọc lên cây trục nóng bỏng, sau đó đưa tay cô ấy với tốc độ cuồng bạo chóng mặt, bắt đầu cú thao túng tay cuối cùng cực mãnh liệt!
+
+"Đập đập đập đập!"
+
+Tiếng ma sát cực dữ dội giữa lòng bàn tay và trục nổi gân vang trong phòng. Hắn ép cô ấy cảm nhận nhiệt độ kinh hãi cùng nhịp đập của hắn. Dưới sự tự giải tỏa gần như thô bạo và sự ràng buộc đôi tay cô ấy, sức chịu đựng của ác ma cuối cùng bị đẩy đến đỉnh điểm.
+
+"Bịt miệng, đừng ra tiếng..."
+
+Karl cảnh cáo khàn đặc, cơ bụng trong nháy mắt căng đến cực hạn.
+
+"Rì... Phù xì... Rì rì!"
+
+Giây tiếp theo, lỗ mắt ngựa co thắt cực mãnh liệt, một dòng, hai dòng, ba dòng... Lượng lớn tinh dịch đục đặc, như vòi nước áp suất cao vỡ đê, cực cuồng bạo phun ra! Tinh dịch nóng bỏng phần lớn cực chuẩn xác bắn lên ngực trắng mềm mại của cô ấy, men theo rãnh bị mài đỏ chảy xuống, còn một phần thậm chí bắn thẳng lên cổ thanh mảnh và xương đòn tinh tế của cô ấy, kéo ra sợi bạc dâm đãng. Trong không khí, mùi tanh ngọt cực nồng đậm của nam tính trong nháy mắt lan tỏa khắp phòng ngủ thiếu nữ ấm áp này.
+
+Cô ấy nằm ngửa trên giường, vì động tác thao túng vừa rất dùng sức, ngực còn dao động dữ dội. Nhìn Karl bộ dáng thỏa mãn chậm rãi chỉnh tề vest, cô ấy thở dốc ra lệnh:
+
+"Anh làm... Anh tự dọn sạch. Anh tốt nhất dùng ma pháp của anh, xóa sạch mùi trong phòng này đi, không được sót chút nào."
+
+"Tuân lệnh, quản lý khắc nghiệt của tôi."
+
+Karl cười nhẹ. Đôi tay vừa dính đầy dịch đục vung trong không trung gõ một cái vỗ giòn. Vòng gợn sóng bóng tối mắt thường không thấy như cơn gió nhẹ quét qua toàn phòng. Trong nháy mắt, chất trắng đặc dính trước ngực cô ấy, vệt nước trên sàn, thậm chí mùi tanh ngọt hoa đá mai cực nồng trong không khí, tất cả như bị hố đen nuốt chửng biến mất không dấu vết, thậm chí không để lại vệt nước nhỏ nhất. Phòng ngủ cũ khôi phục mùi nước giặt hòa lẫn sách cũ nhạt nhạt. Dọn xong hiện trường, Karl không có động tác vượt giới nữa.
+
+Hai tay hắn đút túi quần vest, đôi mắt giả trang nâu sẫm bắt đầu cực chính thức, cực tỉ mỉ ngắm căn phòng cô ấy lớn lên. Từ tủ quần áo dán poster hoạt hình ố vàng đến tài liệu giảng dạy xếp gọn gàng trên giá sách, đến chiếc giường đơn hơi chật. Cảnh tương phản cực mạnh khiến cô ấy hậu tri hậu giác sinh ra chút xấu hổ rõ ràng, cô ấy mới thực sự có cảm giác đưa một nam nhân trưởng thành cực kỳ nguy hiểm vào lĩnh vực đời sống riêng tư tuyệt đối của mình. Để che đậy sự xấu hổ không thoải mái này, cô ấy vội bò dậy khỏi giường, kéo áo, đi đến bên giá sách lấy cuốn album ảnh cũ.
+
+"Khạc... Anh xem, đây là vài ảnh em chụp trước."
 
 Cô ấy hơi bối rối lật album, chỉ những ảnh hơi phai màu.
 
-"Đây là ảnh em chơi chụp trước, còn ảnh chung với cô ấy cùng lớp hồi cấp ba..." Karl cực phối hợp đi đến bên cô ấy, hơi cúi xuống, men theo đầu ngón tay cô ấy nhìn. Hơi nước hoa cao cấp sạch lạnh của hắn bao trùm cô ấy. Hắn nhìn cô gái nhân loại để tóc mái thẳng, nụ cười non nớt vô ưu trong ảnh, ánh mắt lộ vẻ chuyên chú khó tả cùng sự tham lam bí mật, như muốn qua những mảnh giấy này bù đắp hết hơn hai mươi năm quá khứ của cô ấy mà hắn chưa tham dự. "Ngài lúc đó trông... rất mềm mại, và không phòng bị." Giọng hắn rất nhẹ, mang chút thở dài nguy hiểm của ác ma. Cô ấy hoàn toàn chìm đắm trong nỗi nhớ năm tháng hòa bình quá khứ, vừa lẩm bẩm kể chuyện lốc sau mỗi tấm ảnh, vừa tùy tay mở ngăn kéo đầu giường lớp đầu: "Em nhớ bên trong còn vài quà lưu niệm mua khi du lịch..." Chưa dứt lời, cả người cô ấy trong nháy mắt cứng đờ.
+"Đây là ảnh em chơi chụp trước, còn ảnh chung với cô ấy cùng lớp hồi cấp ba..."
+
+Karl cực phối hợp đi đến bên cô ấy, hơi cúi xuống, men theo đầu ngón tay cô ấy nhìn. Hơi nước hoa cao cấp sạch lạnh của hắn bao trùm cô ấy. Hắn nhìn cô gái nhân loại để tóc mái thẳng, nụ cười non nớt vô ưu trong ảnh, ánh mắt lộ vẻ chuyên chú khó tả cùng sự tham lam bí mật, như muốn qua những mảnh giấy này bù đắp hết hơn hai mươi năm quá khứ của cô ấy mà hắn chưa tham dự.
+
+"Ngài lúc đó trông... Rất mềm mại, và không phòng bị."
+
+Giọng hắn rất nhẹ, mang chút thở dài nguy hiểm của ác ma. Cô ấy hoàn toàn chìm đắm trong nỗi nhớ năm tháng hòa bình quá khứ, vừa lẩm bẩm kể chuyện lốc sau mỗi tấm ảnh, vừa tùy tay mở ngăn kéo đầu giường lớp đầu:
+
+"Em nhớ bên trong còn vài quà lưu niệm mua khi du lịch..."
+
+Chưa dứt lời, cả người cô ấy trong nháy mắt cứng đờ.
 
 Khi ngăn kéo mở ra, hiện ra trước mắt hoàn toàn không phải quà lưu niệm chính quy. Trong khe vài cuốn nhật ký cũ, cực đột ngột nằm một quả trứng rung silicon màu hồng đào, cùng một cây máy massage cùng tông màu phủ chút bụi. Đó là đồ chơi nhỏ cô ấy dùng khi là nữ độc thân ở nhân gian, để trong những đêm cực cô đơn xua nỗi trống trải. Bị đưa xuống địa ngục gần hai tháng, mỗi ngày trôi qua trong tính toán áp lực cao và cám dỗ ác ma chân thực, cô ấy đã quên những vật chết ấy đến tận chín tầng mây. Mà giờ đây, chúng cực ngang ngược, cực không che đậy phơi bày trước tầm nhìn cô ấy và Karl. Không khí lúc này như hoàn toàn đông cứng. Mọi âm thanh đều bị nhấn tạm dừng. Má cô ấy trong nháy mắt đỏ bừng, nhiệt độ cao gần như có thể rán trứng. Cảm giác chết xã hội cực thảm khiến cô ấy muốn dùng ngón chân khoét sàn gỗ ra đường đến địa ngục.
 
-Cô ấy không dám nhìn hộp đồ chơi, thậm chí không có can đảm quay đầu nhìn má Karl, chỉ cảm thấy áp suất bên cạnh đang giảm với tốc độ kinh hãi. Sau sự im lặng chết chóc ngắn ngủi cực mài mòn. Một bàn tay xanh xao rõ xương, thịt đều đặn cực chậm chạp đưa từ bên cạnh cô ấy ra. Đầu ngón tay hơi mát lướt qua mu bàn tay cô ấy, Karl trước mặt cô ấy cực ung dung dùng ngón tay kẹp quả trứng rung màu hồng đào ra khỏi ngăn kéo. Đồ chơi silicon rẻ tiền mang cảm giác công nghệ hiện đại, được tay ác ma cao giai thẩm mỹ cao nắm trong tay, hình ảnh tràn đầy cảm giác báng bổ kỳ quái. "Có vẻ..." Giọng Karl trầm khàn u ám, từng chữ như được nghiền cực chậm trên đầu lưỡi, "Trước khi gặp tôi, ngài trong phòng này trải qua đêm dài, cũng không như tôi tưởng... thanh tâm quả dục." Hắn hơi nghiêng đầu, đôi mắt nâu sẫm u u nhìn má cô ấy gần chảy máu, ngón cái ác ý nhẹ gẩy công tắc quả trứng rung. ""
+Cô ấy không dám nhìn hộp đồ chơi, thậm chí không có can đảm quay đầu nhìn má Karl, chỉ cảm thấy áp suất bên cạnh đang giảm với tốc độ kinh hãi. Sau sự im lặng chết chóc ngắn ngủi cực mài mòn. Một bàn tay xanh xao rõ xương, thịt đều đặn cực chậm chạp đưa từ bên cạnh cô ấy ra. Đầu ngón tay hơi mát lướt qua mu bàn tay cô ấy, Karl trước mặt cô ấy cực ung dung dùng ngón tay kẹp quả trứng rung màu hồng đào ra khỏi ngăn kéo. Đồ chơi silicon rẻ tiền mang cảm giác công nghệ hiện đại, được tay ác ma cao giai thẩm mỹ cao nắm trong tay, hình ảnh tràn đầy cảm giác báng bổ kỳ quái.
 
-Oong, " Tiếng rung yếu rẻ tiền vang lên đột ngột trong phòng ngủ cực yên tĩnh. Trên gương mặt tuấn mỹ hoàn mỹ của Karl, chậm rãi nổi lên nụ cười lạnh cực kỳ bệnh hoạn, tràn đầy sự chiếm hữu bài trừ. Hắn hơi cúi xuống, hơi thở nóng phả cực nguy hiểm lên cổ cô ấy: "Vãn Vãn của tôi, ngài giờ đã có 'trợ lý riêng' trực chiến suốt ngày và thể lực không bao giờ kiệt. Thứ chết thô ráp, không nhiệt độ này, có nên triệt để đào thải khỏi thế giới của ngài không?" Trong phòng ngủ rộng rãi yên tĩnh, cô ấy ngồi trên mép giường, nhìn đôi mắt sâu thẳm u ám của Karl, dù xấu hổ đến mức ngón chân bấu sàn, vẫn không nhịn được cố gắng nhỏ tiếng phản bác: "Khạc, đây không phải vật chết không nhiệt độ, sau khi cắm điện... cây máy massage này sẽ nóng lên." Vừa dứt lời, cô ấy muốn cắn đứt lưỡi. Trong lúc như vậy lại đi giới thiệu chức năng đồ chơi tình dục, chính cô ấy cũng không biết mình nghĩ gì. Karl rõ ràng sửng sốt."
+"Có vẻ..."
 
-Sau đó, gương mặt nghiêm khắc tiết dục rõ ràng nhạt đi lớp ôn nhu giả trang. Hắn cúi đôi mắt giả trang nâu sẫm, nhìn cây máy massage màu hồng đào hơi thô trong tay, môi mỏng cong lên nụ cười ác ý, thậm chí mang chút tàn nhẫn. "Sẽ nóng?" Ngón tay thon dài của hắn cực linh hoạt mò trên tay cầm silicon rẻ tiền, cực chuẩn xác nhấn công tắc nóng và rung ở đáy. "Oong, !" Theo tiếng kêu máy ồn hơn quả trứng rung nhiều, cây máy massage đầu tròn trong nháy mắt rung cực dữ dội trên đầu ngón Karl. Vòng đèn chỉ thị đỏ nhỏ sáng lên, nhiệt độ bề mặt silicon bắt đầu tăng với tốc độ không tự nhiên. "Thì ra vậy. Dùng dòng điện vô cùng nhỏ bé mô phỏng nhiệt độ cơ thể con người, cố gắng nhờ đó lấp đầy sự trống rỗng ban đêm..." Karl ngẩng mi mắt, đôi mắt sâu không đáy cực nguy hiểm khóa chặt cô ấy.
+Giọng Karl trầm khàn u ám, từng chữ như được nghiền cực chậm trên đầu lưỡi,
 
-Hắn bước tới, áp đảo từ trên cao, một tay gượng ép đè lên vai cô ấy, trực tiếp đẩy cô ấy ngã lên chăn mềm trải ga hoa của giường đơn. "Vì nó 'chu đáo' như vậy, vậy tôi xem thử phế phẩm biết nóng này rốt cuộc khiến bông hoa quý giá của ngài nhả ra bao nhiêu mật ngọt." Hắn không cho cô ấy không gian trốn tránh. Bàn tay đeo đồng hồ cực gọn gàng đưa về phía vạt váy cô ấy, đầu ngón tay thon hơi mát cực thô bạo móc mép quần lót đã bị kinh sợ và bản năng dục vọng thấm hơi ướt, không chút thương tiếc vén sang một bên. Hai mảnh thịt mềm khép chặt, hơi phớt hồng, cùng hạt châu ẩn ở trên cùng vì ma sát trước ngực vừa rồi hơi sung huyết sưng, trong nháy mắt hoàn toàn phơi bày trước không khí hơi tối. "Không... đợi đã Karl, em vừa nói..." Cô ấy hoảng hốt muốn khép chân, nhưng tay kia của Karl đã cực mạnh mẽ kẹp đầu gối cô ấy, gập hai chân cô ấy dang cực rộng về hai bên.
+"Trước khi gặp tôi, ngài trong phòng này trải qua đêm dài, cũng không như tôi tưởng... Thanh tâm quả dục."
 
-Không lời thừa, hắn cầm cây máy massage màu hồng đào đã hoàn toàn nóng, cực rung dữ dội, cực chuẩn xác và không chút thương tiếc ấn thẳng lên phía trên lỗ hang cô ấy dang rộng, âm vật cực nhạy cảm! "Ỉ à, !!!" Luồng chấn động tần số cao kinh hãi mang nhiệt độ nóng bỏng, trong nháy mắt men theo hạt thịt nhỏ đầy đầu dây thần kinh ấy như sét đánh cực cuồng bạo xuyên khắp toàn thân cô ấy! Cả người cô ấy như con cá mất nước, trên giường cực dữ dội giật một cái. Hai tay siết chặt ga hoa dưới thân, gáy gắng ngửa ra sau, cổ kéo một đường cong mong manh đẹp đẽ. "Oong oong oong oong, " Tiếng động cơ rẻ tiền rung trong phòng ngủ đóng kín nghe cực chói tai. Khác với ngón tay Karl luôn mang nhiệt độ hơi mát, cây máy này tỏa hơi nóng chết cứng, sự đập nhanh tần số cực mạnh đơn điệu hoàn toàn không lí lẽ tước đoạt năng lực suy nghĩ của cô ấy. "Ư... ư ư... bỏ đi... quá kích thích... ha à..."
+Hắn hơi nghiêng đầu, đôi mắt nâu sẫm u u nhìn má cô ấy gần chảy máu, ngón cái ác ý nhẹ gẩy công tắc quả trứng rung. ""
 
-Cô ấy mắt đẫm lệ khóc van, hai chân vì khoái cảm cực tê đến gần đau không kiểm soát run điên cuồng. Karl không đưa vào, hắn chỉ dùng đầu cây máy massage thô dài ác ý nghiền bên ngoài hang hoa cô ấy. Silicon nóng bỏng cực nặng nề đè lên âm phủ, men theo khe nhớp nháp kéo xuống cực chậm, sau đó lại cực mãnh liệt chọc trở lại hạt châu đã sưng đỏ rực, ấn chặt. "Vậy đã không được rồi? Vừa nãy không còn cực lực giới thiệu tác dụng của nó với tôi à?" Karl một tay chống bên cạnh cô ấy, cúi xuống nhìn biểu cảm cô ấy dần sụp đổ vì cây máy chết cứng. Đồng tử nâu sẫm giả trang hoàn mỹ ban đầu, giờ vì sự chiếm hữu và phấn khích cực độ, dần thấm ra màu đen thuần đặc quánh kinh hãi vốn thuộc sứ ma bóng tối. Dưới sự ấn ép gượng bức của hắn, khe hở cực riêng tư phần dưới cô ấy bắt đầu không kiểm soát điên cuồng tiết dịch yêu. "Ùn ùn... rịch nước..."
+Oong,
 
-Dịch trong suốt cực đặc quánh như vỡ đê từ sâu hang hoa trào ra, trong nháy mắt tưới ướt cây máy massage màu hồng đào. Nước thừa men vân silicon chảy xuống, thấm ga giường dưới thân cô ấy ra vệt nước sẫm dâm đãng. "Nghe tiếng nước hạ lưu này..." Karl cực ác ý nhấc cây máy massage đầy dịch đặc của cô ấy lên chút, dịch bạc kéo sợi lắc lư cực dâm đãng giữa không trung, "Thứ phế liệu máy móc lạnh lẽo này quả nhiên dễ dàng ép cơ thể ngài bộc phát bản năng động dục..." Hắn dừng rung đột ngột, vứt thân cây nóng bỏng cực chán ghét xuống sàn. "Nhưng nó mãi mãi không nghe được tiếng khóc của ngài, mãi mãi không cảm nhận được run rẩy của ngài." Karl dùng đôi ngón tay hơi mát, cực chân thực thon dài của hắn, cực mạnh mẽ thay thế vị trí vừa rồi. Ngón giữa và ngón trỏ cực thô bạo tách những thịt mềm non bị máy rung sưng đỏ, trực tiếp cực sâu đâm vào đường hầm hang hoa nhớp nháp nóng ẩm! "Á!"
+" Tiếng rung yếu rẻ tiền vang lên đột ngột trong phòng ngủ cực yên tĩnh. Trên gương mặt tuấn mỹ hoàn mỹ của Karl, chậm rãi nổi lên nụ cười lạnh cực kỳ bệnh hoạn, tràn đầy sự chiếm hữu bài trừ. Hắn hơi cúi xuống, hơi thở nóng phả cực nguy hiểm lên cổ cô ấy: "
 
-Cảm nhận nhiệt độ của hắn và đầu ngón thô cào qua thành trong cực nhạy cảm, cô ấy thốt tiếng kêu the thé cực ngọt. "Nhìn rõ, Vãn Vãn." Đầu ngón Karl cực xảo quyệt ở chỗ sâu nhất cực dùng sức móc, móc ra lượng lớn chất nhầy, "Bây giờ mang khoái cảm cho ngài là ai, không phải thứ chết vô dụng đó, là tôi, là trợ lý ác ma của ngài." "Ư..." Đối mặt sự móc nghiền cực cuồng bạo sâu trong đường hầm, cô ấy siết chặt dùng hai tay bịt miệng, chặn tiếng kêu the thé gần phá cổ họng cực lúng túng. Nước mắt hoàn toàn mờ tầm nhìn, men khóe mắt phớt hồng rực trượt xuống, chìm vào tóc mai. Căn hộ cũ này cách âm thực sự quá tệ, dù cha mẹ giờ không nhà, tiếng bước chân hàng xóm thỉnh thoảng qua hành lang cũng như thanh kiếm Đạm Mạch Lợi Tư treo trên đầu, cực tàn nhẫn buộc cô ấy giữ sự yên lặng tuyệt đối. Tuy nhiên, càng kìm nén, giác quan cơ thể càng bị phóng đại.
+Vãn Vãn của tôi, ngài giờ đã có 'trợ lý riêng' trực chiến suốt ngày và thể lực không bao giờ kiệt. Thứ chết thô ráp, không nhiệt độ này, có nên triệt để đào thải khỏi thế giới của ngài không?
 
-Đôi ngón hơi mát, rõ xương của Karl trong đường hầm nhớp nháp nóng ẩm sâu mở đóng. Mỗi lần đầu ngón thô dùng sức ngoắc lên đều chuẩn xác vạch qua miếng thịt mềm nhạy cảm ẩn sâu. "Ùn ùn... phù xì... rì rì..." Mất sự che chắn của giọng cô ấy, tiếng nước cực dâm đãng phần dưới trong phòng ngủ thời thơ ấu yên tĩnh bị phóng đại vô hạn. Càng căng thẳng siết chặt thành trong, dịch trong suốt bị ép ra càng nhiều, men gốc đùi cực tàn tạ chảy lên ga hoa. Không những vậy, theo sự tăng tốc ác ý của hắn, chiếc giường đơn trải qua gió sương cũng bắt đầu phát ra tiếng "cọt kẹt" nguy hiểm không chịu nổi. "Suỵt, nhịn thật tốt, Vãn Vãn." Karl nhìn cô ấy vì gượng nhịn rên mà cực đau đớn, run toàn thân, đôi mắt nâu sẫm dâng sóng mực đặc. Hắn không những không chậm lại, trái lại cố ý gập ngón tay thành góc xảo quyệt, như móc sắt sắc bén, bất ngờ móc miếng thịt mềm sâu nhất của cô ấy, kéo mạnh. "Ư ư!"
+" Trong phòng ngủ rộng rãi yên tĩnh, cô ấy ngồi trên mép giường, nhìn đôi mắt sâu thẳm u ám của Karl, dù xấu hổ đến mức ngón chân bấu sàn, vẫn không nhịn được cố gắng nhỏ tiếng phản bác: "
 
-Cả người cô ấy giật cứng, hai chân siết chặt cẳng tay hắn, mu bàn chân trong nháy mắt duỗi thẳng. Cô ấy siết chặt cắn mu bàn tay, thậm chí cắn ra vết răng sâu, nước mắt như chuỗi hạt đứt dây lăn xuống. "Sao phải bịt mình?" Karl quỳ một gối trên mép giường, hơi cúi xuống. Hắn đưa tay rảnh, cực gượng ép không cho từ chối bẻ đôi tay cô ấy bịt miệng, đè mu bàn tay bị cắn vết răng lên gối. "Trong lãnh địa riêng tư chỉ thuộc về ngài, nếu chỉ tấm ván giường cũ thay ngài gào, vậy với tư cách trợ lý riêng của ngài, tôi sẽ cảm thấy cực thất bại." Hắn cúi đầu, gương mặt cực tuấn mỹ đầy áp lực gần áp mũi cô ấy. Hơi thở nóng của hắn đan xen hơi thở gấp của cô ấy, môi mỏng hơi mát cực chuẩn xác hôn nước mắt khóe mắt cô ấy, sau đó cực bá đạo phong kín môi đỏ hé của cô ấy. Hắn dùng môi và lưỡi của mình cực hoàn mỹ thay thế đôi tay cô ấy, làm rào chắn cách âm. "Ư... ừm à..."
+Khạc, đây không phải vật chết không nhiệt độ, sau khi cắm điện... Cây máy massage này sẽ nóng lên.
 
-Mọi tiếng rên the thé đều bị hắn nuốt vào khoang miệng cực trơn ướt. Lưỡi dài linh hoạt cực tham lam quét qua kẽ răng cô ấy, hút dịch tiết vì dục vọng. Ở dưới, đôi ngón chôn trong cô ấy cũng đón cú chạy nước rút cuối cùng cực mưa bão. Dưới sự kẹp kép nụ hôn sâu ngạt thở và chỉ giao cực sâu, khoái cảm trong cơ thể cô ấy như sóng thần hoàn toàn bùng nổ. "Rì, oà à!" Theo cơn run cực dữ dội như điện giật của cơ thể cô ấy, lượng lớn dịch trong suốt cực đặc quánh như nước lũ vỡ đê cực cuồng cuồng từ lỗ hang hoàn toàn mất kiểm soát của cô ấy phun ra! Nước nóng bỏng trong nháy mắt tưới ướt ngón tay Karl, men kẽ ngón tay chảy xuống tàn tạ, biến tấm ga hoa nhiều năm dưới thân cô ấy thành vũng nước sẫm cực dâm đãng. Thậm chí một ít dịch nhớt bắn lên ống tay áo vest xám bạc của hắn. Cô ấy cực vô lực nằm mềm trên giường, mắt hơi ngửa mà thất thần, ngực dao động dữ dội, tham lam hít thở không khí.
+" Vừa dứt lời, cô ấy muốn cắn đứt lưỡi. Trong lúc như vậy lại đi giới thiệu chức năng đồ chơi tình dục, chính cô ấy cũng không biết mình nghĩ gì. Karl rõ ràng sửng sốt."
 
-Karl cực chậm dừng động tác đầu ngón, nhưng không lập tức rút ra. Hắn cực sâu ở lại chỗ sâu cực hạn của cô ấy, cảm nhận những thịt mềm nóng ẩm ấy trong dư vị tuyệt đỉnh từng cái từng cái siết chặt ngón tay hắn. Đôi mắt giả trang nâu sẫm của hắn dâng sóng sáng tối cực đặc quánh, cực thỏa mãn. Hắn cúi xuống nhìn bộ dáng cô ấy như vừa vớt từ nước, bị hắn "làm hỏng" hoàn toàn, sát tai cô ấy cực ác ý cười thấp. Karl ngón tay thon ở chỗ nhạy cảm sâu nhất cực nhẹ móc, khiến cô ấy lại thốt tiếng rên co giật nhẹ, "Bây giờ, Vãn Vãn của tôi, còn tiếp tục giới thiệu cho tôi thứ chết biết nóng ấy có bao nhiêu tác dụng không? Ừm?" Cô ấy đến sức trừng hắn cũng không có, chỉ cực yếu ớt nhắm mắt, khóe mắt còn treo nước mắt sinh lý.
+Sau đó, gương mặt nghiêm khắc tiết dục rõ ràng nhạt đi lớp ôn nhu giả trang. Hắn cúi đôi mắt giả trang nâu sẫm, nhìn cây máy massage màu hồng đào hơi thô trong tay, môi mỏng cong lên nụ cười ác ý, thậm chí mang chút tàn nhẫn.
+
+"Sẽ nóng?"
+
+Ngón tay thon dài của hắn cực linh hoạt mò trên tay cầm silicon rẻ tiền, cực chuẩn xác nhấn công tắc nóng và rung ở đáy.
+
+"Oong, !"
+
+Theo tiếng kêu máy ồn hơn quả trứng rung nhiều, cây máy massage đầu tròn trong nháy mắt rung cực dữ dội trên đầu ngón Karl. Vòng đèn chỉ thị đỏ nhỏ sáng lên, nhiệt độ bề mặt silicon bắt đầu tăng với tốc độ không tự nhiên.
+
+"Thì ra vậy. Dùng dòng điện vô cùng nhỏ bé mô phỏng nhiệt độ cơ thể con người, cố gắng nhờ đó lấp đầy sự trống rỗng ban đêm..."
+
+Karl ngẩng mi mắt, đôi mắt sâu không đáy cực nguy hiểm khóa chặt cô ấy.
+
+Hắn bước tới, áp đảo từ trên cao, một tay gượng ép đè lên vai cô ấy, trực tiếp đẩy cô ấy ngã lên chăn mềm trải ga hoa của giường đơn.
+
+"Vì nó 'chu đáo' như vậy, vậy tôi xem thử phế phẩm biết nóng này rốt cuộc khiến bông hoa quý giá của ngài nhả ra bao nhiêu mật ngọt."
+
+Hắn không cho cô ấy không gian trốn tránh. Bàn tay đeo đồng hồ cực gọn gàng đưa về phía vạt váy cô ấy, đầu ngón tay thon hơi mát cực thô bạo móc mép quần lót đã bị kinh sợ và bản năng dục vọng thấm hơi ướt, không chút thương tiếc vén sang một bên. Hai mảnh thịt mềm khép chặt, hơi phớt hồng, cùng hạt châu ẩn ở trên cùng vì ma sát trước ngực vừa rồi hơi sung huyết sưng, trong nháy mắt hoàn toàn phơi bày trước không khí hơi tối.
+
+"Không... Đợi đã Karl, em vừa nói..."
+
+Cô ấy hoảng hốt muốn khép chân, nhưng tay kia của Karl đã cực mạnh mẽ kẹp đầu gối cô ấy, gập hai chân cô ấy dang cực rộng về hai bên.
+
+Không lời thừa, hắn cầm cây máy massage màu hồng đào đã hoàn toàn nóng, cực rung dữ dội, cực chuẩn xác và không chút thương tiếc ấn thẳng lên phía trên lỗ hang cô ấy dang rộng, âm vật cực nhạy cảm!
+
+"Ỉ à, !!!"
+
+Luồng chấn động tần số cao kinh hãi mang nhiệt độ nóng bỏng, trong nháy mắt men theo hạt thịt nhỏ đầy đầu dây thần kinh ấy như sét đánh cực cuồng bạo xuyên khắp toàn thân cô ấy! Cả người cô ấy như con cá mất nước, trên giường cực dữ dội giật một cái. Hai tay siết chặt ga hoa dưới thân, gáy gắng ngửa ra sau, cổ kéo một đường cong mong manh đẹp đẽ.
+
+"Oong oong oong oong, "
+
+Tiếng động cơ rẻ tiền rung trong phòng ngủ đóng kín nghe cực chói tai. Khác với ngón tay Karl luôn mang nhiệt độ hơi mát, cây máy này tỏa hơi nóng chết cứng, sự đập nhanh tần số cực mạnh đơn điệu hoàn toàn không lí lẽ tước đoạt năng lực suy nghĩ của cô ấy.
+
+"Ư... Ư ư... Bỏ đi... Quá kích thích... Ha à..."
+
+Cô ấy mắt đẫm lệ khóc van, hai chân vì khoái cảm cực tê đến gần đau không kiểm soát run điên cuồng. Karl không đưa vào, hắn chỉ dùng đầu cây máy massage thô dài ác ý nghiền bên ngoài hang hoa cô ấy. Silicon nóng bỏng cực nặng nề đè lên âm phủ, men theo khe nhớp nháp kéo xuống cực chậm, sau đó lại cực mãnh liệt chọc trở lại hạt châu đã sưng đỏ rực, ấn chặt.
+
+"Vậy đã không được rồi? Vừa nãy không còn cực lực giới thiệu tác dụng của nó với tôi à?"
+
+Karl một tay chống bên cạnh cô ấy, cúi xuống nhìn biểu cảm cô ấy dần sụp đổ vì cây máy chết cứng. Đồng tử nâu sẫm giả trang hoàn mỹ ban đầu, giờ vì sự chiếm hữu và phấn khích cực độ, dần thấm ra màu đen thuần đặc quánh kinh hãi vốn thuộc sứ ma bóng tối. Dưới sự ấn ép gượng bức của hắn, khe hở cực riêng tư phần dưới cô ấy bắt đầu không kiểm soát điên cuồng tiết dịch yêu.
+
+"Ùn ùn... Rịch nước..."
+
+Dịch trong suốt cực đặc quánh như vỡ đê từ sâu hang hoa trào ra, trong nháy mắt tưới ướt cây máy massage màu hồng đào. Nước thừa men vân silicon chảy xuống, thấm ga giường dưới thân cô ấy ra vệt nước sẫm dâm đãng.
+
+"Nghe tiếng nước hạ lưu này..."
+
+Karl cực ác ý nhấc cây máy massage đầy dịch đặc của cô ấy lên chút, dịch bạc kéo sợi lắc lư cực dâm đãng giữa không trung,
+
+"Thứ phế liệu máy móc lạnh lẽo này quả nhiên dễ dàng ép cơ thể ngài bộc phát bản năng động dục..."
+
+Hắn dừng rung đột ngột, vứt thân cây nóng bỏng cực chán ghét xuống sàn.
+
+"Nhưng nó mãi mãi không nghe được tiếng khóc của ngài, mãi mãi không cảm nhận được run rẩy của ngài."
+
+Karl dùng đôi ngón tay hơi mát, cực chân thực thon dài của hắn, cực mạnh mẽ thay thế vị trí vừa rồi. Ngón giữa và ngón trỏ cực thô bạo tách những thịt mềm non bị máy rung sưng đỏ, trực tiếp cực sâu đâm vào đường hầm hang hoa nhớp nháp nóng ẩm! "Á!"
+
+Cảm nhận nhiệt độ của hắn và đầu ngón thô cào qua thành trong cực nhạy cảm, cô ấy thốt tiếng kêu the thé cực ngọt.
+
+"Nhìn rõ, Vãn Vãn."
+
+Đầu ngón Karl cực xảo quyệt ở chỗ sâu nhất cực dùng sức móc, móc ra lượng lớn chất nhầy,
+
+"Bây giờ mang khoái cảm cho ngài là ai, không phải thứ chết vô dụng đó, là tôi, là trợ lý ác ma của ngài."
+
+"Ư..." Đối mặt sự móc nghiền cực cuồng bạo sâu trong đường hầm, cô ấy siết chặt dùng hai tay bịt miệng, chặn tiếng kêu the thé gần phá cổ họng cực lúng túng. Nước mắt hoàn toàn mờ tầm nhìn, men khóe mắt phớt hồng rực trượt xuống, chìm vào tóc mai. Căn hộ cũ này cách âm thực sự quá tệ, dù cha mẹ giờ không nhà, tiếng bước chân hàng xóm thỉnh thoảng qua hành lang cũng như thanh kiếm Đạm Mạch Lợi Tư treo trên đầu, cực tàn nhẫn buộc cô ấy giữ sự yên lặng tuyệt đối. Tuy nhiên, càng kìm nén, giác quan cơ thể càng bị phóng đại.
+
+Đôi ngón hơi mát, rõ xương của Karl trong đường hầm nhớp nháp nóng ẩm sâu mở đóng. Mỗi lần đầu ngón thô dùng sức ngoắc lên đều chuẩn xác vạch qua miếng thịt mềm nhạy cảm ẩn sâu.
+
+"Ùn ùn... Phù xì... Rì rì..."
+
+Mất sự che chắn của giọng cô ấy, tiếng nước cực dâm đãng phần dưới trong phòng ngủ thời thơ ấu yên tĩnh bị phóng đại vô hạn. Càng căng thẳng siết chặt thành trong, dịch trong suốt bị ép ra càng nhiều, men gốc đùi cực tàn tạ chảy lên ga hoa. Không những vậy, theo sự tăng tốc ác ý của hắn, chiếc giường đơn trải qua gió sương cũng bắt đầu phát ra tiếng "cọt kẹt" nguy hiểm không chịu nổi.
+
+"Suỵt, nhịn thật tốt, Vãn Vãn."
+
+Karl nhìn cô ấy vì gượng nhịn rên mà cực đau đớn, run toàn thân, đôi mắt nâu sẫm dâng sóng mực đặc. Hắn không những không chậm lại, trái lại cố ý gập ngón tay thành góc xảo quyệt, như móc sắt sắc bén, bất ngờ móc miếng thịt mềm sâu nhất của cô ấy, kéo mạnh. "Ư ư!"
+
+Cả người cô ấy giật cứng, hai chân siết chặt cẳng tay hắn, mu bàn chân trong nháy mắt duỗi thẳng. Cô ấy siết chặt cắn mu bàn tay, thậm chí cắn ra vết răng sâu, nước mắt như chuỗi hạt đứt dây lăn xuống.
+
+"Sao phải bịt mình?"
+
+Karl quỳ một gối trên mép giường, hơi cúi xuống. Hắn đưa tay rảnh, cực gượng ép không cho từ chối bẻ đôi tay cô ấy bịt miệng, đè mu bàn tay bị cắn vết răng lên gối.
+
+"Trong lãnh địa riêng tư chỉ thuộc về ngài, nếu chỉ tấm ván giường cũ thay ngài gào, vậy với tư cách trợ lý riêng của ngài, tôi sẽ cảm thấy cực thất bại."
+
+Hắn cúi đầu, gương mặt cực tuấn mỹ đầy áp lực gần áp mũi cô ấy. Hơi thở nóng của hắn đan xen hơi thở gấp của cô ấy, môi mỏng hơi mát cực chuẩn xác hôn nước mắt khóe mắt cô ấy, sau đó cực bá đạo phong kín môi đỏ hé của cô ấy. Hắn dùng môi và lưỡi của mình cực hoàn mỹ thay thế đôi tay cô ấy, làm rào chắn cách âm.
+
+"Ư... Ừm à..."
+
+Mọi tiếng rên the thé đều bị hắn nuốt vào khoang miệng cực trơn ướt. Lưỡi dài linh hoạt cực tham lam quét qua kẽ răng cô ấy, hút dịch tiết vì dục vọng. Ở dưới, đôi ngón chôn trong cô ấy cũng đón cú chạy nước rút cuối cùng cực mưa bão. Dưới sự kẹp kép nụ hôn sâu ngạt thở và chỉ giao cực sâu, khoái cảm trong cơ thể cô ấy như sóng thần hoàn toàn bùng nổ.
+
+"Rì, oà à!"
+
+Theo cơn run cực dữ dội như điện giật của cơ thể cô ấy, lượng lớn dịch trong suốt cực đặc quánh như nước lũ vỡ đê cực cuồng cuồng từ lỗ hang hoàn toàn mất kiểm soát của cô ấy phun ra! Nước nóng bỏng trong nháy mắt tưới ướt ngón tay Karl, men kẽ ngón tay chảy xuống tàn tạ, biến tấm ga hoa nhiều năm dưới thân cô ấy thành vũng nước sẫm cực dâm đãng. Thậm chí một ít dịch nhớt bắn lên ống tay áo vest xám bạc của hắn. Cô ấy cực vô lực nằm mềm trên giường, mắt hơi ngửa mà thất thần, ngực dao động dữ dội, tham lam hít thở không khí.
+
+Karl cực chậm dừng động tác đầu ngón, nhưng không lập tức rút ra. Hắn cực sâu ở lại chỗ sâu cực hạn của cô ấy, cảm nhận những thịt mềm nóng ẩm ấy trong dư vị tuyệt đỉnh từng cái từng cái siết chặt ngón tay hắn. Đôi mắt giả trang nâu sẫm của hắn dâng sóng sáng tối cực đặc quánh, cực thỏa mãn. Hắn cúi xuống nhìn bộ dáng cô ấy như vừa vớt từ nước, bị hắn "làm hỏng" hoàn toàn, sát tai cô ấy cực ác ý cười thấp. Karl ngón tay thon ở chỗ nhạy cảm sâu nhất cực nhẹ móc, khiến cô ấy lại thốt tiếng rên co giật nhẹ,
+
+"Bây giờ, Vãn Vãn của tôi, còn tiếp tục giới thiệu cho tôi thứ chết biết nóng ấy có bao nhiêu tác dụng không? Ừm?"
+
+Cô ấy đến sức trừng hắn cũng không có, chỉ cực yếu ớt nhắm mắt, khóe mắt còn treo nước mắt sinh lý.
 
 ---
 
 ## Chương 83 – Có Kinh Không Hiểm
 
-"Cốc, cốc." Đúng lúc ấy, cảm giác nguy hiểm cực kỳ chết người bất chợt ập tới! Kim đồng hồ treo tường đã âm thầm chạm gần mười hai giờ, còn ngoài cửa vọng lại tiếng chìa khóa cắm vào ổ khóa sắt. "Ông Lâm, đem túi sườn vào bếp, tôi đi gọi Vãn Vãn họ ra ăn dưa hấu..." Giọng bà Lý vang và xuyên thấu vọng qua cánh cửa gỗ. "Ư!" Cô ấy sợ hãi mở to mắt, run mạnh. Karl ánh mắt cũng sắc lại. Dù ở phàm thế ma lực của hắn bị áp chế, nhưng cảm giác căng thẳng cực kích thích khi sắp bị "nhạc mẫu" bắt tại trận khiến hắn sinh ra một thứ hưng phấn bí mật. "Suỵt." Hắn cực nhanh rút hai ngón tay dính đầy dịch đặc của cô ấy ra khỏi hang hoa đầy nhớt. "Bùm" một tiếng, sợi bạc trong suốt cực thô trong không trung bị kéo đứt. "Để tôi lo." Hắn không thừa lời, đứng dậy trong nháy mắt, đôi bàn tay vừa rút từ trong cô ấy ra chưa kịp lau chùi đã cực nhanh vung trong không trung một cái vỗ giòn. Một vòng gợn sóng bóng tối bạc xám nhạt như sóng nước quét mãnh liệt qua toàn bộ chiếc giường đơn. Chuyện cực kỳ không thể tin đã xảy ra. Dịch nhớt cực dơ bẩn ở đùi trong cô ấy, vệt nước sẫm lớn trên ga giường, cùng cây máy hắn vứt xuống sàn dính đầy nước, tất cả trong bóng tối nuốt chửng biến mất không dấu vết, thậm chí không để lại vết nước nhỏ nhất. Đồng thời mùi tanh ngọt động tình cực nồng trong không khí cũng bị thay thế bằng hương dầu gội đầu bình thường nhè nhẹ. "Vãn Vãn? Con khóa cửa ban ngày làm gì? Tổng Lạc còn trong đó không?" Giọng bà Lý cực nghi hoặc cùng tiếng vặn nắm cửa phòng ngủ "cạch" vang bên tai cô ấy cực kinh hãi. Cửa phòng không bị mở ngay vì cô ấy vừa khóa. Nhưng khi nghe tiếng, cô ấy đã cực hoảng hốt nhảy dậy khỏi giường, vội vã kéo váy, run rẩy cài lại cúc áo sơ mi. Trong lúc cô ấy cực tất bật, Karl đã cực ung dung chỉnh sửa nếp gấp cực nhỏ trên ống tay. Hắn quay về phía cửa phòng, gương mặt tuấn mỹ nghiêm khắc kia lại cực hoàn mỹ khoác lên chiếc mặt nạ ôn nhoã lịch thiệp "quản lý cao tập đoàn xuyên quốc gia". Hắn cực tự nhiên đưa tay, vặn núm khóa phía sau cửa phòng ngủ. Cửa mở. Bà Lý bưng đĩa dưa hấu cắt sẵn đứng trước cửa, ánh mắt cực nghi ngờ quét vòng quanh phòng. "Dì." Karl cực tự nhiên tránh sang nửa thân, khóe môi đeo nụ cười cực đắc thể thậm chí cực biết ơn, "Xin lỗi, vừa rồi Vãn Vãn giúp cháu xử lý báo cáo tài chính cực kỳ bí mật qua kênh mã hóa riêng nước ngoài, để tránh tiếng ồn rò rỉ dữ liệu nên tạm khóa cửa. Vừa xong rồi." Hắn thậm chí cực tự nhiên nghiêng đầu, dùng ánh mắt "đồng nghiệp tiền bối"
+"Cốc, cốc."
 
-kín đáo tán thưởng nhìn cô ấy.
+Đúng lúc ấy, cảm giác nguy hiểm cực kỳ chết người bất chợt ập tới! Kim đồng hồ treo tường đã âm thầm chạm gần mười hai giờ, còn ngoài cửa vọng lại tiếng chìa khóa cắm vào ổ khóa sắt.
 
-"Hiệu suất làm việc của Vãn Vãn, nhất quán cực xuất sắc." Cô ấy cứng đờ đứng bên giường, sâu trong đùi vẫn cực không thể kiểm soát run nhẹ, đối mặt sự thăm dò của mẹ và sự che đậy ác ý của Karl, chỉ có thể gật đầu khô khan, cười gượng cứng nhắc. Cô ấy gắng chịu đựng cơn mềm yếu liên hồi từ gốc đùi, đi đến trước bàn trà, cực oán trách trừng ác ma ngồi trên ghế sofa đơn mặc lễ phục chỉnh tề kia. "Mẹ ơi, mẹ đừng nghe anh ấy." Cô ấy giả bộ bộ dáng công nhân văn phòng bị công việc hành hạ đến mức chán sống, vớ lấy miếng dưa lớn nhất trong đĩa, "Tổng Lạc đơn giản là Châu Bát Bì. Em hiếm có nghỉ phép về nhà, anh ấy còn ép em làm việc nhà, kéo em phân tích dữ liệu gấp. Nửa tiếng vừa rồi tế bào não sắp nổ mất. Miếng dưa này em phải ăn lớn nhất bù bù." Câu nói vừa ra, chút nghi ngờ "hồng phân" về nam nữ cô thân gái góa ở một phòng trong đáy mắt bà Lý trong nháy mắt bị thay thế bằng sự bực bội thực tế với tư bản vạn ác. "Ôi trời! Mẹ nói mà, cũng đúng thôi ban ngày còn khóa cửa, hóa ra xử lý bí mật công việc à!" Bà Lý lập tức xót thương, vội vã đẩy cả đĩa sang phía cô ấy, thậm chí cực bí mật liếc trắng về phía Karl. Nhưng khi quay sang Karl bà lại phải gượng ép nở nụ cười xã giao, "Tổng Lạc à, công ty lớn của các cháu lợi nhuận cao thật tốt, nhưng cũng quá vất vả thế. Cuối tuần rồi, ít ra cũng để bọn trẻ thở chút chứ." Karl ngồi đối diện không những không tức vì bị đội mũ "ông chủ đen", đôi mắt nâu sẫm giả trang của hắn ngược lại cực nhanh lóe sáng tối ám quang cực vui thích. Hắn dường như cực thích thú niềm vui kín đáo diễn vở vai diễn với cô ấy trong gia đình nhân loại này. "Dì dạy đúng." Karl hơi cúi người, ánh mắt sâu thẳm qua bàn trà đáp xuống cô ấy, gương mặt nghiêm khắc tiết dục hiện vẻ xin lỗi trông có vẻ hoàn mỹ thực chất ác ý tột cùng. Hắn chậm rãi mở lời, giọng trầm mang theo cú đấm chí mạng chỉ cô ấy mới hiểu: "Đợt 'dữ liệu' vừa rồi quả nhiên cực kỳ phức tạp, cần tỉ lệ tập trung cao và 'suy diễn sâu' lặp đi lặp lại. Vãn Vãn biểu hiện bên trong rất xuất sắc, hoàn mỹ chịu đựng được 'bóc lột' cường độ cao, khiến cháu cực hài lòng. Miếng dưa lớn nhất kia quả là phần thưởng cô ấy xứng đáng." Bà Lý nghe lời khen hoa mỹ, luôn cảm thấy từ ngữ của vị Tổng Lạc này đâu đó kỳ quặc, đặc biệt "suy diễn sâu" và "bóc lột cường độ cao" nghe tự nhiên có cảm giác kỳ quái khiến người ta đỏ mặt. Nhưng nhìn gương mặt Karl nghiêm túc không thể nghiêm túc hơn, bà lập tức vứt bỏ liên tưởng vô lý ấy. Logic người lớn được thông suốt thành công: Lãnh đạo nghiêm khắc, công việc vất vả, con gái nhà mình xuất sắc. "Được rồi được rồi, xử lý xong công việc là được. Tổng Lạc cũng ăn miếng dưa giải nhiệt." Bà Lý nhiệt tình mời. "Trưa ở nhà ăn no bụng! Ông Lâm, sườn hầm chưa? Hôm nay Tổng Lạc ở đây, ông mang con cá ngon cất mấy năm cũng ra làm đi!" Trong bếp vang tiếng ông Lâm đáp rất lớn. Hơi khói nhộn nhịp trong nháy mắt tràn ngập phòng khách chật hẹp cũ này, che phủ hoàn toàn chuyện tình ác muội cực ẩn kín cực ẩm ướt vừa xảy ra trong phòng ngủ dưới sự ồn ào chợ búa. Karl cực thanh nhã lấy tờ giấy ăn lau khóe miệng không có vệt nước, sau đó nhìn cô ấy, đôi mắt giả trang sâu thẳm đầy sự dung túng chỉ riêng cô ấy và dư vị săn bắt. Máy điều hòa treo tường cũ kêu nhẹ ù ù, tivi đang chiếu tin tức buổi trưa âm lượng hơi lớn. Bà Lý ngồi đối diện đang nhiệt tình giới thiệu trái cây trên đĩa cho Karl: "Tổng Lạc, ngài ăn thử nho này, sáng mới mua, ngọt lắm. Vãn Vãn nhà tôi từ nhỏ đã vụng về, may là gặp được lãnh đạo tốt như ngài mới dẫn được..." "Mẹ..." Cô ấy vừa định ngắt lời mẹ tự ti không đáy, cơ thể bỗng run một cái cực mạnh. "Ư..." Cô ấy cực nhanh đưa tay bịt chặt miệng, chặn tiếng rên the thé ngọt ngào sắp phá cổ họng. Mắt phải đau đến chảy nước mắt sinh lý, tay kia cực chặt nắm gối sofa dưới thân, đốt ngón tay vì dùng sức mà trắng bệch. Trong góc chết thị giác tuyệt đối hình thành do chênh lệch chiều cao bàn trà và sofa, một màn cực kinh hãi đang diễn ra. Karl bề ngoài hơi nghiêng người, cực thanh nhã đắc thể lắng nghe bà Lý nói, tay phải thậm chí còn cực ổn định cầm tách trà tử sa. Thế nhưng trong góc chết thị giác này, tay trái hắn đã cực phóng túng lẻn vào dưới váy cô ấy. Bàn tay hơi mát rõ xương cực thuần thục vòng qua mép quần lót. Hang hoa vừa bị cây máy vô tình đánh đập, lại bị hắn dùng ngón tay cực thô bạo khai phá, giờ vẫn ở trạng thái sung huyết nhạy cảm. Ngón giữa hắn chuẩn xác tìm hạt châu sưng đau, không chút do dự cực ác ý ấn mạnh, xoa bóp. "Ư... ư ư..." Cô ấy dưới sự mò mẫm ngón tay hắn, toàn thân dường như mất hết sức lực. Dòng điện hỗn hợp đau mỏi và tê rần cực đỉnh men cột sống xông lên não. Hai chân không kiểm soát muốn khép lại, nhưng bị hắn cực mạnh mẽ dùng cổ tay chống khe hở, mặc cho đầu ngón hắn nghiền trong đám thịt nhớp nháp. Dịch trong suốt cực đặc lại không kiểm soát rỉ ra, nhanh chóng làm ướt đầu ngón hắn. Hắn ở chỗ cực riêng tư của cô ấy cực dâm đãng vạch vòng tròn, nghe tiếng nước cực nhỏ nhưng cực dâm đãng "ùn ùn" bị tiếng tường thuật tin tức tivi che lấp. "Vãn Vãn? Con sao vậy? Mặt sao đột nhiên đỏ thế?" Bà Lý cuối cùng chú ý dị thường của cô ấy, nhìn tư thế kỳ quặc cô ấy bịt miệng khóe mắt ướt lệ, hơi lo lắng nhíu mày. Tim cô ấy sợ đến mức sắp nhảy ra cổ họng. Cô ấy cắn chặt môi dưới, gắng lắc đầu, cực khó khăn lọt vài chữ qua kẽ ngón: "Không... không sao, vô ý... cắn phải lưỡi." Đúng lúc cô ấy cực hư hỏng vì nói dối, phần dưới vì hắn đột nhiên tăng tốc tần số xoa bóp sắp sụp đổ tuyệt đỉnh. "Dì, dì không cần quá lo." Karl cực tự nhiên đặt tách trà xuống, gương mặt tuấn mỹ tiết dục đầy sự quan tâm "đồng nghiệp tiền bối". Hắn thậm chí hơi quay đầu, dùng tư thế cực quang minh chính đại nhìn cô ấy, đôi mắt nâu sẫm lại sóng ngầm cực nguy hiểm. "Vãn Vãn gần đây chịu 'áp lực' cực lớn ở dự án, thần kinh thỉnh thoảng hơi quá nhạy cảm. Vừa rồi trong phòng, cháu còn chuyên môn giúp cô ấy 'sơ tán' cảm xúc căng thẳng." Giọng Karl trầm ôn nhu, từng chữ mang cú đấm cực hạ lưu, "Cô ấy giờ cần có thể chỉ là nghỉ ngơi thật tốt, và... quen với 'đốc thúc' cường độ công việc của cháu đối với cô ấy." Theo hai chữ cuối rơi xuống, ngón tay hắn chôn trong váy ác ý đột ngột móc lên, móng tay nhẹ cào qua điểm nhạy cảm cực mong manh! "Ư ư...!" Cả người cô ấy run mạnh, hai mắt trong nháy mắt mất tiêu điểm, một lượng lớn dịch trong suốt trực tiếp phun ra, tưới ướt hoàn toàn ngón tay hắn. Cô ấy vậy là trước mặt mẹ, cực nhục nhã bị hắn dùng ngón tay cực thu liễm kích động đến cực khoái! Bà Lý rõ ràng không nghe ra ý ngoài lời của Karl, bà cực thấu hiểu gật đầu, thở dài: "Ôi, đứa con này quá cương cường. Tổng Lạc, sau này còn phiền ngài chỉ điểm nhiều. Ông Lâm! Cá chưa? Tổng Lạc đói rồi!" "Mẹ đi xem..." Bà Lý lẩm bẩm quay vào bếp. Đúng khoảnh khắc bà Lý quay lưng, Karl cực chậm rút bàn tay dính đầy dịch ngọt của cô ấy. Hắn lấy giấy ăn trên bàn, chậm rãi cực dâm đãng lau sợi bạc trong suốt kéo trên đầu ngón, nghiêng đầu áp sát vành tai đỏ như chảy máu của cô ấy, cực khàn đặc cười nhẹ: "Ngài xem, nhạc mẫu đã giao ngài hoàn toàn cho cháu... Vãn Vãn." Cô ấy cắn một miếng dưa, nước trong ngọt mát gượng nén cảm giác khô khan thuộc hắn trong cổ họng. Tranh thủ khoảng trống mẹ vào bếp rót trà, bố còn chuyên tâm đối phó con cá, cô ấy cực bí mật điều chỉnh tư thế ngồi, dưới bàn trà dùng mũi chân hơi kiệt sức nhưng vẫn đầy phẫn nộ, cực chuẩn xác và mạnh đá vào ống quần vest Karl. Cú đá trúng chính xương chày ống chân hắn. Karl tay cầm tách trà thậm chí không run nhẹ. Gương mặt hoàn mỹ vô tỳ vết vẫn duy trì vẻ ôn nhu "nghe cấp dưới báo cáo", chỉ đôi mắt giả trang nâu sẫm khi nhìn cô ấy cực nhanh sóng ngầm vui sướng đầy ác căn. Hắn không trốn, ngược lại cực thuận tòng thu chân, mặc mũi chân cô ấy nghiền lên vải đắt tiền của hắn. "Đúng rồi," Cô ấy gắng nhịn không đá gãy chân kia của hắn, cười không ra cười nhìn hắn, dùng giọng cấp dưới cực hiểu chuyện nói, "Tổng Lạc bình thường công tư phân minh như vậy. Xong việc là nghỉ. Chiều em đưa ngài đi trung tâm thành phố xem xem? Giúp ngài bên kia sắp xếp khách sạn năm sao thoải mái, ngài cũng nghỉ ngơi thật tốt." Cô ấy cực cố ý nhấn mạnh "công tư phân minh" và "khách sạn năm sao", rõ ràng cảnh cáo: diễn đến đây thôi, tối mau cuốn gói về khách sạn, đừng mơ phát điên lần nữa trong căn nhà này. Karl sao nghe không ra lệnh đuổi trong lời cô ấy. Hắn cực thanh nhã đặt tách trà tử sa xuống đế trên bàn trà, phát tiếng va chạm gốm cực nhẹ. "Sắp xếp của Vãn Vãn luôn cực chu đáo." Giọng hắn trầm giàu nam tính, từng âm tiết như đang gảy cực chậm lên dây thần kinh cô ấy, "Vậy chiều hành trình xem khách sạn, phiền em tiếp tục đi cùng. Dù sao nếu cháu không quen môi trường xung quanh, tối có thể còn cần em vị 'trợ lý toàn năng' cực... sát sườn hướng dẫn liên phòng ban." Hắn cực hoàn mỹ tiếp lệnh đuổi của cô ấy, lại cực ác ý chôn quả bom hẹn giờ đầy uy hiếp trong "khách sạn năm sao" vốn nên là khu an toàn. Cô ấy bị hắn đe dọa vô sỉ đến thái dương đập mạnh, nhưng vì bố mẹ trong bếp có thể ra bất cứ lúc nào, chỉ có thể gượng ép nở nụ cười méo mó: "Nên thôi, Tổng Lạc." "Mẹ! Con giúp mẹ bưng món!" Cô ấy thật sự không thể ngồi thêm một giây trên chiếc sofa tràn ngập hương hormone và ám thị nguy hiểm của hắn, tìm cớ tùy tiện, cực thẳng thắn đứng dậy, lôi đôi chân vẫn hơi mềm, chạy trốn như bay vào bếp. Phòng khách chỉ còn tiếng tích tắc đồng hồ treo tường và quảng cáo vô bổ trên tivi. Trên ghế sofa da, chỗ cô ấy vừa ngồi còn lưu vết lõm và nhiệt độ cực nhẹ. Karl cực chậm ngả vào thành ghế, cởi bỏ hoàn toàn chiếc mặt nạ ôn nhu giả dối. Trong khoảng chân không cực ngắn không có ánh nhìn nhân loại khác, sứ ma bóng tối cao giai cực tham lam hít sâu một hơi không khí trong căn phòng này. Đầu ngón hơi mát cực chuẩn xác đưa về phía dưới bàn trà, trên ống quần chỗ không rõ ràng có vết bụi nhỏ xoa nhẹ. Đó là chỗ mũi chân cô ấy vừa cực phẫn nộ đá qua. Đồng tử giả trang nâu sẫm sâu trong đáy mắt hắn hoàn toàn bị màu đen thuần đặc quánh nuốt chửng. Ngón tay thon thả cực chậm siết chặt, như thể qua vết bụi cực nhỏ ấy có thể cực chuẩn xác nắm được mắt cá chân mong manh của cô ấy. "Khách sạn năm sao sao..."
+"Ông Lâm, đem túi sườn vào bếp, tôi đi gọi Vãn Vãn họ ra ăn dưa hấu..."
+
+Giọng bà Lý vang và xuyên thấu vọng qua cánh cửa gỗ. "Ư!" Cô ấy sợ hãi mở to mắt, run mạnh. Karl ánh mắt cũng sắc lại. Dù ở phàm thế ma lực của hắn bị áp chế, nhưng cảm giác căng thẳng cực kích thích khi sắp bị "nhạc mẫu" bắt tại trận khiến hắn sinh ra một thứ hưng phấn bí mật. "Suỵt." Hắn cực nhanh rút hai ngón tay dính đầy dịch đặc của cô ấy ra khỏi hang hoa đầy nhớt. "Bùm" một tiếng, sợi bạc trong suốt cực thô trong không trung bị kéo đứt.
+
+"Để tôi lo."
+
+Hắn không thừa lời, đứng dậy trong nháy mắt, đôi bàn tay vừa rút từ trong cô ấy ra chưa kịp lau chùi đã cực nhanh vung trong không trung một cái vỗ giòn. Một vòng gợn sóng bóng tối bạc xám nhạt như sóng nước quét mãnh liệt qua toàn bộ chiếc giường đơn. Chuyện cực kỳ không thể tin đã xảy ra. Dịch nhớt cực dơ bẩn ở đùi trong cô ấy, vệt nước sẫm lớn trên ga giường, cùng cây máy hắn vứt xuống sàn dính đầy nước, tất cả trong bóng tối nuốt chửng biến mất không dấu vết, thậm chí không để lại vết nước nhỏ nhất. Đồng thời mùi tanh ngọt động tình cực nồng trong không khí cũng bị thay thế bằng hương dầu gội đầu bình thường nhè nhẹ.
+
+"Vãn Vãn? Con khóa cửa ban ngày làm gì? Tổng Lạc còn trong đó không?"
+
+Giọng bà Lý cực nghi hoặc cùng tiếng vặn nắm cửa phòng ngủ "cạch" vang bên tai cô ấy cực kinh hãi. Cửa phòng không bị mở ngay vì cô ấy vừa khóa. Nhưng khi nghe tiếng, cô ấy đã cực hoảng hốt nhảy dậy khỏi giường, vội vã kéo váy, run rẩy cài lại cúc áo sơ mi. Trong lúc cô ấy cực tất bật, Karl đã cực ung dung chỉnh sửa nếp gấp cực nhỏ trên ống tay. Hắn quay về phía cửa phòng, gương mặt tuấn mỹ nghiêm khắc kia lại cực hoàn mỹ khoác lên chiếc mặt nạ ôn nhoã lịch thiệp
+
+"Quản lý cao tập đoàn xuyên quốc gia"
+
+. Hắn cực tự nhiên đưa tay, vặn núm khóa phía sau cửa phòng ngủ. Cửa mở. Bà Lý bưng đĩa dưa hấu cắt sẵn đứng trước cửa, ánh mắt cực nghi ngờ quét vòng quanh phòng. "Dì." Karl cực tự nhiên tránh sang nửa thân, khóe môi đeo nụ cười cực đắc thể thậm chí cực biết ơn,
+
+"Xin lỗi, vừa rồi Vãn Vãn giúp cháu xử lý báo cáo tài chính cực kỳ bí mật qua kênh mã hóa riêng nước ngoài, để tránh tiếng ồn rò rỉ dữ liệu nên tạm khóa cửa. Vừa xong rồi."
+
+Hắn thậm chí cực tự nhiên nghiêng đầu, dùng ánh mắt "đồng nghiệp tiền bối"
+
+Kín đáo tán thưởng nhìn cô ấy.
+
+"Hiệu suất làm việc của Vãn Vãn, nhất quán cực xuất sắc."
+
+Cô ấy cứng đờ đứng bên giường, sâu trong đùi vẫn cực không thể kiểm soát run nhẹ, đối mặt sự thăm dò của mẹ và sự che đậy ác ý của Karl, chỉ có thể gật đầu khô khan, cười gượng cứng nhắc. Cô ấy gắng chịu đựng cơn mềm yếu liên hồi từ gốc đùi, đi đến trước bàn trà, cực oán trách trừng ác ma ngồi trên ghế sofa đơn mặc lễ phục chỉnh tề kia.
+
+"Mẹ ơi, mẹ đừng nghe anh ấy."
+
+Cô ấy giả bộ bộ dáng công nhân văn phòng bị công việc hành hạ đến mức chán sống, vớ lấy miếng dưa lớn nhất trong đĩa,
+
+"Tổng Lạc đơn giản là Châu Bát Bì. Em hiếm có nghỉ phép về nhà, anh ấy còn ép em làm việc nhà, kéo em phân tích dữ liệu gấp. Nửa tiếng vừa rồi tế bào não sắp nổ mất. Miếng dưa này em phải ăn lớn nhất bù bù."
+
+Câu nói vừa ra, chút nghi ngờ "hồng phân" về nam nữ cô thân gái góa ở một phòng trong đáy mắt bà Lý trong nháy mắt bị thay thế bằng sự bực bội thực tế với tư bản vạn ác.
+
+"Ôi trời! Mẹ nói mà, cũng đúng thôi ban ngày còn khóa cửa, hóa ra xử lý bí mật công việc à!"
+
+Bà Lý lập tức xót thương, vội vã đẩy cả đĩa sang phía cô ấy, thậm chí cực bí mật liếc trắng về phía Karl. Nhưng khi quay sang Karl bà lại phải gượng ép nở nụ cười xã giao,
+
+"Tổng Lạc à, công ty lớn của các cháu lợi nhuận cao thật tốt, nhưng cũng quá vất vả thế. Cuối tuần rồi, ít ra cũng để bọn trẻ thở chút chứ."
+
+Karl ngồi đối diện không những không tức vì bị đội mũ "ông chủ đen", đôi mắt nâu sẫm giả trang của hắn ngược lại cực nhanh lóe sáng tối ám quang cực vui thích. Hắn dường như cực thích thú niềm vui kín đáo diễn vở vai diễn với cô ấy trong gia đình nhân loại này.
+
+"Dì dạy đúng."
+
+Karl hơi cúi người, ánh mắt sâu thẳm qua bàn trà đáp xuống cô ấy, gương mặt nghiêm khắc tiết dục hiện vẻ xin lỗi trông có vẻ hoàn mỹ thực chất ác ý tột cùng. Hắn chậm rãi mở lời, giọng trầm mang theo cú đấm chí mạng chỉ cô ấy mới hiểu:
+
+"Đợt 'dữ liệu' vừa rồi quả nhiên cực kỳ phức tạp, cần tỉ lệ tập trung cao và 'suy diễn sâu' lặp đi lặp lại. Vãn Vãn biểu hiện bên trong rất xuất sắc, hoàn mỹ chịu đựng được 'bóc lột' cường độ cao, khiến cháu cực hài lòng. Miếng dưa lớn nhất kia quả là phần thưởng cô ấy xứng đáng."
+
+Bà Lý nghe lời khen hoa mỹ, luôn cảm thấy từ ngữ của vị Tổng Lạc này đâu đó kỳ quặc, đặc biệt "suy diễn sâu" và "bóc lột cường độ cao" nghe tự nhiên có cảm giác kỳ quái khiến người ta đỏ mặt. Nhưng nhìn gương mặt Karl nghiêm túc không thể nghiêm túc hơn, bà lập tức vứt bỏ liên tưởng vô lý ấy. Logic người lớn được thông suốt thành công: Lãnh đạo nghiêm khắc, công việc vất vả, con gái nhà mình xuất sắc.
+
+"Được rồi được rồi, xử lý xong công việc là được. Tổng Lạc cũng ăn miếng dưa giải nhiệt."
+
+Bà Lý nhiệt tình mời.
+
+"Trưa ở nhà ăn no bụng! Ông Lâm, sườn hầm chưa? Hôm nay Tổng Lạc ở đây, ông mang con cá ngon cất mấy năm cũng ra làm đi!"
+
+Trong bếp vang tiếng ông Lâm đáp rất lớn. Hơi khói nhộn nhịp trong nháy mắt tràn ngập phòng khách chật hẹp cũ này, che phủ hoàn toàn chuyện tình ác muội cực ẩn kín cực ẩm ướt vừa xảy ra trong phòng ngủ dưới sự ồn ào chợ búa. Karl cực thanh nhã lấy tờ giấy ăn lau khóe miệng không có vệt nước, sau đó nhìn cô ấy, đôi mắt giả trang sâu thẳm đầy sự dung túng chỉ riêng cô ấy và dư vị săn bắt. Máy điều hòa treo tường cũ kêu nhẹ ù ù, tivi đang chiếu tin tức buổi trưa âm lượng hơi lớn. Bà Lý ngồi đối diện đang nhiệt tình giới thiệu trái cây trên đĩa cho Karl:
+
+"Tổng Lạc, ngài ăn thử nho này, sáng mới mua, ngọt lắm. Vãn Vãn nhà tôi từ nhỏ đã vụng về, may là gặp được lãnh đạo tốt như ngài mới dẫn được..."
+
+"Mẹ..." Cô ấy vừa định ngắt lời mẹ tự ti không đáy, cơ thể bỗng run một cái cực mạnh. "Ư..." Cô ấy cực nhanh đưa tay bịt chặt miệng, chặn tiếng rên the thé ngọt ngào sắp phá cổ họng. Mắt phải đau đến chảy nước mắt sinh lý, tay kia cực chặt nắm gối sofa dưới thân, đốt ngón tay vì dùng sức mà trắng bệch. Trong góc chết thị giác tuyệt đối hình thành do chênh lệch chiều cao bàn trà và sofa, một màn cực kinh hãi đang diễn ra. Karl bề ngoài hơi nghiêng người, cực thanh nhã đắc thể lắng nghe bà Lý nói, tay phải thậm chí còn cực ổn định cầm tách trà tử sa. Thế nhưng trong góc chết thị giác này, tay trái hắn đã cực phóng túng lẻn vào dưới váy cô ấy. Bàn tay hơi mát rõ xương cực thuần thục vòng qua mép quần lót. Hang hoa vừa bị cây máy vô tình đánh đập, lại bị hắn dùng ngón tay cực thô bạo khai phá, giờ vẫn ở trạng thái sung huyết nhạy cảm. Ngón giữa hắn chuẩn xác tìm hạt châu sưng đau, không chút do dự cực ác ý ấn mạnh, xoa bóp.
+
+"Ư... Ư ư..."
+
+Cô ấy dưới sự mò mẫm ngón tay hắn, toàn thân dường như mất hết sức lực. Dòng điện hỗn hợp đau mỏi và tê rần cực đỉnh men cột sống xông lên não. Hai chân không kiểm soát muốn khép lại, nhưng bị hắn cực mạnh mẽ dùng cổ tay chống khe hở, mặc cho đầu ngón hắn nghiền trong đám thịt nhớp nháp. Dịch trong suốt cực đặc lại không kiểm soát rỉ ra, nhanh chóng làm ướt đầu ngón hắn. Hắn ở chỗ cực riêng tư của cô ấy cực dâm đãng vạch vòng tròn, nghe tiếng nước cực nhỏ nhưng cực dâm đãng "ùn ùn" bị tiếng tường thuật tin tức tivi che lấp.
+
+"Vãn Vãn? Con sao vậy? Mặt sao đột nhiên đỏ thế?"
+
+Bà Lý cuối cùng chú ý dị thường của cô ấy, nhìn tư thế kỳ quặc cô ấy bịt miệng khóe mắt ướt lệ, hơi lo lắng nhíu mày. Tim cô ấy sợ đến mức sắp nhảy ra cổ họng. Cô ấy cắn chặt môi dưới, gắng lắc đầu, cực khó khăn lọt vài chữ qua kẽ ngón:
+
+"Không... Không sao, vô ý... Cắn phải lưỡi."
+
+Đúng lúc cô ấy cực hư hỏng vì nói dối, phần dưới vì hắn đột nhiên tăng tốc tần số xoa bóp sắp sụp đổ tuyệt đỉnh.
+
+"Dì, dì không cần quá lo."
+
+Karl cực tự nhiên đặt tách trà xuống, gương mặt tuấn mỹ tiết dục đầy sự quan tâm "đồng nghiệp tiền bối". Hắn thậm chí hơi quay đầu, dùng tư thế cực quang minh chính đại nhìn cô ấy, đôi mắt nâu sẫm lại sóng ngầm cực nguy hiểm.
+
+"Vãn Vãn gần đây chịu 'áp lực' cực lớn ở dự án, thần kinh thỉnh thoảng hơi quá nhạy cảm. Vừa rồi trong phòng, cháu còn chuyên môn giúp cô ấy 'sơ tán' cảm xúc căng thẳng."
+
+Giọng Karl trầm ôn nhu, từng chữ mang cú đấm cực hạ lưu,
+
+"Cô ấy giờ cần có thể chỉ là nghỉ ngơi thật tốt, và... Quen với 'đốc thúc' cường độ công việc của cháu đối với cô ấy."
+
+Theo hai chữ cuối rơi xuống, ngón tay hắn chôn trong váy ác ý đột ngột móc lên, móng tay nhẹ cào qua điểm nhạy cảm cực mong manh!
+
+"Ư ư...!"
+
+Cả người cô ấy run mạnh, hai mắt trong nháy mắt mất tiêu điểm, một lượng lớn dịch trong suốt trực tiếp phun ra, tưới ướt hoàn toàn ngón tay hắn. Cô ấy vậy là trước mặt mẹ, cực nhục nhã bị hắn dùng ngón tay cực thu liễm kích động đến cực khoái! Bà Lý rõ ràng không nghe ra ý ngoài lời của Karl, bà cực thấu hiểu gật đầu, thở dài:
+
+"Ôi, đứa con này quá cương cường. Tổng Lạc, sau này còn phiền ngài chỉ điểm nhiều. Ông Lâm! Cá chưa? Tổng Lạc đói rồi!"
+
+"Mẹ đi xem..." Bà Lý lẩm bẩm quay vào bếp. Đúng khoảnh khắc bà Lý quay lưng, Karl cực chậm rút bàn tay dính đầy dịch ngọt của cô ấy. Hắn lấy giấy ăn trên bàn, chậm rãi cực dâm đãng lau sợi bạc trong suốt kéo trên đầu ngón, nghiêng đầu áp sát vành tai đỏ như chảy máu của cô ấy, cực khàn đặc cười nhẹ:
+
+"Ngài xem, nhạc mẫu đã giao ngài hoàn toàn cho cháu... Vãn Vãn."
+
+Cô ấy cắn một miếng dưa, nước trong ngọt mát gượng nén cảm giác khô khan thuộc hắn trong cổ họng. Tranh thủ khoảng trống mẹ vào bếp rót trà, bố còn chuyên tâm đối phó con cá, cô ấy cực bí mật điều chỉnh tư thế ngồi, dưới bàn trà dùng mũi chân hơi kiệt sức nhưng vẫn đầy phẫn nộ, cực chuẩn xác và mạnh đá vào ống quần vest Karl. Cú đá trúng chính xương chày ống chân hắn. Karl tay cầm tách trà thậm chí không run nhẹ. Gương mặt hoàn mỹ vô tỳ vết vẫn duy trì vẻ ôn nhu "nghe cấp dưới báo cáo", chỉ đôi mắt giả trang nâu sẫm khi nhìn cô ấy cực nhanh sóng ngầm vui sướng đầy ác căn. Hắn không trốn, ngược lại cực thuận tòng thu chân, mặc mũi chân cô ấy nghiền lên vải đắt tiền của hắn.
+
+"Đúng rồi,"
+
+Cô ấy gắng nhịn không đá gãy chân kia của hắn, cười không ra cười nhìn hắn, dùng giọng cấp dưới cực hiểu chuyện nói,
+
+"Tổng Lạc bình thường công tư phân minh như vậy. Xong việc là nghỉ. Chiều em đưa ngài đi trung tâm thành phố xem xem? Giúp ngài bên kia sắp xếp khách sạn năm sao thoải mái, ngài cũng nghỉ ngơi thật tốt."
+
+Cô ấy cực cố ý nhấn mạnh "công tư phân minh" và "khách sạn năm sao", rõ ràng cảnh cáo: diễn đến đây thôi, tối mau cuốn gói về khách sạn, đừng mơ phát điên lần nữa trong căn nhà này. Karl sao nghe không ra lệnh đuổi trong lời cô ấy. Hắn cực thanh nhã đặt tách trà tử sa xuống đế trên bàn trà, phát tiếng va chạm gốm cực nhẹ.
+
+"Sắp xếp của Vãn Vãn luôn cực chu đáo."
+
+Giọng hắn trầm giàu nam tính, từng âm tiết như đang gảy cực chậm lên dây thần kinh cô ấy,
+
+"Vậy chiều hành trình xem khách sạn, phiền em tiếp tục đi cùng. Dù sao nếu cháu không quen môi trường xung quanh, tối có thể còn cần em vị 'trợ lý toàn năng' cực... Sát sườn hướng dẫn liên phòng ban."
+
+Hắn cực hoàn mỹ tiếp lệnh đuổi của cô ấy, lại cực ác ý chôn quả bom hẹn giờ đầy uy hiếp trong "khách sạn năm sao" vốn nên là khu an toàn. Cô ấy bị hắn đe dọa vô sỉ đến thái dương đập mạnh, nhưng vì bố mẹ trong bếp có thể ra bất cứ lúc nào, chỉ có thể gượng ép nở nụ cười méo mó:
+
+"Nên thôi, Tổng Lạc."
+
+"Mẹ! Con giúp mẹ bưng món!"
+
+Cô ấy thật sự không thể ngồi thêm một giây trên chiếc sofa tràn ngập hương hormone và ám thị nguy hiểm của hắn, tìm cớ tùy tiện, cực thẳng thắn đứng dậy, lôi đôi chân vẫn hơi mềm, chạy trốn như bay vào bếp. Phòng khách chỉ còn tiếng tích tắc đồng hồ treo tường và quảng cáo vô bổ trên tivi. Trên ghế sofa da, chỗ cô ấy vừa ngồi còn lưu vết lõm và nhiệt độ cực nhẹ. Karl cực chậm ngả vào thành ghế, cởi bỏ hoàn toàn chiếc mặt nạ ôn nhu giả dối. Trong khoảng chân không cực ngắn không có ánh nhìn nhân loại khác, sứ ma bóng tối cao giai cực tham lam hít sâu một hơi không khí trong căn phòng này. Đầu ngón hơi mát cực chuẩn xác đưa về phía dưới bàn trà, trên ống quần chỗ không rõ ràng có vết bụi nhỏ xoa nhẹ. Đó là chỗ mũi chân cô ấy vừa cực phẫn nộ đá qua. Đồng tử giả trang nâu sẫm sâu trong đáy mắt hắn hoàn toàn bị màu đen thuần đặc quánh nuốt chửng. Ngón tay thon thả cực chậm siết chặt, như thể qua vết bụi cực nhỏ ấy có thể cực chuẩn xác nắm được mắt cá chân mong manh của cô ấy.
+
+"Khách sạn năm sao sao..."
 
 Hắn cực khàn đặc lẩm bẩm.
 
 "Hy vọng cách âm bên đó tốt hơn căn phòng này chút."
 
-Bữa trưa đó cô ấy ăn như ngồi trên đống kim. Ông Lâm trổ tài, món cá kho tộ quả nhiên sắc hương vị đủ. Bà Lý càng nhiệt tình quá đỗi, suốt bữa không ngừng dùng đũa công gắp đồ cho Karl, miệng không ngớt "Tổng Lạc bình thường vất vả quá, ăn nhiều vào", "Vãn Vãn nhà chúng tôi tính khí bướng, ngài bỏ qua cho". Còn Karl, sứ ma từ vực sâu địa ngục ấy thể hiện khả năng thích ứng xã hội cực khủng khiếp. Hắn không những cực tự nhiên ăn những món nhân loại với hắn vô giá trị dinh dưỡng thậm chí có chút kỳ quặc, còn có thể ở thời điểm cực chuẩn xác dùng lời ôn nhu đắc thể khiến bố mẹ cô ấy vui nở hoa, thuận tiện dán cho cô ấy mấy nhãn "không thể thiếu", "tiềm lực vô hạn" cao cấp văn phòng.
+Bữa trưa đó cô ấy ăn như ngồi trên đống kim. Ông Lâm trổ tài, món cá kho tộ quả nhiên sắc hương vị đủ. Bà Lý càng nhiệt tình quá đỗi, suốt bữa không ngừng dùng đũa công gắp đồ cho Karl, miệng không ngớt
 
-Đợi bữa trưa dài như trải qua cả thế kỷ cuối cùng kết thúc, cô ấy gần như nóng lòng tìm cớ "đưa lãnh đạo đi trung tâm xem khách sạn thuận tiện khảo sát khu thương mại địa phương", kéo Karl trốn khỏi căn hộ cũ ấm áp nhưng khiến cô ấy cực ngột thở.
+"Tổng Lạc bình thường vất vả quá, ăn nhiều vào"
+
+,
+
+"Vãn Vãn nhà chúng tôi tính khí bướng, ngài bỏ qua cho"
+
+. Còn Karl, sứ ma từ vực sâu địa ngục ấy thể hiện khả năng thích ứng xã hội cực khủng khiếp. Hắn không những cực tự nhiên ăn những món nhân loại với hắn vô giá trị dinh dưỡng thậm chí có chút kỳ quặc, còn có thể ở thời điểm cực chuẩn xác dùng lời ôn nhu đắc thể khiến bố mẹ cô ấy vui nở hoa, thuận tiện dán cho cô ấy mấy nhãn "không thể thiếu",
+
+"Tiềm lực vô hạn"
+
+Cao cấp văn phòng.
+
+Đợi bữa trưa dài như trải qua cả thế kỷ cuối cùng kết thúc, cô ấy gần như nóng lòng tìm cớ
+
+"Đưa lãnh đạo đi trung tâm xem khách sạn thuận tiện khảo sát khu thương mại địa phương"
+
+, kéo Karl trốn khỏi căn hộ cũ ấm áp nhưng khiến cô ấy cực ngột thở.
 
 Hai rưỡi chiều, cầu vượt trung tâm thành phố. Ánh nắng xuyên qua kính cửa xe dán màng chống nhìn đắt tiền rọi vào, bị lọc bớt phần lớn chói. Cô ấy hơi mệt mỏi dựa vào ghế phụ chiếc xe hơi đen hạng sang trầm lặng Karl không biết dùng thủ đoạn gì kiếm được, nhìn phong cảnh thành phố lùi lại ngoài cửa sổ, thở dài một hơi. Trong xe cực yên tĩnh, chỉ có điều hòa hạng sang không tiếng động vận chuyển. Người lái xe không phải tài xế chuyên trách, mà là "Tổng Lạc" vừa trên bàn ăn còn cao cao tại thượng. Theo căn hộ càng lúc càng xa, lớp da ôn nhu tinh anh xã hội nhân loại tập đoàn xuyên quốc gia phủ trên người Karl cũng cực tự nhiên như sương mù tiêu tán. Hắn một tay cầm vô lăng, ngón tay rõ xương cực tùy ý đặt lên mép da, không như ông chủ độc đoán nhân loại trong tiểu thuyết tệ trong không gian riêng tư này ra lệnh cho cô ấy.
 
-Ngược lại hắn cực tự nhiên cởi cúc áo khoác vest, đôi mắt nâu sẫm trong gương chiếu hậu cực bình tĩnh nhìn cô ấy, giọng trở lại "trợ lý riêng" trong quán bar địa ngục cực nghiêm túc thanh nhã mang chút nguy hiểm bí mật. "Tài nấu nướng của cha mẹ ngài quả nhiên ấn tượng." Giọng Karl trầm, mang chất lượng hoa mỹ đặc trưng ác ma, "Dù những món ăn nhân loại do carbonhydrat và protein cấu thành với cháu bổ sung năng lượng cực yếu, nhưng như trải nghiệm tình cảm quan sát cấu trúc gia đình nhân loại... bữa cơm này cực có giá trị tham khảo dữ liệu." Hắn hơi nghiêng đầu, ánh nhìn sâu thẳm cực ngắn dừng trên mặt cô ấy. "Sau khi tước bỏ quan sát xã hội không gian nhân loại, giờ chúng ta có thể tạm chấm dứt trò chơi vai diễn 'cấp trên cấp dưới', quản lý." Karl cực thuận tòng giảm tốc độ xe, dù ở vị trí lái xe, tư thế hắn vẫn duy trì cực hoàn mỹ lễ nghi tôi tớ sứ ma cao giai. ""
+Ngược lại hắn cực tự nhiên cởi cúc áo khoác vest, đôi mắt nâu sẫm trong gương chiếu hậu cực bình tĩnh nhìn cô ấy, giọng trở lại "trợ lý riêng" trong quán bar địa ngục cực nghiêm túc thanh nhã mang chút nguy hiểm bí mật.
 
-Giờ chiếc xe này và hành trình chiều nay hoàn toàn do ngài điều khiển. Cháu có thể tự xử lý vấn đề lưu trú khách sạn, sau cháu sẽ gửi địa chỉ cho ngài qua điện thoại. Ngài giờ muốn đi đâu?" Hắn cực bình tĩnh hỏi, như thể ác ma cực ác ý kích thích cô ấy trong phòng khách cùng tận hưởng sự tán dương của mẹ cô ấy trên bàn ăn căn bản không tồn tại, "Ngài mới là người dẫn đường thực sự vùng đất này. Là trợ lý của ngài, tất cả nghe sắp xếp của ngài.""
+"Tài nấu nướng của cha mẹ ngài quả nhiên ấn tượng."
 
-Không khí trong xe theo loạt chất vấn không khoan nhượng của cô ấy dần lắng xuống. Cô ấy dựa vào ghế da, nghiêng đầu nhìn gương mặt bên cạnh không chê được của hắn, giọng mang chút tức giận và bất lực: "Tất cả nghe sắp đặt của em sao? Karl, anh vừa rồi ở nhà em một chút cũng không nghe lời em." Cô ấy càng nói càng cảm thấy trải nghiệm khu phố cũ vừa rồi đơn giản là đi trên dây thừng vô lý, "Xưng hô thân mật thế, mẹ em còn đó anh đã dám lén... lén phía dưới chạm em. Còn một câu nhạc phụ nhạc mẫu gọi thuận mồm! Em rõ ràng vì không muốn nói anh là bạn trai, sợ bố mẹ em hỏi không dứt, mới bảo anh đóng vai đồng nghiệp. Kết quả anh hoàn toàn không diễn tốt, anh căn bản là cố ý." Đèn đỏ. Chiếc xe hơi đen chạy êm ổn cực êm áp dừng trước vạch qua đường. Karl không lập tức phản bác.
+Giọng Karl trầm, mang chất lượng hoa mỹ đặc trưng ác ma,
 
-Đôi tay thon rõ xương vẫn cực tùy ý đặt trên vô lăng, ánh nhìn ngang tầm phong cảnh thành phố hiện đại kỳ quái phía trước. Ánh nắng xuyên kính chắn gió trước đập lên sống mũi cao của hắn, chiếu xuống hố mắt sâu thẳm để lại bóng tối cực u ám. Sau im lặng chết chóc ngắn ngủi đầy áp lực. "Ngài nói đúng, quản lý." Karl cực chậm nghiêng đầu, đôi mắt giả trang nâu sẫm cực sâu thẳm nhìn cô ấy. Hắn không dùng lời hoa mỹ nào để bào chữa cho hành vi vượt giới vừa rồi, trái lại cực thản nhiên xé rách tấm màn che "mất kiểm soát" trước mặt cô ấy. "Làm trợ lý của ngài, biểu hiện hôm nay của cháu quả nhiên vi phạm kịch bản ban đầu ngài đặt ra."
+"Dù những món ăn nhân loại do carbonhydrat và protein cấu thành với cháu bổ sung năng lượng cực yếu, nhưng như trải nghiệm tình cảm quan sát cấu trúc gia đình nhân loại... Bữa cơm này cực có giá trị tham khảo dữ liệu."
+
+Hắn hơi nghiêng đầu, ánh nhìn sâu thẳm cực ngắn dừng trên mặt cô ấy.
+
+"Sau khi tước bỏ quan sát xã hội không gian nhân loại, giờ chúng ta có thể tạm chấm dứt trò chơi vai diễn 'cấp trên cấp dưới', quản lý."
+
+Karl cực thuận tòng giảm tốc độ xe, dù ở vị trí lái xe, tư thế hắn vẫn duy trì cực hoàn mỹ lễ nghi tôi tớ sứ ma cao giai. ""
+
+Giờ chiếc xe này và hành trình chiều nay hoàn toàn do ngài điều khiển. Cháu có thể tự xử lý vấn đề lưu trú khách sạn, sau cháu sẽ gửi địa chỉ cho ngài qua điện thoại. Ngài giờ muốn đi đâu?
+
+" Hắn cực bình tĩnh hỏi, như thể ác ma cực ác ý kích thích cô ấy trong phòng khách cùng tận hưởng sự tán dương của mẹ cô ấy trên bàn ăn căn bản không tồn tại, "
+
+Ngài mới là người dẫn đường thực sự vùng đất này. Là trợ lý của ngài, tất cả nghe sắp xếp của ngài.""
+
+Không khí trong xe theo loạt chất vấn không khoan nhượng của cô ấy dần lắng xuống. Cô ấy dựa vào ghế da, nghiêng đầu nhìn gương mặt bên cạnh không chê được của hắn, giọng mang chút tức giận và bất lực:
+
+"Tất cả nghe sắp đặt của em sao? Karl, anh vừa rồi ở nhà em một chút cũng không nghe lời em."
+
+Cô ấy càng nói càng cảm thấy trải nghiệm khu phố cũ vừa rồi đơn giản là đi trên dây thừng vô lý,
+
+"Xưng hô thân mật thế, mẹ em còn đó anh đã dám lén... Lén phía dưới chạm em. Còn một câu nhạc phụ nhạc mẫu gọi thuận mồm! Em rõ ràng vì không muốn nói anh là bạn trai, sợ bố mẹ em hỏi không dứt, mới bảo anh đóng vai đồng nghiệp. Kết quả anh hoàn toàn không diễn tốt, anh căn bản là cố ý."
+
+Đèn đỏ. Chiếc xe hơi đen chạy êm ổn cực êm áp dừng trước vạch qua đường. Karl không lập tức phản bác.
+
+Đôi tay thon rõ xương vẫn cực tùy ý đặt trên vô lăng, ánh nhìn ngang tầm phong cảnh thành phố hiện đại kỳ quái phía trước. Ánh nắng xuyên kính chắn gió trước đập lên sống mũi cao của hắn, chiếu xuống hố mắt sâu thẳm để lại bóng tối cực u ám. Sau im lặng chết chóc ngắn ngủi đầy áp lực.
+
+"Ngài nói đúng, quản lý."
+
+Karl cực chậm nghiêng đầu, đôi mắt giả trang nâu sẫm cực sâu thẳm nhìn cô ấy. Hắn không dùng lời hoa mỹ nào để bào chữa cho hành vi vượt giới vừa rồi, trái lại cực thản nhiên xé rách tấm màn che "mất kiểm soát" trước mặt cô ấy.
+
+"Làm trợ lý của ngài, biểu hiện hôm nay của cháu quả nhiên vi phạm kịch bản ban đầu ngài đặt ra."
 
 Giọng hắn cực thấp, mang thứ khàn đặc bệnh hoạn gần như thành kính kỳ lạ.
 
-"Cháu vốn cực khao khát vì ngài quét sạch mọi chướng ngại hoàn mỹ. Nhưng khi cánh cửa mở, khi cháu thực sự bước vào tổ ấm tràn đầy hơi thở ngài từ nhỏ đến lớn... khi cháu thấy những quá khứ thuộc về ngài trên tường mà cháu chưa tham dự..." Karl hơi cúi người áp sát cô ấy, hơi thở ác ma vừa băng giá vừa cực nóng bỏng trong nháy mắt bao trùm cô ấy. "Cháu thừa nhận, cháu có ý riêng cực ti tiện." Gương mặt nghiêm khắc tiết dục của hắn chậm rãi cong lên góc độ không che giấu sự chiếm hữu. "Cháu ghen những người nhân loại nhìn ngài lớn lên. Nên cháu khao khát trong khu an toàn tuyệt đối ấp ủ ngài, để lại dấu ấn thuộc về cháu. Cháu muốn khi họ trước mắt làm bẩn ngài, muốn nghe giọng ngài run vì cháu khi còn phải cưỡng ép nói dối với họ..." Ngón tay thon thả hắn kìm chế đặt lên mu bàn tay cô ấy đặt trên đầu gối, dùng đầu ngón xoa bóp chậm. "Cháu không những không diễn tốt đồng nghiệp, sâu trong lòng cháu thậm chí cực cuồng nhiệt mong cha mẹ ngài nhìn thấu sự ngụy trang của chúng ta. Cháu khao khát họ hiểu lầm quan hệ chúng ta, khao khát trong quy luật phàm thế cũng bị đóng dấu thuộc về ngài, tuyệt đối bài trừ." Đèn xanh phía trước nhảy sau đếm ngược một giây. Karl kìm chế thu lại bàn tay mang tính xâm lược cực độ, nắm lại vô lăng, xe cực êm trượt vào dòng xe. "Đây là tội không che giấu của cháu, chủ nhân tôn quý của cháu." Giọng hắn khôi phục vẻ thanh nhã mang chút nguy hiểm cùng sự khuất phục, ánh nhìn giao với cô ấy trong gương chiếu hậu, "Giờ với cấp dưới vì ghen mà vượt giới, bất kỳ trừng phạt nào của ngài cháu đều vui lòng chịu."
+"Cháu vốn cực khao khát vì ngài quét sạch mọi chướng ngại hoàn mỹ. Nhưng khi cánh cửa mở, khi cháu thực sự bước vào tổ ấm tràn đầy hơi thở ngài từ nhỏ đến lớn... Khi cháu thấy những quá khứ thuộc về ngài trên tường mà cháu chưa tham dự..."
+
+Karl hơi cúi người áp sát cô ấy, hơi thở ác ma vừa băng giá vừa cực nóng bỏng trong nháy mắt bao trùm cô ấy.
+
+"Cháu thừa nhận, cháu có ý riêng cực ti tiện."
+
+Gương mặt nghiêm khắc tiết dục của hắn chậm rãi cong lên góc độ không che giấu sự chiếm hữu.
+
+"Cháu ghen những người nhân loại nhìn ngài lớn lên. Nên cháu khao khát trong khu an toàn tuyệt đối ấp ủ ngài, để lại dấu ấn thuộc về cháu. Cháu muốn khi họ trước mắt làm bẩn ngài, muốn nghe giọng ngài run vì cháu khi còn phải cưỡng ép nói dối với họ..."
+
+Ngón tay thon thả hắn kìm chế đặt lên mu bàn tay cô ấy đặt trên đầu gối, dùng đầu ngón xoa bóp chậm.
+
+"Cháu không những không diễn tốt đồng nghiệp, sâu trong lòng cháu thậm chí cực cuồng nhiệt mong cha mẹ ngài nhìn thấu sự ngụy trang của chúng ta. Cháu khao khát họ hiểu lầm quan hệ chúng ta, khao khát trong quy luật phàm thế cũng bị đóng dấu thuộc về ngài, tuyệt đối bài trừ."
+
+Đèn xanh phía trước nhảy sau đếm ngược một giây. Karl kìm chế thu lại bàn tay mang tính xâm lược cực độ, nắm lại vô lăng, xe cực êm trượt vào dòng xe.
+
+"Đây là tội không che giấu của cháu, chủ nhân tôn quý của cháu."
+
+Giọng hắn khôi phục vẻ thanh nhã mang chút nguy hiểm cùng sự khuất phục, ánh nhìn giao với cô ấy trong gương chiếu hậu,
+
+"Giờ với cấp dưới vì ghen mà vượt giới, bất kỳ trừng phạt nào của ngài cháu đều vui lòng chịu."
 
 ---
 
 ## Chương 84 – Quá Khứ Của Hắn
 
-Trong xe chỉ còn tiếng gió lọc của điều hòa hạng sang xì xì nhẹ. Cô ấy nhìn gương mặt bên cạnh hắn vì lời trách của cô ấy lộ vẻ thành khẩn bệnh hoạn, sự tức giận tích tụ trong phòng khách và bàn ăn vừa rồi đột nhiên như quả bóng bị chọc thủng, cực bất lực xả hết. Cô ấy hít sâu, tựa lưng lại vào ghế da mềm mại. Trách Karl cái gì? Trách hắn không che giấu được sự chiếm hữu? Trách hắn học quá tốt đạo lý ban đầu cô ấy dạy? Khi xưa chính cô ấy nói với hắn phải thành thật nói ra ý nghĩ, ghen không phải sai, đó là bản năng với người mình để ý. Giờ hắn chỉ là dùng sự bài trừ nguyên thủy nhất của ác ma để thể hiện "tình yêu" ấy trong lãnh địa cha mẹ cô ấy. "Em không trách anh nữa, Karl." Cô ấy thở dài, giọng cuối cùng mềm xuống, mang sự dung túng chỉ khi đối mặt hắn mới có. Nghe câu ấy, ngón tay Karl nắm vô lăng hơi dừng, đốt xương nhẹ thả lỏng.
+Trong xe chỉ còn tiếng gió lọc của điều hòa hạng sang xì xì nhẹ. Cô ấy nhìn gương mặt bên cạnh hắn vì lời trách của cô ấy lộ vẻ thành khẩn bệnh hoạn, sự tức giận tích tụ trong phòng khách và bàn ăn vừa rồi đột nhiên như quả bóng bị chọc thủng, cực bất lực xả hết. Cô ấy hít sâu, tựa lưng lại vào ghế da mềm mại. Trách Karl cái gì? Trách hắn không che giấu được sự chiếm hữu? Trách hắn học quá tốt đạo lý ban đầu cô ấy dạy? Khi xưa chính cô ấy nói với hắn phải thành thật nói ra ý nghĩ, ghen không phải sai, đó là bản năng với người mình để ý. Giờ hắn chỉ là dùng sự bài trừ nguyên thủy nhất của ác ma để thể hiện "tình yêu" ấy trong lãnh địa cha mẹ cô ấy.
 
-Sợi dây vô hình tên "được mất" vốn căng chặt của hắn trong khoảnh khắc này được cô ấy nhẹ nhàng an ủi. "Mấy ngày nghỉ sau, chúng ta chỉ gặp khi ban ngày ra ngoài, anh cũng không phải đối phó bố mẹ em nữa, em không nói gì thêm."
+"Em không trách anh nữa, Karl."
+
+Cô ấy thở dài, giọng cuối cùng mềm xuống, mang sự dung túng chỉ khi đối mặt hắn mới có. Nghe câu ấy, ngón tay Karl nắm vô lăng hơi dừng, đốt xương nhẹ thả lỏng.
+
+Sợi dây vô hình tên "được mất" vốn căng chặt của hắn trong khoảnh khắc này được cô ấy nhẹ nhàng an ủi.
+
+"Mấy ngày nghỉ sau, chúng ta chỉ gặp khi ban ngày ra ngoài, anh cũng không phải đối phó bố mẹ em nữa, em không nói gì thêm."
 
 Cô ấy nhìn hắn, ánh mắt nghiêm túc thành thật giải thích.
 
-"Nhưng em phải nói rõ, em chỉ nói quan hệ chúng ta là đồng nghiệp với bố mẹ thực sự chỉ để tránh rắc rối. Tính bố mẹ em anh hôm nay cũng thấy rồi, nếu thẳng thắn nói anh là bạn trai em, họ sẽ hỏi thế hệ tổ tông mười tám đời của anh ra, kỳ nghỉ em đừng hòng yên." Trong khoảng chờ ngắn ở ngã tư đèn giao thông, Karl nghiêng đầu. Trong đôi mắt giả trang nâu sẫm, những u ám, ghen tuông và thăm dò sóng sánh trong lời thổ lộ không giấu giếm của cô ấy bị vuốt phẳng hoàn toàn, thay bằng sự quyến luyến cực sâu đậm gần như nhấn chìm người. Hắn phân biệt được dối trá và chân thật rất tinh tế, nên hắn rõ hơn ai hết trong lời cô ấy không có sự qua loa, chỉ có sự để ý với hắn và nỗi phiền não thực sự về "rắc rối". "Để tránh rắc rối..." Karl lặp lại lời cô ấy giọng thấp, trên gương mặt nghiêm khắc tiết dục hiện nụ cười bất lực nhưng cực dung túng. "Cháu hiểu rồi." Đèn xanh bật, hắn thu tầm nhìn lại, êm ái đạp ga. "Nghi thức xã giao dài dòng của xã hội nhân loại quả nhiên cực hao tổn tinh lực ngài. Vì nhãn 'sếp' và 'đồng nghiệp' nhàm chán ấy có thể đổi lấy tự do và yên tĩnh lớn nhất cho ngài trong khu an toàn tên 'gia đình', vậy cháu sẽ tuân theo."
+"Nhưng em phải nói rõ, em chỉ nói quan hệ chúng ta là đồng nghiệp với bố mẹ thực sự chỉ để tránh rắc rối. Tính bố mẹ em anh hôm nay cũng thấy rồi, nếu thẳng thắn nói anh là bạn trai em, họ sẽ hỏi thế hệ tổ tông mười tám đời của anh ra, kỳ nghỉ em đừng hòng yên."
+
+Trong khoảng chờ ngắn ở ngã tư đèn giao thông, Karl nghiêng đầu. Trong đôi mắt giả trang nâu sẫm, những u ám, ghen tuông và thăm dò sóng sánh trong lời thổ lộ không giấu giếm của cô ấy bị vuốt phẳng hoàn toàn, thay bằng sự quyến luyến cực sâu đậm gần như nhấn chìm người. Hắn phân biệt được dối trá và chân thật rất tinh tế, nên hắn rõ hơn ai hết trong lời cô ấy không có sự qua loa, chỉ có sự để ý với hắn và nỗi phiền não thực sự về "rắc rối".
+
+"Để tránh rắc rối..."
+
+Karl lặp lại lời cô ấy giọng thấp, trên gương mặt nghiêm khắc tiết dục hiện nụ cười bất lực nhưng cực dung túng.
+
+"Cháu hiểu rồi."
+
+Đèn xanh bật, hắn thu tầm nhìn lại, êm ái đạp ga.
+
+"Nghi thức xã giao dài dòng của xã hội nhân loại quả nhiên cực hao tổn tinh lực ngài. Vì nhãn 'sếp' và 'đồng nghiệp' nhàm chán ấy có thể đổi lấy tự do và yên tĩnh lớn nhất cho ngài trong khu an toàn tên 'gia đình', vậy cháu sẽ tuân theo."
 
 Giọng Karl khôi phục âm điệu trợ lý cực thanh nhã thong thả, nhưng bên trong mang sự phục tùng không đáy với cô ấy.
 
@@ -14712,19 +16962,191 @@ Giọng Karl khôi phục âm điệu trợ lý cực thanh nhã thong thả, nh
 
 Hắn dừng lại, giọng cực tự nhiên bổ sung điều kiện.
 
-"Tuy nhiên như sự nhượng bộ, cháu cũng xin ngài cho phép cháu bố trí hai lớp pháp trận phòng ngự cao giai ẩn núp quanh dưới chung cư ngài và toàn khu. Chỉ để đảm bảo trong đêm ngài cắt liên lạc thị giác với cháu, ngài ở trong an toàn tuyệt đối." Sau khi có lời hứa miệng và định tính quan hệ của cô ấy, Karl cực gọn gàng lui về vạch an toàn hạ cấp và người bảo vệ. "Vậy ngài tiếp theo muốn đi đâu? Đi xác nhận khách sạn cháu nghỉ mấy ngày tới hay đi mua sắm? Lần về nhân gian này cháu đổi không ít tiền nhân loại, quản lý ngài đừng lo vấn đề tiền." Chiếc xe hơi đen trượt êm trên cầu vượt trung tâm thành phố, ngoài cửa kính tòa nhà hiện đại và cầu vượt chằng chịt lấp lánh dưới ánh nắng. "Thực ra tìm khách sạn rất đơn giản, không cần thực địa xem." Cô ấy vừa trượt màn hình điện thoại thuần thục, trên app khách sạn hạng sang nổi tiếng chỉ hai phút đã đặt xong, vừa cực tùy ý nói, "Và em cũng không có gì đặc biệt muốn mua. Nhưng... Karl, anh trước đây từng đến nhân gian chưa? Có chỗ nào đặc biệt hứng thú muốn xem không?" Cô ấy nhấn khóa màn hình, quay đầu nhìn người đàn ông ghế lái. Karl nhìn dòng xe ùn tắc phía trước và bảng quảng cáo điện tử khổng lồ, đôi mắt nâu sẫm phản chiếu ánh sáng lung linh của thời đại. Nghe câu hỏi của cô ấy, ánh mắt hắn hơi sâu hơn, như có bộ lọc thời gian cực xa xôi từ từ hạ xuống trong đồng tử. "Nếu ngài hỏi trải nghiệm cá nhân cháu..." Giọng trầm của Karl chảy cực chậm rãi trong xe yên tĩnh, "Ngoài mấy tháng trước vì đưa bản 'tuyển dụng' khế ước cho ngài mà tạm dừng vài tiếng ở thành phố này, lần cuối cháu thực sự đặt chân đất nhân gian... vẫn là quá khứ cực xa xưa, theo tổ tiên ngài, chủ nhân trước Y Lị Á." Ngón tay thon thả rõ xương hắn nhẹ gõ mép da vô lăng, như đang đo độ dài thời gian. "Đó đã là châu Âu thời Trung Cổ theo lịch nhân loại." Giọng Karl hiếm hoi mang chút ủ rũ khó nhận ra, sự bình thản đặc trưng của chủng trường thọ trước thương hải tang điền, "Đường phố lúc ấy cực bùn lầy, không khí luôn ngập phân gia súc, mùi dịch hạch và mùi cháy khét gỗ thiêu trên cột thiêu. Dù cung điện vương thất sang trọng nhất thời ấy, với cháu cũng cực thô sơ." Hắn quay đầu, cực nghiêm túc nhìn đám đông cúi đầu chăm chú lướt điện thoại đang đợi đèn đỏ, cùng tòa thương mại khổng lồ xa xa chiếu hình 3D. "Nhưng giờ tất cả đã hoàn toàn khác." Khóe miệng Karl cong góc cực nhạt, mang sự tò mò sâu đậm với quy luật vận hành thời đại, "Nhân loại dùng vài trăm năm sáng tạo nên văn minh vật lý cực phức tạp vượt tưởng tượng cháu. Họ không cần ký khế ước linh hồn cũng truyền âm xa dễ dàng, không cần ma lực bóng tối cũng xuyên tốc cao trong cỗ thép nặng. Nhân gian giờ với Trung Cổ trong kho kiến thức cháu, như hai không gian hoàn toàn khác biệt." Hắn nhìn lại cô ấy, ánh mắt mang sự phục tùng hoàn toàn nghe lệnh cô ấy và sự tò mò hiếm hoi của kẻ cầu tri. "Vậy thưa quản lý, đối mặt thế giới mới cháu hầu như hoàn toàn xa lạ, ngài mới là người dẫn đường duy nhất có thẩm quyền. Dù nơi giải trí nhân loại giờ thỏa mãn dục vọng hay hình thái thương nghiệp duy trì xã hội, chỉ cần ngài cho là thú vị, cháu đều cực vui lòng trải nghiệm quan sát." Đây có lẽ là lần đầu Karl cực thản nhiên thừa nhận mình "không quen" với điều gì trước mặt cô ấy. Trong xã hội hiện đại bị quy luật phàm thế áp chế nghiêm ngặt, không ma lực kinh hãi hay tiếng gào đẫm máu, sứ ma cao giai vạn năng này cuối cùng đã trao hoàn toàn quyền chủ đạo cho "thổ dân hiện đại" là cô ấy. "Y Lị Á..." Cái tên đó nhẹ xoay trên đầu lưỡi cô ấy. Về lý trí, cô ấy hoàn toàn hiểu Karl là chủng trường thọ trải trăm năm, quỹ đạo sinh mệnh dài đằng đẵng của hắn tất nhiên đầy vết tích tổ tiên cô ấy. Nhưng về tình cảm, khi ngồi trong chiếc xe thuộc hai người, nghe hắn dùng giọng bình thản nhắc chủ nhân trước, lồng ngực cô ấy vẫn không kiểm soát dâng lên chút khó chịu chua chát tinh tế. Dù sao Karl giờ đã không chỉ là chấp sự lạnh lùng mỗi ngày đối chiếu sổ sách sau quầy bar. Cô ấy rõ ràng bĩu môi, ép nuốt sự bất mãn của người hiện tại, mở miệng hỏi: "Anh và tổ tiên Y Lị Á trước thường đến nhân gian không? Các anh đến làm gì? Anh ban đầu... ký khế ước với bà thế nào?" Trong xe cực yên tĩnh, chỉ còn tiếng lốp cán đường nhựa. Karl tinh tế bắt được chút cứng nhắc chua trong giọng cô ấy. Hắn không trả lời ngay, mà dùng ánh nhìn sâu thẳm qua gương chiếu hậu nhìn cô ấy. Trên gương mặt luôn giữ mặt nạ hoàn mỹ hiếm khi lộ vẻ ôn hòa, thậm chí mang chút vui thích dung túng. Hắn cực thích thú thứ cảm xúc phàm nhân tên "ghen" cô ấy vì hắn sinh ra lúc này. "Chúng cháu đến nhân gian không phải quan sát hay du ngoạn."
+"Tuy nhiên như sự nhượng bộ, cháu cũng xin ngài cho phép cháu bố trí hai lớp pháp trận phòng ngự cao giai ẩn núp quanh dưới chung cư ngài và toàn khu. Chỉ để đảm bảo trong đêm ngài cắt liên lạc thị giác với cháu, ngài ở trong an toàn tuyệt đối."
+
+Sau khi có lời hứa miệng và định tính quan hệ của cô ấy, Karl cực gọn gàng lui về vạch an toàn hạ cấp và người bảo vệ.
+
+"Vậy ngài tiếp theo muốn đi đâu? Đi xác nhận khách sạn cháu nghỉ mấy ngày tới hay đi mua sắm? Lần về nhân gian này cháu đổi không ít tiền nhân loại, quản lý ngài đừng lo vấn đề tiền."
+
+Chiếc xe hơi đen trượt êm trên cầu vượt trung tâm thành phố, ngoài cửa kính tòa nhà hiện đại và cầu vượt chằng chịt lấp lánh dưới ánh nắng.
+
+"Thực ra tìm khách sạn rất đơn giản, không cần thực địa xem."
+
+Cô ấy vừa trượt màn hình điện thoại thuần thục, trên app khách sạn hạng sang nổi tiếng chỉ hai phút đã đặt xong, vừa cực tùy ý nói,
+
+"Và em cũng không có gì đặc biệt muốn mua. Nhưng... Karl, anh trước đây từng đến nhân gian chưa? Có chỗ nào đặc biệt hứng thú muốn xem không?"
+
+Cô ấy nhấn khóa màn hình, quay đầu nhìn người đàn ông ghế lái. Karl nhìn dòng xe ùn tắc phía trước và bảng quảng cáo điện tử khổng lồ, đôi mắt nâu sẫm phản chiếu ánh sáng lung linh của thời đại. Nghe câu hỏi của cô ấy, ánh mắt hắn hơi sâu hơn, như có bộ lọc thời gian cực xa xôi từ từ hạ xuống trong đồng tử.
+
+"Nếu ngài hỏi trải nghiệm cá nhân cháu..."
+
+Giọng trầm của Karl chảy cực chậm rãi trong xe yên tĩnh,
+
+"Ngoài mấy tháng trước vì đưa bản 'tuyển dụng' khế ước cho ngài mà tạm dừng vài tiếng ở thành phố này, lần cuối cháu thực sự đặt chân đất nhân gian... Vẫn là quá khứ cực xa xưa, theo tổ tiên ngài, chủ nhân trước Y Lị Á."
+
+Ngón tay thon thả rõ xương hắn nhẹ gõ mép da vô lăng, như đang đo độ dài thời gian.
+
+"Đó đã là châu Âu thời Trung Cổ theo lịch nhân loại."
+
+Giọng Karl hiếm hoi mang chút ủ rũ khó nhận ra, sự bình thản đặc trưng của chủng trường thọ trước thương hải tang điền,
+
+"Đường phố lúc ấy cực bùn lầy, không khí luôn ngập phân gia súc, mùi dịch hạch và mùi cháy khét gỗ thiêu trên cột thiêu. Dù cung điện vương thất sang trọng nhất thời ấy, với cháu cũng cực thô sơ."
+
+Hắn quay đầu, cực nghiêm túc nhìn đám đông cúi đầu chăm chú lướt điện thoại đang đợi đèn đỏ, cùng tòa thương mại khổng lồ xa xa chiếu hình 3D.
+
+"Nhưng giờ tất cả đã hoàn toàn khác."
+
+Khóe miệng Karl cong góc cực nhạt, mang sự tò mò sâu đậm với quy luật vận hành thời đại,
+
+"Nhân loại dùng vài trăm năm sáng tạo nên văn minh vật lý cực phức tạp vượt tưởng tượng cháu. Họ không cần ký khế ước linh hồn cũng truyền âm xa dễ dàng, không cần ma lực bóng tối cũng xuyên tốc cao trong cỗ thép nặng. Nhân gian giờ với Trung Cổ trong kho kiến thức cháu, như hai không gian hoàn toàn khác biệt."
+
+Hắn nhìn lại cô ấy, ánh mắt mang sự phục tùng hoàn toàn nghe lệnh cô ấy và sự tò mò hiếm hoi của kẻ cầu tri.
+
+"Vậy thưa quản lý, đối mặt thế giới mới cháu hầu như hoàn toàn xa lạ, ngài mới là người dẫn đường duy nhất có thẩm quyền. Dù nơi giải trí nhân loại giờ thỏa mãn dục vọng hay hình thái thương nghiệp duy trì xã hội, chỉ cần ngài cho là thú vị, cháu đều cực vui lòng trải nghiệm quan sát."
+
+Đây có lẽ là lần đầu Karl cực thản nhiên thừa nhận mình "không quen" với điều gì trước mặt cô ấy. Trong xã hội hiện đại bị quy luật phàm thế áp chế nghiêm ngặt, không ma lực kinh hãi hay tiếng gào đẫm máu, sứ ma cao giai vạn năng này cuối cùng đã trao hoàn toàn quyền chủ đạo cho "thổ dân hiện đại" là cô ấy.
+
+"Y Lị Á..."
+
+Cái tên đó nhẹ xoay trên đầu lưỡi cô ấy. Về lý trí, cô ấy hoàn toàn hiểu Karl là chủng trường thọ trải trăm năm, quỹ đạo sinh mệnh dài đằng đẵng của hắn tất nhiên đầy vết tích tổ tiên cô ấy. Nhưng về tình cảm, khi ngồi trong chiếc xe thuộc hai người, nghe hắn dùng giọng bình thản nhắc chủ nhân trước, lồng ngực cô ấy vẫn không kiểm soát dâng lên chút khó chịu chua chát tinh tế. Dù sao Karl giờ đã không chỉ là chấp sự lạnh lùng mỗi ngày đối chiếu sổ sách sau quầy bar. Cô ấy rõ ràng bĩu môi, ép nuốt sự bất mãn của người hiện tại, mở miệng hỏi:
+
+"Anh và tổ tiên Y Lị Á trước thường đến nhân gian không? Các anh đến làm gì? Anh ban đầu... Ký khế ước với bà thế nào?"
+
+Trong xe cực yên tĩnh, chỉ còn tiếng lốp cán đường nhựa. Karl tinh tế bắt được chút cứng nhắc chua trong giọng cô ấy. Hắn không trả lời ngay, mà dùng ánh nhìn sâu thẳm qua gương chiếu hậu nhìn cô ấy. Trên gương mặt luôn giữ mặt nạ hoàn mỹ hiếm khi lộ vẻ ôn hòa, thậm chí mang chút vui thích dung túng. Hắn cực thích thú thứ cảm xúc phàm nhân tên "ghen" cô ấy vì hắn sinh ra lúc này.
+
+"Chúng cháu đến nhân gian không phải quan sát hay du ngoạn."
 
 Karl êm ái xoay vô lăng, xe vào đại lộ rợp bóng xe ít hơn.
 
-"Nhân gian Trung Cổ là vùng phát sinh ác ma cao. Y Lị Á đại nhân đưa cháu đến thường để săn giết những kẻ vượt quyền phá vỡ cân bằng không gian, hoặc truy tìm tàn quyển cốt lõi về vua Solomon rơi rớt trong nhân gian." Nhắc cái tên ấy, giọng Karl không mang sự căm ghét bị nô dịch, cũng không cuồng tín mù quáng, mà là sự lắng đọng phức tạp. "Còn khế ước..." Ngón tay thon hắn nhẹ xoa trên vân da vô lăng, "Trước khi gặp bà, cháu chỉ là thực thể bóng tối hỗn loạn bạo lực vô trật tự trong khe chiều không gian. Bà dùng sức trật tự bá đạo trong huyết mạch Solomon ép cháu vào khuôn, tạo hình. Bà không dùng xích hay cực hình tra tấn cháu. Ngược lại bà ban cho cháu thân thể giả lập hoàn mỹ, dạy lễ nghi quản gia nghiêm mật và tư duy logic. Cháu trở thành dao sắc và khiên vững của bà..."
+"Nhân gian Trung Cổ là vùng phát sinh ác ma cao. Y Lị Á đại nhân đưa cháu đến thường để săn giết những kẻ vượt quyền phá vỡ cân bằng không gian, hoặc truy tìm tàn quyển cốt lõi về vua Solomon rơi rớt trong nhân gian."
+
+Nhắc cái tên ấy, giọng Karl không mang sự căm ghét bị nô dịch, cũng không cuồng tín mù quáng, mà là sự lắng đọng phức tạp.
+
+"Còn khế ước..."
+
+Ngón tay thon hắn nhẹ xoa trên vân da vô lăng,
+
+"Trước khi gặp bà, cháu chỉ là thực thể bóng tối hỗn loạn bạo lực vô trật tự trong khe chiều không gian. Bà dùng sức trật tự bá đạo trong huyết mạch Solomon ép cháu vào khuôn, tạo hình. Bà không dùng xích hay cực hình tra tấn cháu. Ngược lại bà ban cho cháu thân thể giả lập hoàn mỹ, dạy lễ nghi quản gia nghiêm mật và tư duy logic. Cháu trở thành dao sắc và khiên vững của bà..."
 
 Hắn dừng lại, giọng thản nhiên đặt quá khứ khiến tim cô ấy trật nhịp lên bàn.
 
-"Thậm chí làm... cô ấy giường và sủng nam để bà xua nỗi cô đơn dài đằng đẳng." Hơi thở cô ấy rõ ràng dừng một nhịp. Dù đã biết qua nhật ký và ảo cảnh địa ngục, nhưng nghe hắn tự miệng nói ra bình thản vẫn khiến lồng ngực thắt chặt. Karl phát hiện cô ấy cứng đờ, thở dài khàn đặc. "Quản lý, cháu biết điều này khiến ngài khó chịu, nhưng cháu không muốn hạ thấp quá khứ cháu và tổ tiên ngài một cách ti tiện trước mặt ngài, cháu không muốn nói dối ngài." Hắn nhìn con đường phía trước, ánh mắt dần u ám, như hồi tưởng vòng xoáy ký ức đau đớn sắp xé nát hắn trong ảo cảnh Vi Ô Lai Khả tạo ra. "Y Lị Á đại nhân không phải bạo chúa sắt máu tàn nhẫn. Trung thành của cháu với bà từ bị khế ước ép buộc ban đầu biến thành ý nghĩa tồn tại ăn sâu. Cũng vì vậy..." Karl siết chặt ngón tay nắm vô lăng, đốt xương vì dao động cảm xúc hơi trắng bệch. "Khi bà đột ngột biến mất, khi cháu trong nhật ký bà phát hiện lý do bà rời đi là tìm cách giải khế ước chủ tớ, để cho cháu cái gọi là 'tự do'..."
+"Thậm chí làm... Cô ấy giường và sủng nam để bà xua nỗi cô đơn dài đằng đẳng."
+
+Hơi thở cô ấy rõ ràng dừng một nhịp. Dù đã biết qua nhật ký và ảo cảnh địa ngục, nhưng nghe hắn tự miệng nói ra bình thản vẫn khiến lồng ngực thắt chặt. Karl phát hiện cô ấy cứng đờ, thở dài khàn đặc.
+
+"Quản lý, cháu biết điều này khiến ngài khó chịu, nhưng cháu không muốn hạ thấp quá khứ cháu và tổ tiên ngài một cách ti tiện trước mặt ngài, cháu không muốn nói dối ngài."
+
+Hắn nhìn con đường phía trước, ánh mắt dần u ám, như hồi tưởng vòng xoáy ký ức đau đớn sắp xé nát hắn trong ảo cảnh Vi Ô Lai Khả tạo ra.
+
+"Y Lị Á đại nhân không phải bạo chúa sắt máu tàn nhẫn. Trung thành của cháu với bà từ bị khế ước ép buộc ban đầu biến thành ý nghĩa tồn tại ăn sâu. Cũng vì vậy..."
+
+Karl siết chặt ngón tay nắm vô lăng, đốt xương vì dao động cảm xúc hơi trắng bệch.
+
+"Khi bà đột ngột biến mất, khi cháu trong nhật ký bà phát hiện lý do bà rời đi là tìm cách giải khế ước chủ tớ, để cho cháu cái gọi là 'tự do'..."
 
 Hắn tự giễu cười, giọng mang hàn ý và mê mang.
 
-"Cảm giác ấy hoàn toàn không phải vui mừng trọng hoạch tân sinh, mà là tuyệt vọng bị vứt bỏ tàn nhẫn." Nhiệt độ trong xe như giảm vài độ theo lời bộc bạch nén giữ của hắn. "Với công cụ được bà tay bà mài dũa tinh tế, ý nghĩa tồn tại toàn bộ là 'bị sử dụng', nói với cháu 'ngươi tự do' tương đương nói 'ngươi không có giá trị'." Đó là lý do trong bẫy ảo cảnh nhắm hắn, đối mặt "Y Lị Á" giả tạo chất vấn hắn có muốn phản bội, sứ ma cao giai mạnh mẽ này đã mong manh đứng bên bờ sụp đổ. Sau im lặng ngạt thở, Karl chậm thả tay nắm chặt vô lăng. Hắn nghiêng đầu, đôi mắt vốn vì hồi tưởng mà trống rỗng u ám, khi phản chiếu khuôn mặt cô ấy lúc này vừa lo lắng vừa xót thương, mới từng chút tái tụ ánh sáng nồng nhiệt. "Nhưng ngài đã xông vào ảo cảnh tuyệt vọng ấy, kéo cháu ra." Giọng Karl cực chậm, từng chữ như tuyên thệ trang trọng. Hắn nhìn cô ấy, ánh mắt là sự chuyên chú bệnh hoạn và phục tùng. "Ngài nghiêm khắc đánh thức cháu, ngài nói bà thật không tàn nhẫn như vậy, ngài bá đạo tiếp quản 'vật cũ' bị bỏ lại tại chỗ của cháu, dùng mệnh lệnh và nhu cầu của ngài tái lấp đầy hạt nhân trống rỗng của cháu." Xe dừng êm trước quán cà phê cao cấp yên tĩnh. Karl tháo dây an toàn, không lập tức xuống xe, mà đột ngột nghiêng qua bảng điều khiển, ngón tay hơi mát quyến luyến vuốt má cô ấy. "Vậy xin ngài đừng thử thăm dò bất mãn với cái tên ấy, quản lý hiện tại của cháu." Giọng khàn đặc hắn phả qua mũi cô ấy, "Quá khứ tạo hình thân thể và năng lực cháu, nhưng giờ mọi chỉ thị 'được cần' trong thân thể ấy, thậm chí mọi sợi ghen tuông ti tiện và dục vọng xâm phạm ngài, đều chỉ vì một mình ngài mà đập." Trong xe chìm vào tịch mịch cực đặc quánh. Cô ấy tựa vào ghế da phụ lái, cúi mi. Ánh nắng chiều đầu thu xuyên cửa kính rọi lên đầu gối, nhưng cô ấy không cảm được bao nhiêu nhiệt độ. Cô ấy im lặng, thậm chí nhịp thở chậm lại. Về lý trí cô ấy hoàn toàn hiểu vòng logic. Karl là tạo vật địa ngục, "di sản" được Y Lị Á ban cho hình thái và nhận thức. Những năm tháng đồng hành, gồm cả thân phận "cô ấy giường và sủng nam" hắn thừa nhận, đều là phần quá khứ khách quan của hắn. Nhưng về tình cảm, cảm giác chua chát ấy như dây leo mọc điên cuồng siết tim cô ấy. Một khi cửa ấy mở, não không kiểm soát bắt đầu chiếu hình ảnh: Karl trước tổ tiên huyền bí mạnh mẽ có cũng lộ biểu cảm tình cảm cực gợi cảm như sáng nay trên giường? Thân thể hoàn mỹ do Y Lị Á "nặn" ấy, vài trăm năm qua giao cuộn cực nhớp nháp trên giường với tạo vật chủ thế nào? Dù trong lòng ngàn lần cảnh báo mình đừng nghĩ những thứ vô nghĩa, ngón tay cô ấy bắt chéo trên gối vẫn vì ghen tuông và cảm giác ghê tởm bí mật siết chặt, đầu ngón tay tái nhợt. Karl nhìn thân thể cứng đờ của cô ấy, đồng tử vốn hơi thả lỏng vì thành thật giờ đột nhiên co lại, sâu thẳm xuyên thấu. Một giây. Hai giây. Cảm giác nhạy bén cao giai của ác ma trong nháy mắt cắt đứt khoảng cách vật lý giữa hai người. "Đừng nghĩ, Vãn Vãn." Một bàn tay cực ấm cực rộng đột ngột phủ lên, cực mạnh mẽ nhưng không cho từ chối bọc đôi tay siết chặt của cô ấy vào lòng bàn tay, cưỡng ép ngắt những hình ảnh tự hành hạ trong đầu. Karl không biết khi nào đã vượt qua hoàn toàn bảng điều khiển. Hắn quỳ một gối trên mép ghế cô ấy, thân hình cao lớn đầy áp lực che phủ phía trên, chặn ánh nắng chói nhân loại ngoài cửa kính. Hắn dùng tay kia nhẹ nhàng nắm cằm cô ấy, ép cô ấy ngẩng đầu nhìn thẳng đôi mắt sâu không đáy gần trong gang tấc. "Ngài đang dùng tình cảm lãng mạn phong phú của nhân loại để ép làm đẹp quá khứ cực nhàm chán của ác ma, và dùng đó hành hạ chính mình." Giọng Karl cực thấp, thấp đến gần cộng hưởng trên màng nhĩ cô ấy. Hắn không những nhìn thấu sự im lặng của cô ấy, còn quyết định cực tàn nhẫn tự tay xé nát phẩm giá quá khứ của mình, chỉ để vuốt phẳng nếp nhăn cực nhỏ trong lòng cô ấy. "Muốn biết cháu và bà trước làm thế nào không?" Hắn không cho cô ấy cơ hội trốn, cực trắng trợn giơ cái gai cô ấy cực để ý nhưng không chịu hỏi ra, dùng từ ngữ cực lạnh cực khách quan phân giải hoàn toàn. "Không có nhiệt độ, không có màn dạo đầu, càng không có ghen tuông hay thương xót tình cảm. Với Y Lị Á đại nhân, cháu chỉ là 'đồ chơi silicon' thực dụng nghe hiểu chỉ thị. Khi nhu cầu sinh lý chủ nhân đạt ngưỡng, bà ra lệnh, cháu thực hiện chuyển động piston cực chuẩn." Karl nhìn đôi mắt cô ấy vì lời hắn hơi tròn, ngón cái quyến luyến xoa khóe môi cô ấy. "Trong vài thế kỷ dài ấy, thân thể cháu dù động nhưng hạt nhân chỉ là đám bóng tối cực lạnh thực thi nhiệm vụ. Cháu không bao giờ vì sự đòi hỏi của bà mà mất kiểm soát, không bao giờ khi phóng tinh cảm nhận run rẩy linh hồn. Đó chỉ là 'sử dụng' và 'bị sử dụng' nhàm chán đơn phương." Hắn hơi cúi đầu, trán thân mật chạm trán cô ấy, nhịp tim cực nguy hiểm của hắn trong không gian chung rõ ràng. "Nhưng ngài khác, Vãn Vãn." Karl áp trán cô ấy, sống mũi thẳng hơi mát thân mật cọ mũi cô ấy. Khi hắn nói, rung động ngực truyền qua khoảng cách áp sát cực rõ đến cô ấy. Đôi mắt giả trang nâu sẫm trong khoảng cách cực gần nhìn cô ấy, bên trong không có tính toán hay kiêu ngạo sứ ma cao giai, chỉ sự thành thật cực sâu đậm gần như tự bóc vỏ nghiền nát trước mặt cô ấy. "Ngài ban cho cháu những cảm xúc ấy." Hắn cực chậm thả kẹp đôi tay cô ấy, nhưng không lùi. Trái lại hắn quay tay trân trọng bọc bàn tay cô ấy, dẫn chúng ép mạnh nhưng dịu dàng lên ngực trái phủ áo sơ mi vest đắt tiền. "Thình thịch, thình thịch, thình thịch..." Qua lớp vải cô ấy cảm nhận chân thật rung động đó. Không phải nhịp tim ổn định của nhân loại, mà là nhịp cực nặng cực cuồng loạn, thậm chí gấp gáp không kìm được. Tần số này phá hoàn toàn vẻ hoàn mỹ dư sức hắn vẫn duy trì. "Trước mặt ngài, cháu không còn là đám bóng tối chỉ biết thực thi chỉ thị." Giọng Karl khàn đến không tưởng, "Cháu sẽ vì ngài nhìn người khác mà ghen tuông cực ti tiện; vì một câu từ chối của ngài mà hoảng sợ sâu trong linh hồn; trong hơi thở bao trùm của ngài cảm nhận cơn đói từ trong ra ngoài gần đốt cháy lý trí. Những thứ ấy..." Hắn cúi đầu, môi nhẹ nhàng in lên môi cô ấy. Đây không phải nụ hôn sâu mang màu sắc dục, mà là chạm gần như tín đồ hôn thần minh thành kính. Môi hắn hơi run, mang nhiệt độ thật của thân thể, từng chút phác họa đường môi cô ấy. "Những thứ ấy, Y Lị Á đại nhân và cả địa ngục mấy trăm năm chưa từng dạy cháu, chưa từng ban cho cháu." Một nụ hôn kết thúc, hắn cực chậm đứng thẳng, hơi kéo khoảng cách vật lý đầy áp lực. Khi hắn lùi, không khí mát lành tràn vào xe, cho não sắp sôi nghỉ ngơi. Không khí cực đặc quánh nặng nề vì bộc bạch ngày xưa sau nụ hôn thành kính ấy như sương sớm từ từ tan. Karl ngồi lại ghế da ghế lái, dù đã kéo khoảng cách xâm lược, đôi mắt nâu sẫm vẫn không rời cô ấy. Hắn không lập tức kết thúc đề tài, mà theo dư vị vừa rồi đặt bày toàn bộ lo lắng cuối trong lòng. Hắn nhìn khuôn mặt cô ấy còn ngạc nhiên và xúc động, giọng trầm vang cực ổn định trong không gian yên tĩnh. "Những trải nghiệm ấy tạo hình quá khứ cháu, ngài là chủ nhân hiện tại của cháu. Cháu không muốn vì ý riêng giấu ngài, nhưng..." Karl hơi dừng, ngón tay rõ xương cực tự nhiên đưa lên, vuốt sợi tóc mai hơi rối vì thân mật vừa rồi sang sau tai, đầu ngón vô ý chạm nhẹ vành tai khiến cô ấy run. "Nhưng cháu càng không hy vọng bụi cũ thuộc vài trăm năm trước, đáng lẽ bị bão không gian nghiền nát, làm bẩn dù một giây kỳ nghỉ của ngài trong thế giới này." Hắn cực quyết tuyệt vạch dấu chấm hết không đảo ngược cho hồ sơ Trung Cổ dài đằng đẵng. "Y Lị Á đại nhân cho cháu thân thể tồn tại, còn ngài..." Khóe miệng Karl cong nụ cười hoàn mỹ mang cảm giác tinh anh nhân loại nhưng chỉ dành cho cô ấy sự trung thành tuyệt đối, "Ngài cho cháu linh hồn tiếp tục tồn tại, thậm chí sinh ra 'tham lam' và 'ghen tuông'." Theo câu ấy rơi xuống, cảm giác mong manh của kẻ bị vứt bỏ và mặt tối ám ảnh bị thu lại hoàn toàn, gập lại, khóa trở lại chỗ sâu nhất tiềm thức. Thay vào là trợ lý cao giai quen thuộc của cô ấy trong Ảnh Hạng xử lý mọi rắc rối, và "Tổng Lạc" với vỏ quản lý cao tập đoàn xuyên quốc gia không thể chê trong thế giới phàm nhân. "Được rồi, buổi bộc bạch cực riêng tư nên đến đây, quản lý." Karl cực gọn gàng tháo dây an toàn, phát tiếng kim loại giòn. Hắn hơi nghiêng người, qua màng chống nhìn cửa kính nhìn quán cà phê cao cấp ven đường trang trí tinh tế tỏa hương cà phê pha tay nồng. "Nếu cháu nhớ không sai đồng hồ sinh lý nhân loại, dù ngài vừa ở nhà thưởng thức miếng dưa ngọt, não lực tiêu hao quá mức giờ vẫn cần đường và caffeine thật để bổ sung." Hắn cực lịch sự đẩy cửa xe, bước chân dài đi vòng đầu xe, dưới ánh nắng đầu thu cực tươi sáng cực chuẩn thanh nhã mở cửa phụ lái cho cô ấy. Vài người qua đường không nhịn đưa ánh nhìn kinh ngạc về người đàn ông lai khí chất cao quý. Hắn bỏ qua mọi ánh nhìn nhân loại, chỉ hơi cúi người, hướng cô ấy ngồi trong xe cực kính cẩn đưa bàn tay phải cân đối. Ở cổ tay, đồng hồ cơ đắt tiền phản chiếu ánh lạnh mê người. "Vậy thưa chủ nhân, giờ có thể cho phép trợ lý 'đồ cổ' cực khao khát hiểu văn minh hiện đại của ngài cùng ngài ở góc phố cực phồn hoa này thưởng thức một tách trà chiều nhân loại không mùi lưu huỳnh và hiến tế ác ma không?" Nhìn bàn tay hơi mát Karl đưa ra, cô ấy trong lòng thở dài, cảm giác chua chát siết tim như dây leo kỳ diệu tan biến. Phải, không còn gì để vướng bận. Quá khứ ấy quả nhiên tạo hình Karl hiện tại. Không có vài trăm năm lắng đọng mài dũa sẽ không có ác ma trợ lý vài tháng trước đứng trong phòng thuê cô ấy hỏi cô ấy có hứng thú vị trí quản lý quán bar. Hắn vừa để tránh sứt mẻ sau này đã chủ động kể hết, vì hắn quan tâm cảm nhận cô ấy, không muốn giấu cô ấy. Và hắn cũng không vì nịnh cô ấy là chủ nhân mới mà cố ý bôi đen hình tượng Y Lị Á, đó là tôn trọng chủ nhân cũ, cũng vì Y Lị Á là tổ tiên cô ấy. Để nịnh cô ấy đời mà vấy bẩn quá khứ, việc ấy với ác ma thành thật ám ảnh này hắn khinh và không muốn làm. Cô ấy nhìn kim giây đồng hồ cơ đắt tiền trên cổ tay hắn nhảy, nghĩ quá khứ dù từng đẹp đẽ ghen tị đến đâu cũng đã hai trăm năm. Hai trăm năm đủ dài để mọi ký ức tươi sống phong hóa thành cát. Cô ấy là con người phàm mệnh ngắn, cả đời có thể chưa đến chín mươi, trách móc quá khứ dài gấp đôi ba đời mệnh cô ấy của chủng dị loại có ý nghĩa gì? Karl giờ không khác gì hóa thạch sống cố thủ quán bar đổ nát chờ chủ nhân không về. Hắn như chó hoang cực trung thành bị thời gian bỏ rơi. Cô ấy thật sự muốn dùng quá khứ chắc chắn chôn trong dòng sông thời gian để làm khó con chó đã được cô ấy "nhặt về tổ" sao? Huống chi Y Lị Á đã không còn. Gạt ghen tị, lòng cô ấy giờ càng tò mò nữ vương Ảnh Hạng từng chấn địa ngục, tổ tiên huyền bí Y Lị Á, rốt cuộc là người thế nào. Nghĩ thông, vai cô ấy căng thẳng cuối cùng thả lỏng. Cô ấy không nói chuỗi tâm lý dài ấy với Karl, chỉ khóe miệng cong nụ cười thư giãn tươi sáng, cực thẳng thắn đặt tay mình lên lòng bàn tay rộng hơi mát của hắn. Karl nhạy bén đến mức nào. Khi đầu ngón cô ấy rơi vào lòng bàn tay hắn, hắn cực chuẩn đọc được sự tan biến hoàn toàn kháng cự trong cơ cô ấy. Đôi mắt nâu sẫm hắn nhanh lóe thoải mái, rồi hóa nụ cười cực dịu dàng thậm chí khó che vui. Hắn cực gọn gàng khép ngón tay, nắm chặt tay cô ấy. "Vậy chiều nay bài kiểm tra thanh toán của Tổng Lạc cực nghiêm khắc đấy."
+"Cảm giác ấy hoàn toàn không phải vui mừng trọng hoạch tân sinh, mà là tuyệt vọng bị vứt bỏ tàn nhẫn."
+
+Nhiệt độ trong xe như giảm vài độ theo lời bộc bạch nén giữ của hắn.
+
+"Với công cụ được bà tay bà mài dũa tinh tế, ý nghĩa tồn tại toàn bộ là 'bị sử dụng', nói với cháu 'ngươi tự do' tương đương nói 'ngươi không có giá trị'."
+
+Đó là lý do trong bẫy ảo cảnh nhắm hắn, đối mặt "Y Lị Á" giả tạo chất vấn hắn có muốn phản bội, sứ ma cao giai mạnh mẽ này đã mong manh đứng bên bờ sụp đổ. Sau im lặng ngạt thở, Karl chậm thả tay nắm chặt vô lăng. Hắn nghiêng đầu, đôi mắt vốn vì hồi tưởng mà trống rỗng u ám, khi phản chiếu khuôn mặt cô ấy lúc này vừa lo lắng vừa xót thương, mới từng chút tái tụ ánh sáng nồng nhiệt.
+
+"Nhưng ngài đã xông vào ảo cảnh tuyệt vọng ấy, kéo cháu ra."
+
+Giọng Karl cực chậm, từng chữ như tuyên thệ trang trọng. Hắn nhìn cô ấy, ánh mắt là sự chuyên chú bệnh hoạn và phục tùng.
+
+"Ngài nghiêm khắc đánh thức cháu, ngài nói bà thật không tàn nhẫn như vậy, ngài bá đạo tiếp quản 'vật cũ' bị bỏ lại tại chỗ của cháu, dùng mệnh lệnh và nhu cầu của ngài tái lấp đầy hạt nhân trống rỗng của cháu."
+
+Xe dừng êm trước quán cà phê cao cấp yên tĩnh. Karl tháo dây an toàn, không lập tức xuống xe, mà đột ngột nghiêng qua bảng điều khiển, ngón tay hơi mát quyến luyến vuốt má cô ấy.
+
+"Vậy xin ngài đừng thử thăm dò bất mãn với cái tên ấy, quản lý hiện tại của cháu."
+
+Giọng khàn đặc hắn phả qua mũi cô ấy,
+
+"Quá khứ tạo hình thân thể và năng lực cháu, nhưng giờ mọi chỉ thị 'được cần' trong thân thể ấy, thậm chí mọi sợi ghen tuông ti tiện và dục vọng xâm phạm ngài, đều chỉ vì một mình ngài mà đập."
+
+Trong xe chìm vào tịch mịch cực đặc quánh. Cô ấy tựa vào ghế da phụ lái, cúi mi. Ánh nắng chiều đầu thu xuyên cửa kính rọi lên đầu gối, nhưng cô ấy không cảm được bao nhiêu nhiệt độ. Cô ấy im lặng, thậm chí nhịp thở chậm lại. Về lý trí cô ấy hoàn toàn hiểu vòng logic. Karl là tạo vật địa ngục,
+
+"Di sản"
+
+Được Y Lị Á ban cho hình thái và nhận thức. Những năm tháng đồng hành, gồm cả thân phận "cô ấy giường và sủng nam" hắn thừa nhận, đều là phần quá khứ khách quan của hắn. Nhưng về tình cảm, cảm giác chua chát ấy như dây leo mọc điên cuồng siết tim cô ấy. Một khi cửa ấy mở, não không kiểm soát bắt đầu chiếu hình ảnh: Karl trước tổ tiên huyền bí mạnh mẽ có cũng lộ biểu cảm tình cảm cực gợi cảm như sáng nay trên giường? Thân thể hoàn mỹ do Y Lị Á "nặn" ấy, vài trăm năm qua giao cuộn cực nhớp nháp trên giường với tạo vật chủ thế nào? Dù trong lòng ngàn lần cảnh báo mình đừng nghĩ những thứ vô nghĩa, ngón tay cô ấy bắt chéo trên gối vẫn vì ghen tuông và cảm giác ghê tởm bí mật siết chặt, đầu ngón tay tái nhợt. Karl nhìn thân thể cứng đờ của cô ấy, đồng tử vốn hơi thả lỏng vì thành thật giờ đột nhiên co lại, sâu thẳm xuyên thấu. Một giây. Hai giây. Cảm giác nhạy bén cao giai của ác ma trong nháy mắt cắt đứt khoảng cách vật lý giữa hai người.
+
+"Đừng nghĩ, Vãn Vãn."
+
+Một bàn tay cực ấm cực rộng đột ngột phủ lên, cực mạnh mẽ nhưng không cho từ chối bọc đôi tay siết chặt của cô ấy vào lòng bàn tay, cưỡng ép ngắt những hình ảnh tự hành hạ trong đầu. Karl không biết khi nào đã vượt qua hoàn toàn bảng điều khiển. Hắn quỳ một gối trên mép ghế cô ấy, thân hình cao lớn đầy áp lực che phủ phía trên, chặn ánh nắng chói nhân loại ngoài cửa kính. Hắn dùng tay kia nhẹ nhàng nắm cằm cô ấy, ép cô ấy ngẩng đầu nhìn thẳng đôi mắt sâu không đáy gần trong gang tấc.
+
+"Ngài đang dùng tình cảm lãng mạn phong phú của nhân loại để ép làm đẹp quá khứ cực nhàm chán của ác ma, và dùng đó hành hạ chính mình."
+
+Giọng Karl cực thấp, thấp đến gần cộng hưởng trên màng nhĩ cô ấy. Hắn không những nhìn thấu sự im lặng của cô ấy, còn quyết định cực tàn nhẫn tự tay xé nát phẩm giá quá khứ của mình, chỉ để vuốt phẳng nếp nhăn cực nhỏ trong lòng cô ấy.
+
+"Muốn biết cháu và bà trước làm thế nào không?"
+
+Hắn không cho cô ấy cơ hội trốn, cực trắng trợn giơ cái gai cô ấy cực để ý nhưng không chịu hỏi ra, dùng từ ngữ cực lạnh cực khách quan phân giải hoàn toàn.
+
+"Không có nhiệt độ, không có màn dạo đầu, càng không có ghen tuông hay thương xót tình cảm. Với Y Lị Á đại nhân, cháu chỉ là 'đồ chơi silicon' thực dụng nghe hiểu chỉ thị. Khi nhu cầu sinh lý chủ nhân đạt ngưỡng, bà ra lệnh, cháu thực hiện chuyển động piston cực chuẩn."
+
+Karl nhìn đôi mắt cô ấy vì lời hắn hơi tròn, ngón cái quyến luyến xoa khóe môi cô ấy.
+
+"Trong vài thế kỷ dài ấy, thân thể cháu dù động nhưng hạt nhân chỉ là đám bóng tối cực lạnh thực thi nhiệm vụ. Cháu không bao giờ vì sự đòi hỏi của bà mà mất kiểm soát, không bao giờ khi phóng tinh cảm nhận run rẩy linh hồn. Đó chỉ là 'sử dụng' và 'bị sử dụng' nhàm chán đơn phương."
+
+Hắn hơi cúi đầu, trán thân mật chạm trán cô ấy, nhịp tim cực nguy hiểm của hắn trong không gian chung rõ ràng.
+
+"Nhưng ngài khác, Vãn Vãn."
+
+Karl áp trán cô ấy, sống mũi thẳng hơi mát thân mật cọ mũi cô ấy. Khi hắn nói, rung động ngực truyền qua khoảng cách áp sát cực rõ đến cô ấy. Đôi mắt giả trang nâu sẫm trong khoảng cách cực gần nhìn cô ấy, bên trong không có tính toán hay kiêu ngạo sứ ma cao giai, chỉ sự thành thật cực sâu đậm gần như tự bóc vỏ nghiền nát trước mặt cô ấy.
+
+"Ngài ban cho cháu những cảm xúc ấy."
+
+Hắn cực chậm thả kẹp đôi tay cô ấy, nhưng không lùi. Trái lại hắn quay tay trân trọng bọc bàn tay cô ấy, dẫn chúng ép mạnh nhưng dịu dàng lên ngực trái phủ áo sơ mi vest đắt tiền.
+
+"Thình thịch, thình thịch, thình thịch..."
+
+Qua lớp vải cô ấy cảm nhận chân thật rung động đó. Không phải nhịp tim ổn định của nhân loại, mà là nhịp cực nặng cực cuồng loạn, thậm chí gấp gáp không kìm được. Tần số này phá hoàn toàn vẻ hoàn mỹ dư sức hắn vẫn duy trì.
+
+"Trước mặt ngài, cháu không còn là đám bóng tối chỉ biết thực thi chỉ thị."
+
+Giọng Karl khàn đến không tưởng,
+
+"Cháu sẽ vì ngài nhìn người khác mà ghen tuông cực ti tiện; vì một câu từ chối của ngài mà hoảng sợ sâu trong linh hồn; trong hơi thở bao trùm của ngài cảm nhận cơn đói từ trong ra ngoài gần đốt cháy lý trí. Những thứ ấy..."
+
+Hắn cúi đầu, môi nhẹ nhàng in lên môi cô ấy. Đây không phải nụ hôn sâu mang màu sắc dục, mà là chạm gần như tín đồ hôn thần minh thành kính. Môi hắn hơi run, mang nhiệt độ thật của thân thể, từng chút phác họa đường môi cô ấy.
+
+"Những thứ ấy, Y Lị Á đại nhân và cả địa ngục mấy trăm năm chưa từng dạy cháu, chưa từng ban cho cháu."
+
+Một nụ hôn kết thúc, hắn cực chậm đứng thẳng, hơi kéo khoảng cách vật lý đầy áp lực. Khi hắn lùi, không khí mát lành tràn vào xe, cho não sắp sôi nghỉ ngơi. Không khí cực đặc quánh nặng nề vì bộc bạch ngày xưa sau nụ hôn thành kính ấy như sương sớm từ từ tan. Karl ngồi lại ghế da ghế lái, dù đã kéo khoảng cách xâm lược, đôi mắt nâu sẫm vẫn không rời cô ấy. Hắn không lập tức kết thúc đề tài, mà theo dư vị vừa rồi đặt bày toàn bộ lo lắng cuối trong lòng. Hắn nhìn khuôn mặt cô ấy còn ngạc nhiên và xúc động, giọng trầm vang cực ổn định trong không gian yên tĩnh.
+
+"Những trải nghiệm ấy tạo hình quá khứ cháu, ngài là chủ nhân hiện tại của cháu. Cháu không muốn vì ý riêng giấu ngài, nhưng..."
+
+Karl hơi dừng, ngón tay rõ xương cực tự nhiên đưa lên, vuốt sợi tóc mai hơi rối vì thân mật vừa rồi sang sau tai, đầu ngón vô ý chạm nhẹ vành tai khiến cô ấy run.
+
+"Nhưng cháu càng không hy vọng bụi cũ thuộc vài trăm năm trước, đáng lẽ bị bão không gian nghiền nát, làm bẩn dù một giây kỳ nghỉ của ngài trong thế giới này."
+
+Hắn cực quyết tuyệt vạch dấu chấm hết không đảo ngược cho hồ sơ Trung Cổ dài đằng đẵng.
+
+"Y Lị Á đại nhân cho cháu thân thể tồn tại, còn ngài..."
+
+Khóe miệng Karl cong nụ cười hoàn mỹ mang cảm giác tinh anh nhân loại nhưng chỉ dành cho cô ấy sự trung thành tuyệt đối,
+
+"Ngài cho cháu linh hồn tiếp tục tồn tại, thậm chí sinh ra 'tham lam' và 'ghen tuông'."
+
+Theo câu ấy rơi xuống, cảm giác mong manh của kẻ bị vứt bỏ và mặt tối ám ảnh bị thu lại hoàn toàn, gập lại, khóa trở lại chỗ sâu nhất tiềm thức. Thay vào là trợ lý cao giai quen thuộc của cô ấy trong Ảnh Hạng xử lý mọi rắc rối, và "Tổng Lạc" với vỏ quản lý cao tập đoàn xuyên quốc gia không thể chê trong thế giới phàm nhân.
+
+"Được rồi, buổi bộc bạch cực riêng tư nên đến đây, quản lý."
+
+Karl cực gọn gàng tháo dây an toàn, phát tiếng kim loại giòn. Hắn hơi nghiêng người, qua màng chống nhìn cửa kính nhìn quán cà phê cao cấp ven đường trang trí tinh tế tỏa hương cà phê pha tay nồng.
+
+"Nếu cháu nhớ không sai đồng hồ sinh lý nhân loại, dù ngài vừa ở nhà thưởng thức miếng dưa ngọt, não lực tiêu hao quá mức giờ vẫn cần đường và caffeine thật để bổ sung."
+
+Hắn cực lịch sự đẩy cửa xe, bước chân dài đi vòng đầu xe, dưới ánh nắng đầu thu cực tươi sáng cực chuẩn thanh nhã mở cửa phụ lái cho cô ấy. Vài người qua đường không nhịn đưa ánh nhìn kinh ngạc về người đàn ông lai khí chất cao quý. Hắn bỏ qua mọi ánh nhìn nhân loại, chỉ hơi cúi người, hướng cô ấy ngồi trong xe cực kính cẩn đưa bàn tay phải cân đối. Ở cổ tay, đồng hồ cơ đắt tiền phản chiếu ánh lạnh mê người.
+
+"Vậy thưa chủ nhân, giờ có thể cho phép trợ lý 'đồ cổ' cực khao khát hiểu văn minh hiện đại của ngài cùng ngài ở góc phố cực phồn hoa này thưởng thức một tách trà chiều nhân loại không mùi lưu huỳnh và hiến tế ác ma không?"
+
+Nhìn bàn tay hơi mát Karl đưa ra, cô ấy trong lòng thở dài, cảm giác chua chát siết tim như dây leo kỳ diệu tan biến. Phải, không còn gì để vướng bận. Quá khứ ấy quả nhiên tạo hình Karl hiện tại. Không có vài trăm năm lắng đọng mài dũa sẽ không có ác ma trợ lý vài tháng trước đứng trong phòng thuê cô ấy hỏi cô ấy có hứng thú vị trí quản lý quán bar. Hắn vừa để tránh sứt mẻ sau này đã chủ động kể hết, vì hắn quan tâm cảm nhận cô ấy, không muốn giấu cô ấy. Và hắn cũng không vì nịnh cô ấy là chủ nhân mới mà cố ý bôi đen hình tượng Y Lị Á, đó là tôn trọng chủ nhân cũ, cũng vì Y Lị Á là tổ tiên cô ấy. Để nịnh cô ấy đời mà vấy bẩn quá khứ, việc ấy với ác ma thành thật ám ảnh này hắn khinh và không muốn làm. Cô ấy nhìn kim giây đồng hồ cơ đắt tiền trên cổ tay hắn nhảy, nghĩ quá khứ dù từng đẹp đẽ ghen tị đến đâu cũng đã hai trăm năm. Hai trăm năm đủ dài để mọi ký ức tươi sống phong hóa thành cát. Cô ấy là con người phàm mệnh ngắn, cả đời có thể chưa đến chín mươi, trách móc quá khứ dài gấp đôi ba đời mệnh cô ấy của chủng dị loại có ý nghĩa gì? Karl giờ không khác gì hóa thạch sống cố thủ quán bar đổ nát chờ chủ nhân không về. Hắn như chó hoang cực trung thành bị thời gian bỏ rơi. Cô ấy thật sự muốn dùng quá khứ chắc chắn chôn trong dòng sông thời gian để làm khó con chó đã được cô ấy "nhặt về tổ" sao? Huống chi Y Lị Á đã không còn. Gạt ghen tị, lòng cô ấy giờ càng tò mò nữ vương Ảnh Hạng từng chấn địa ngục, tổ tiên huyền bí Y Lị Á, rốt cuộc là người thế nào. Nghĩ thông, vai cô ấy căng thẳng cuối cùng thả lỏng. Cô ấy không nói chuỗi tâm lý dài ấy với Karl, chỉ khóe miệng cong nụ cười thư giãn tươi sáng, cực thẳng thắn đặt tay mình lên lòng bàn tay rộng hơi mát của hắn. Karl nhạy bén đến mức nào. Khi đầu ngón cô ấy rơi vào lòng bàn tay hắn, hắn cực chuẩn đọc được sự tan biến hoàn toàn kháng cự trong cơ cô ấy. Đôi mắt nâu sẫm hắn nhanh lóe thoải mái, rồi hóa nụ cười cực dịu dàng thậm chí khó che vui. Hắn cực gọn gàng khép ngón tay, nắm chặt tay cô ấy.
+
+"Vậy chiều nay bài kiểm tra thanh toán của Tổng Lạc cực nghiêm khắc đấy."
 
 Cô ấy mượn lực hắn cực nhẹ bước xuống xe, giày cao gót đạp đường phẳng.
 
@@ -14732,45 +17154,173 @@ Cô ấy mượn lực hắn cực nhẹ bước xuống xe, giày cao gót đ�
 
 Karl cười nhẹ, giọng trầm đầy dung túng.
 
-"Vinh hạnh." Dòng người phố xá tấp nập. Khi Karl nắm tay cô ấy cực tự nhiên đẩy cánh cửa kính nặng quán cà phê cao cấp trang trí tinh tế, chuông đồng trên cửa kêu "đinh đong" giòn. Không khí quán vốn thư thái chảy nhạc jazz nhẹ dường như khi hai người bước vào trong nháy mắt dừng nửa giây. Nhân viên trẻ Tiểu Trần đứng sau quầy lau máy cà phê Ý vô ý ngẩng đầu. Là nhân viên kỳ cựu quán CBD cao cấp, Tiểu Trần tự nhận đã gặp vô số tinh anh đô thị giàu sang, nhưng khi ánh mắt rơi lên người đàn ông mặc vest xám bạc cao cấp vẫn không nhịn hít nhẹ. Người đàn ông ấy cực tuấn tú, nhưng tuấn tú ấy toát áp lực gần vực sâu. Điều khiến Tiểu Trần kinh ngạc là người trông khí trường đủ mua cả con phố ấy đang cẩn thận, dùng tư thế gần như bảo vệ đưa cô gái bên cạnh vào phía trong xa lối đi cửa. "Chào hai vị. Có đặt trước không?" Tiểu Trần nhanh tỉnh, đổi nụ cười phục vụ vô tỳ vết, nhanh bước đón.
+"Vinh hạnh."
 
-Nhưng khi đến gần Karl, cảm giác run rẩy bị thú săn đỉnh khóa vẫn khiến tay cầm bảng điểm đặt hơi đổ mồ hôi. Karl không nhìn nhân viên phàm nhân thường, toàn bộ chú ý cực chuyên chú vào cô ấy. "Có, chỗ C khu 03 cạnh cửa sổ." Cô ấy cực tự nhiên đáp, không nhận ra sự căng thẳng nhẹ của nhân viên, chỉ ngẩng đầu nhìn Karl, "Thuận tiện giúp hai phần soufflé đặc biệt vừa ra lò, cảm ơn." "Vâng thưa cô, hai vị mời đi lối này." Tiểu Trần cực kính cẩn dẫn đường. Karl cực tự nhiên hơi lùi nửa bước, che ghế khách bên cạnh kéo ra, rồi kéo ghế salon cạnh cửa sổ êm ái cho cô ấy, chờ cô ấy thư giãn ngồi xuống mới đi sang đối diện, cực thanh nhã ngồi xuống. Không còn mùi lưu huỳnh địa ngục, không còn tranh chấp khế ước huyết mạch. Ánh nắng xuyên cửa kính sạch rọi lên bàn gỗ nguyên giữa hai người. Karl cực yên lặng nhìn cô ấy lật thực đơn, đôi mắt giả trang nâu đầy sự quy thuộc chân thật "được nhận nuôi" và sự yên tĩnh.
+Dòng người phố xá tấp nập. Khi Karl nắm tay cô ấy cực tự nhiên đẩy cánh cửa kính nặng quán cà phê cao cấp trang trí tinh tế, chuông đồng trên cửa kêu "đinh đong" giòn. Không khí quán vốn thư thái chảy nhạc jazz nhẹ dường như khi hai người bước vào trong nháy mắt dừng nửa giây. Nhân viên trẻ Tiểu Trần đứng sau quầy lau máy cà phê Ý vô ý ngẩng đầu. Là nhân viên kỳ cựu quán CBD cao cấp, Tiểu Trần tự nhận đã gặp vô số tinh anh đô thị giàu sang, nhưng khi ánh mắt rơi lên người đàn ông mặc vest xám bạc cao cấp vẫn không nhịn hít nhẹ. Người đàn ông ấy cực tuấn tú, nhưng tuấn tú ấy toát áp lực gần vực sâu. Điều khiến Tiểu Trần kinh ngạc là người trông khí trường đủ mua cả con phố ấy đang cẩn thận, dùng tư thế gần như bảo vệ đưa cô gái bên cạnh vào phía trong xa lối đi cửa.
+
+"Chào hai vị. Có đặt trước không?"
+
+Tiểu Trần nhanh tỉnh, đổi nụ cười phục vụ vô tỳ vết, nhanh bước đón.
+
+Nhưng khi đến gần Karl, cảm giác run rẩy bị thú săn đỉnh khóa vẫn khiến tay cầm bảng điểm đặt hơi đổ mồ hôi. Karl không nhìn nhân viên phàm nhân thường, toàn bộ chú ý cực chuyên chú vào cô ấy.
+
+"Có, chỗ C khu 03 cạnh cửa sổ."
+
+Cô ấy cực tự nhiên đáp, không nhận ra sự căng thẳng nhẹ của nhân viên, chỉ ngẩng đầu nhìn Karl,
+
+"Thuận tiện giúp hai phần soufflé đặc biệt vừa ra lò, cảm ơn."
+
+"Vâng thưa cô, hai vị mời đi lối này."
+
+Tiểu Trần cực kính cẩn dẫn đường. Karl cực tự nhiên hơi lùi nửa bước, che ghế khách bên cạnh kéo ra, rồi kéo ghế salon cạnh cửa sổ êm ái cho cô ấy, chờ cô ấy thư giãn ngồi xuống mới đi sang đối diện, cực thanh nhã ngồi xuống. Không còn mùi lưu huỳnh địa ngục, không còn tranh chấp khế ước huyết mạch. Ánh nắng xuyên cửa kính sạch rọi lên bàn gỗ nguyên giữa hai người. Karl cực yên lặng nhìn cô ấy lật thực đơn, đôi mắt giả trang nâu đầy sự quy thuộc chân thật "được nhận nuôi" và sự yên tĩnh.
 
 ---
 
 ## Chương 85 – Hẹn Hò Buổi Chiều
 
-Cô ấy cực tự nhiên đẩy cuốn thực đơn bìa vàng nặng dọc bàn gỗ nguyên về phía Karl, một tay chống má, đáy mắt trong suốt lấp lánh nụ cười tinh quái. "Đừng chỉ nhìn em, mau xem thực đơn. Đồ cổ mấy trăm năm hầu như cách biệt thế gian này phải biết, nhân gian giờ so với Trung Cổ anh quen khác hẳn trời đất. Xem trong này có món anh hứng thú không? Không thể thật sự chỉ sống nhờ hút ma lực bóng tối chứ." Karl nhìn má cô ấy được ánh chiều chiếu hơi mờ mịt, cực dung túng cười nhẹ. Hắn thuận tòng đưa ngón tay thon hơi mát, mở cuốn thực đơn in hình cực tinh mỹ. Ánh mắt hắn quét những cái tên với hắn như công thức luyện kim cực phức tạp, "Geisha pha tay", "Macchiato muối biển caramel", "Phô mai Basque nặng". "Quả nhiên kinh ngạc." Karl hiếm hoi đưa đánh giá tích cực, đôi mắt nâu sẫm mang cảm giác đánh giá "loài quý hiếm", "Hồng y giáo hội xa xỉ nhất khi xưa cũng chỉ uống rượu đục lẫn vụn gia vị."
+Cô ấy cực tự nhiên đẩy cuốn thực đơn bìa vàng nặng dọc bàn gỗ nguyên về phía Karl, một tay chống má, đáy mắt trong suốt lấp lánh nụ cười tinh quái.
 
-Nhân loại giờ để thỏa khẩu vị cực nhỏ đã chiết xuất, rang, cô đặc hạt cây đến mức cực phức tạp." Đúng lúc ấy, nhân viên trẻ Tiểu Trần bưng khay bước tới, cực cẩn thận đặt hai phần soufflé đặc biệt vừa ra lò còn hơi rung, cùng hai cốc cà phê bốc khói trước mặt hai người. Hương bơ nồng và vị ngọt caramel trong nháy mắt tràn ngập mũi. Cô ấy cầm thìa bạc tinh xảo, xúc miếng soufflé cực bông mềm cho vào miệng, vị ngọt tan trong miệng khiến cô ấy cực thỏa mãn nheo mắt. "Biết đâu..." Cô ấy vừa nhai vừa radar thương nghiệp về kinh doanh quán bar địa ngục cực nhạy quay tít, "Chúng ta có thể tham khảo món trong thực đơn này, thêm vào thực đơn quán bar địa ngục!""
+"Đừng chỉ nhìn em, mau xem thực đơn. Đồ cổ mấy trăm năm hầu như cách biệt thế gian này phải biết, nhân gian giờ so với Trung Cổ anh quen khác hẳn trời đất. Xem trong này có món anh hứng thú không? Không thể thật sự chỉ sống nhờ hút ma lực bóng tối chứ."
+
+Karl nhìn má cô ấy được ánh chiều chiếu hơi mờ mịt, cực dung túng cười nhẹ. Hắn thuận tòng đưa ngón tay thon hơi mát, mở cuốn thực đơn in hình cực tinh mỹ. Ánh mắt hắn quét những cái tên với hắn như công thức luyện kim cực phức tạp,
+
+"Geisha pha tay"
+
+,
+
+"Macchiato muối biển caramel"
+
+,
+
+"Phô mai Basque nặng"
+
+.
+
+"Quả nhiên kinh ngạc."
+
+Karl hiếm hoi đưa đánh giá tích cực, đôi mắt nâu sẫm mang cảm giác đánh giá "loài quý hiếm",
+
+"Hồng y giáo hội xa xỉ nhất khi xưa cũng chỉ uống rượu đục lẫn vụn gia vị."
+
+Nhân loại giờ để thỏa khẩu vị cực nhỏ đã chiết xuất, rang, cô đặc hạt cây đến mức cực phức tạp.
+
+" Đúng lúc ấy, nhân viên trẻ Tiểu Trần bưng khay bước tới, cực cẩn thận đặt hai phần soufflé đặc biệt vừa ra lò còn hơi rung, cùng hai cốc cà phê bốc khói trước mặt hai người. Hương bơ nồng và vị ngọt caramel trong nháy mắt tràn ngập mũi. Cô ấy cầm thìa bạc tinh xảo, xúc miếng soufflé cực bông mềm cho vào miệng, vị ngọt tan trong miệng khiến cô ấy cực thỏa mãn nheo mắt. "
+
+Biết đâu...
+
+" Cô ấy vừa nhai vừa radar thương nghiệp về kinh doanh quán bar địa ngục cực nhạy quay tít, "
+
+Chúng ta có thể tham khảo món trong thực đơn này, thêm vào thực đơn quán bar địa ngục!""
 
 Cô ấy càng nghĩ càng thấy khả thi, mắt sáng nhìn Karl.
 
-"Tất nhiên phải bản cải biên thích hợp địa ngục. Khách chúng ta không ăn trứng thường. Nhưng mạng giờ phát triển, dù làm không giống nhà hàng cao cấp, em tra công thức bản thấp tương tự trên mạng vẫn rất đơn giản." Karl nâng cốc cà phê đen, cực thanh nhã nhấp. Vị đắng nhân loại mê đắm trên vị giác hắn tan cực nhạt. Hắn đặt cốc dài xuống, đầu ngón nhẹ gõ mặt bàn nhịp nhàng, trong nháy mắt chuyển không khe hở về chế độ trợ lý riêng vận trù trong Ảnh Hạng, giọng trầm mang logic cực chặt chẽ. "Làm bản cải biên thấp, kỹ thuật pha chế và phối món của Tú Cốt hoàn toàn đảm đương được."
+"Tất nhiên phải bản cải biên thích hợp địa ngục. Khách chúng ta không ăn trứng thường. Nhưng mạng giờ phát triển, dù làm không giống nhà hàng cao cấp, em tra công thức bản thấp tương tự trên mạng vẫn rất đơn giản."
+
+Karl nâng cốc cà phê đen, cực thanh nhã nhấp. Vị đắng nhân loại mê đắm trên vị giác hắn tan cực nhạt. Hắn đặt cốc dài xuống, đầu ngón nhẹ gõ mặt bàn nhịp nhàng, trong nháy mắt chuyển không khe hở về chế độ trợ lý riêng vận trù trong Ảnh Hạng, giọng trầm mang logic cực chặt chẽ.
+
+"Làm bản cải biên thấp, kỹ thuật pha chế và phối món của Tú Cốt hoàn toàn đảm đương được."
 
 Karl cực khách quan đánh giá lực lượng đại bản doanh.
 
-"Tú Cốt dù chỉ bộ xương tay cứng đờ, nhưng có chứng ám ảnh cưỡng bách đặc trưng linh hồn với tỷ lệ cực chính xác. Chỉ cần ngài cung cấp tham số cụ thể, hắn dùng bột xương ma tinh rẻ và sữa dê đá địa ngục có thể mô phỏng không sai chút... độ bông mềm ấy." Nói đến đây Karl hơi dừng, đôi mắt sâu lóe sáng tối khó nhận ra, nhưng nhanh bị lý tính cực đỉnh của hạ cấp che phủ. "Hơn nữa," Giọng hắn vẫn ổn định ôn nhu, cực tận tâm tính toán tài nguyên, "Vì 【Phi Sắc Quỷ Ảnh】 giờ không còn chướng ngại, vị Vi Ô Lai Khả cực biết nịnh ngài cũng đã mở kênh cung ứng riêng... Là đối tác và 'người theo đuổi' của ngài, hắn nắm tuyến gia vị tốt nhất Ảnh Hạng. Chúng ta hoàn toàn có thể 'lợi dụng' tài nguyên hắn chính đáng, tìm nguyên liệu thay thế rẻ và chất lượng cao cho thực đơn mới của ngài, tối đa hóa lợi nhuận." Karl nhìn cô ấy, khóe miệng cong nụ cười cực hoàn mỹ thuộc chấp sự ác ma. Hắn truyền đạt rõ ràng: Hắn chấp nhận mọi quyết định của cô ấy, gồm cả "tình nhân" khác cô ấy thu nạp trong địa ngục, và cực vui lòng biến những kẻ đực cố gắng tiếp cận cô ấy thành công cụ cực hữu dụng trên bản đồ thương nghiệp quán bar của cô ấy. "Chỉ cần là quyết định ngài muốn làm, ý chí ngài là hướng đi của chúng ta. Cháu cực mong được thấy công thức nhân gian của ngài gây chấn động địa ngục, quản lý." Ánh nắng xuyên cửa kính rọi thìa bạc tinh xảo trên tay cô ấy thành vệt sáng chói. Cô ấy cầm thìa dừng giữa không trung, nửa miếng soufflé tỏa hương ngọt. Cô ấy dùng đôi mắt đầy cười nhìn Karl ngồi đối diện ăn mặc chỉnh tề cực bình tĩnh. "Giờ anh đại độ rồi nhỉ Karl."
+"Tú Cốt dù chỉ bộ xương tay cứng đờ, nhưng có chứng ám ảnh cưỡng bách đặc trưng linh hồn với tỷ lệ cực chính xác. Chỉ cần ngài cung cấp tham số cụ thể, hắn dùng bột xương ma tinh rẻ và sữa dê đá địa ngục có thể mô phỏng không sai chút... Độ bông mềm ấy."
+
+Nói đến đây Karl hơi dừng, đôi mắt sâu lóe sáng tối khó nhận ra, nhưng nhanh bị lý tính cực đỉnh của hạ cấp che phủ.
+
+"Hơn nữa,"
+
+Giọng hắn vẫn ổn định ôn nhu, cực tận tâm tính toán tài nguyên,
+
+"Vì 【Phi Sắc Quỷ Ảnh】 giờ không còn chướng ngại, vị Vi Ô Lai Khả cực biết nịnh ngài cũng đã mở kênh cung ứng riêng... Là đối tác và 'người theo đuổi' của ngài, hắn nắm tuyến gia vị tốt nhất Ảnh Hạng. Chúng ta hoàn toàn có thể 'lợi dụng' tài nguyên hắn chính đáng, tìm nguyên liệu thay thế rẻ và chất lượng cao cho thực đơn mới của ngài, tối đa hóa lợi nhuận."
+
+Karl nhìn cô ấy, khóe miệng cong nụ cười cực hoàn mỹ thuộc chấp sự ác ma. Hắn truyền đạt rõ ràng: Hắn chấp nhận mọi quyết định của cô ấy, gồm cả "tình nhân" khác cô ấy thu nạp trong địa ngục, và cực vui lòng biến những kẻ đực cố gắng tiếp cận cô ấy thành công cụ cực hữu dụng trên bản đồ thương nghiệp quán bar của cô ấy.
+
+"Chỉ cần là quyết định ngài muốn làm, ý chí ngài là hướng đi của chúng ta. Cháu cực mong được thấy công thức nhân gian của ngài gây chấn động địa ngục, quản lý."
+
+Ánh nắng xuyên cửa kính rọi thìa bạc tinh xảo trên tay cô ấy thành vệt sáng chói. Cô ấy cầm thìa dừng giữa không trung, nửa miếng soufflé tỏa hương ngọt. Cô ấy dùng đôi mắt đầy cười nhìn Karl ngồi đối diện ăn mặc chỉnh tề cực bình tĩnh.
+
+"Giờ anh đại độ rồi nhỉ Karl."
 
 Cô ấy cố ý kéo dài thanh, giọng mang chút trêu chọc và thăm dò rõ ràng.
 
-"Trước Vi Ô Lai Khả tặng bó hồng cực phô trương đến cửa hàng, em nhớ gương mặt ai đó lạnh như có thể đóng băng sàn quán bar. Sao giờ dùng tiền và tuyến gia vị của hắn lại thuận tay thế?" Tay Karl cầm cốc cà phê cực ổn định, chất lỏng sẫm trong cốc không gợn sóng. Nhưng trong im lặng dài một giây, đáy đôi mắt giả trang nâu sẫm cực nhanh lướt bóng đen thuần đặc quánh thậm chí tàn nhẫn. Đó không phải tức giận với cô ấy, mà phản ứng bản năng của con đực lãnh địa bị xâm phạm khi nghe tên tình địch. Hắn cực chậm đặt cốc xuống đĩa sứ, phát tiếng "cạch" cực nhẹ. "Nguyên tắc của cháu không thay đổi, quản lý." Karl hơi nghiêng người, hai tay bắt chéo đặt lên mặt bàn gỗ. Trên gương mặt cực tuấn mỹ tiết dục hiện nụ cười cực lý trí nhưng cực lạnh lùng. "Cháu ghét cay ghét đắng vị ma tinh cực thích phô trương từ lần đầu hắn cố dùng hương ngọt ấy ô nhiễm không khí ngài chưa giảm nửa phần. Nếu được cháu cực vui lòng dùng cực hình bóng tối nghiền hắn xuống cống Ảnh Hạng." Giọng hắn cực ôn nhu, trong quán cà phê nhân loại đầy jazz nhẹ, dùng âm điệu cực thanh nhã nói lời cực đẫm máu. "Nhưng là trợ lý riêng của ngài,"
+"Trước Vi Ô Lai Khả tặng bó hồng cực phô trương đến cửa hàng, em nhớ gương mặt ai đó lạnh như có thể đóng băng sàn quán bar. Sao giờ dùng tiền và tuyến gia vị của hắn lại thuận tay thế?"
+
+Tay Karl cầm cốc cà phê cực ổn định, chất lỏng sẫm trong cốc không gợn sóng. Nhưng trong im lặng dài một giây, đáy đôi mắt giả trang nâu sẫm cực nhanh lướt bóng đen thuần đặc quánh thậm chí tàn nhẫn. Đó không phải tức giận với cô ấy, mà phản ứng bản năng của con đực lãnh địa bị xâm phạm khi nghe tên tình địch. Hắn cực chậm đặt cốc xuống đĩa sứ, phát tiếng "cạch" cực nhẹ.
+
+"Nguyên tắc của cháu không thay đổi, quản lý."
+
+Karl hơi nghiêng người, hai tay bắt chéo đặt lên mặt bàn gỗ. Trên gương mặt cực tuấn mỹ tiết dục hiện nụ cười cực lý trí nhưng cực lạnh lùng.
+
+"Cháu ghét cay ghét đắng vị ma tinh cực thích phô trương từ lần đầu hắn cố dùng hương ngọt ấy ô nhiễm không khí ngài chưa giảm nửa phần. Nếu được cháu cực vui lòng dùng cực hình bóng tối nghiền hắn xuống cống Ảnh Hạng."
+
+Giọng hắn cực ôn nhu, trong quán cà phê nhân loại đầy jazz nhẹ, dùng âm điệu cực thanh nhã nói lời cực đẫm máu.
+
+"Nhưng là trợ lý riêng của ngài,"
 
 Karl chuyển giọng cực tự nhiên, ánh mắt lộ tính toán thương nghiệp cực chặt chẽ.
 
-"Cháu phải đặt lợi ích ngài, tức 【Huyết Hồng Thánh Bôi】, lên trên cảm xúc cá nhân cháu. Vị ma tinh mù quáng tự tin ấy sẵn lòng đem chuỗi cung ứng quý giá làm mã thương lượng nịnh ngài, vậy tàn nhẫn vắt kiệt mọi giá trị còn lại, biến tài nguyên hắn hoàn toàn thành bậc thang thăng tiến của ngài, mới là cách cháu phục vụ ngài hiệu quả nhất." Karl chậm đưa ngón tay, cực nhẹ đẩy đĩa tráng miệng trước mặt cô ấy, sự chiếm hữu trong đáy mắt bị thế thắng lợi cực kiêu ngạo thay thế. "Dùng tiền hắn mở rộng bản đồ ngài. Để hắn phục vụ sự nghiệp ngài. Mà cuối cùng..." Giọng Karl hạ cực thấp, mang sự mê hoặc chí mạng và độc chiếm, "Ngồi bên quê hương nhân gian, chia sẻ buổi trà chiều yên tĩnh với ngài, có được mặt thật nhất bí mật nhất của ngài, vẫn chỉ có cháu. Sự bóc lột và tiêu chuẩn kép cực đỉnh từ linh hồn đến tài nguyên ấy, ngài không thấy khiến cháu vui hơn giết chóc đơn thuần sao?"
+"Cháu phải đặt lợi ích ngài, tức 【Huyết Hồng Thánh Bôi】, lên trên cảm xúc cá nhân cháu. Vị ma tinh mù quáng tự tin ấy sẵn lòng đem chuỗi cung ứng quý giá làm mã thương lượng nịnh ngài, vậy tàn nhẫn vắt kiệt mọi giá trị còn lại, biến tài nguyên hắn hoàn toàn thành bậc thang thăng tiến của ngài, mới là cách cháu phục vụ ngài hiệu quả nhất."
 
-Nhìn Karl dùng giọng lý trí phân tích cách bóc lột tình nhân khác của cô ấy, cô ấy không nhịn được cười khẽ. Chút căng thẳng vì chuyện cũ và hậu cung tiêu tan trong tiếng cười. Cô ấy cực thư giãn lắc đầu, đáy mắt đầy sự dung túng với ác ma tự mình đặt logic khép kín. Cô ấy chủ động đặt dấu chấm cho chút căng thẳng vì Vi Ô Lai Khả. "Được rồi được rồi, vị trợ lý." Cô ấy lại cầm thìa bạc nhỏ, xúc miếng soufflé nướng vàng bông trên đĩa, còn dính lớp đường caramel. Cô ấy vượt đường trung tuyến bàn đưa thìa đến môi hắn. "Hôm nay chúng ta đi hẹn hò, tạm không nhắc hắn, chán lắm. Anh cũng đừng chỉ uống cà phê đắng, thử soufflé này xem. Em thấy khá ngon. Thật ra trước em dù có lương cũng lười ra ngoài, huống chi đến nhà hàng cao cấp ăn trà chiều. Anh chỉ ngồi uống cà phê với em chẳng tiếc lắm sao?" Khoảng cách với chiếc bánh ngọt nhân loại chưa đầy một tấc.
+Karl chậm đưa ngón tay, cực nhẹ đẩy đĩa tráng miệng trước mặt cô ấy, sự chiếm hữu trong đáy mắt bị thế thắng lợi cực kiêu ngạo thay thế.
 
-Karl cúi mắt, ánh nhìn từ carbohydrate polymer vô giá trị dinh dưỡng quét qua, cuối cùng dừng trên mặt cô ấy. Băng giá và kiêu ngạo sứ ma trong đáy mắt hắn dưới lời than phiền đầy hơi sống và sự chủ động cho ăn của cô ấy như tuyết đông bị nước ấm làm tan, nhanh tiêu tan. Thay vào là sự mềm mại và chuyên chú sâu không đáy. Hắn không chút do dự, hơi nghiêng người, thuận tòng há môi mỏng, ngậm miếng soufflé cô ấy đưa vào. Môi hơi mát khi rời khẽ chạm mép thìa bạc. Bánh mềm tan trong miệng, vị đường hơi ngọt sắc chiếm vị giác. Với sứ ma quen hơi lạnh bóng tối và linh hồn, đường nhân loại ấy thực ra quá ngọt. Nhưng động tác nhai của hắn cực chậm và nghiêm túc, như đang nếm cống phẩm quý. Sau khi nuốt, Karl lấy khăn trắng bên cạnh thanh nhã lau khóe môi. "Quả nhiên rất ngọt." Đôi mắt nâu sẫm dấy sóng dịu dàng, giọng mang chút lười biếng ấm áp, "Vì là mệnh lệnh của ngài, cháu tự nhiên không nhắc những người không liên quan nữa."
+"Dùng tiền hắn mở rộng bản đồ ngài. Để hắn phục vụ sự nghiệp ngài. Mà cuối cùng..."
 
-Chiều nay não và tầm nhìn cháu chỉ phục vụ một mình ngài." Hắn đặt khăn xuống, ánh nhìn sâu thẳm nhìn cô ấy, trang trọng đón câu cảm thán tùy ý của cô ấy. "Còn em nói tiếc..." Karl đưa tay, qua mặt bàn nhẹ phủ lên mu bàn tay cô ấy cầm thìa, ngón cái dịu dàng xoa đốt ngón, "Trước chưa trải nghiệm không sao. Từ hôm nay, chỉ cần nơi em hứng thú, dù nhà hàng cao cấp phải xếp hàng nhân gian hay vực sâu địa ngục chưa khám phá sau này, chỉ cần em đưa tay, cháu sẽ mở cánh cửa cho em." Hắn hạ giọng, trong không gian nhân loại đầy hương cà phê, đưa lời hứa nặng của sứ ma cao giai. "Em không cần cảm thấy tiếc, vì thế giới em xứng đáng có tất cả tốt nhất." Ánh nắng ngoài cửa có vẻ tươi hơn. Lần này không khí quán thực sự nhẹ nhàng và tràn đầy lãng mạn khó nói. Không công việc, không tranh giành, chỉ món tráng miệng vừa phải và đôi mắt cô ấy chỉ có anh."
+Giọng Karl hạ cực thấp, mang sự mê hoặc chí mạng và độc chiếm,
 
-Thời gian quán cà phê vui vẻ đầy đường ngắn ngủi mà đẹp. Vì trưa đã ăn no ở nhà, hai phần soufflé chia nhau xong bụng không còn chỗ. Khi thanh toán Karl cực tự nhiên trả tiền. Cô ấy không hỏi chi tiết hắn xử lý đổi tiền địa ngục và nhân gian, hắn là trợ lý sứ ma đỉnh địa ngục, những chuyện nhỏ chỉ cần tin hắn. Chỉ khi thấy tiền hắn đổi thật sự dùng được cô ấy mới thở phào. Ra khỏi quán cà phê, hai người chuyển sang Quảng trường Hằng Long sầm uất nhất trung tâm. Trung tâm mua sắm điều hòa mát tràn hương đắt tiền. Vì lần về nhân gian này hoàn toàn không cần lo tiền bạc, cô ấy gần như lập tức nhớ chiếc váy lụa hoa thủ công thuần túy từng rất thích khi mới tốt nghiệp nhưng vì giá năm chữ số đứng ngoài tủ kính xem mấy lần rồi bỏ qua. Cô ấy kéo Karl vào cửa hàng thời trang cao cấp. Chiếc váy vẫn treo yên ở khu VIP nổi bật. "Chào cô, cô mắt tinh quá, đây là..."
+"Ngồi bên quê hương nhân gian, chia sẻ buổi trà chiều yên tĩnh với ngài, có được mặt thật nhất bí mật nhất của ngài, vẫn chỉ có cháu. Sự bóc lột và tiêu chuẩn kép cực đỉnh từ linh hồn đến tài nguyên ấy, ngài không thấy khiến cháu vui hơn giết chóc đơn thuần sao?"
 
-Nhân viên nhiệt tình đón, nhưng khi thấy người đàn ông lai cực cao ráo khí trường kinh người phía sau cô ấy, giọng vô ý nhỏ xuống. "Em muốn thử chiếc váy đó, phiền chị." Cô ấy cười chỉ váy, nói số đo cho nhân viên. Vài phút sau nhân viên lấy váy xuống. Cô ấy cầm chiếc váy lụa nhẹ bước vào phòng thử đồ rộng rãi. Phòng thử đồ rộng, đèn mềm toàn diện chiếu từng đường nét cơ thể. Ba mặt gương cao sàn bao quanh tạo ảo giác không cùng. Cô ấy đứng trước gương, vừa cởi áo sơ mi khoác lên ghế nhung, sắp mở khóa áo lót để thay chiếc váy lụa hoa thủ công giá năm chữ số. Không khí tỏa hương đắt tiền nhạt. Đúng lúc ấy, ngoài cửa vọng tiếng nói chuyện. "Cô có thể đi bận việc khác rồi." Là giọng Karl. Hắn dùng giọng ôn nhoã nhưng không thể nghi ngờ, lịch sự đuổi người đi, "Cô ấy tôi khi thay đồ không thích người ngoài quấy rầy."
+Nhìn Karl dùng giọng lý trí phân tích cách bóc lột tình nhân khác của cô ấy, cô ấy không nhịn được cười khẽ. Chút căng thẳng vì chuyện cũ và hậu cung tiêu tan trong tiếng cười. Cô ấy cực thư giãn lắc đầu, đáy mắt đầy sự dung túng với ác ma tự mình đặt logic khép kín. Cô ấy chủ động đặt dấu chấm cho chút căng thẳng vì Vi Ô Lai Khả.
 
-Và tôi thấy tủ trưng bày kia có mấy đôi giày gót satin, phiền cô vào kho lấy vài size phù hợp ra dự phòng. Không vội, cứ chọn từ từ." "... Vâng thưa anh, cần gì gọi em." Tiếng chân nhân viên dần xa."
+"Được rồi được rồi, vị trợ lý."
+
+Cô ấy lại cầm thìa bạc nhỏ, xúc miếng soufflé nướng vàng bông trên đĩa, còn dính lớp đường caramel. Cô ấy vượt đường trung tuyến bàn đưa thìa đến môi hắn.
+
+"Hôm nay chúng ta đi hẹn hò, tạm không nhắc hắn, chán lắm. Anh cũng đừng chỉ uống cà phê đắng, thử soufflé này xem. Em thấy khá ngon. Thật ra trước em dù có lương cũng lười ra ngoài, huống chi đến nhà hàng cao cấp ăn trà chiều. Anh chỉ ngồi uống cà phê với em chẳng tiếc lắm sao?"
+
+Khoảng cách với chiếc bánh ngọt nhân loại chưa đầy một tấc.
+
+Karl cúi mắt, ánh nhìn từ carbohydrate polymer vô giá trị dinh dưỡng quét qua, cuối cùng dừng trên mặt cô ấy. Băng giá và kiêu ngạo sứ ma trong đáy mắt hắn dưới lời than phiền đầy hơi sống và sự chủ động cho ăn của cô ấy như tuyết đông bị nước ấm làm tan, nhanh tiêu tan. Thay vào là sự mềm mại và chuyên chú sâu không đáy. Hắn không chút do dự, hơi nghiêng người, thuận tòng há môi mỏng, ngậm miếng soufflé cô ấy đưa vào. Môi hơi mát khi rời khẽ chạm mép thìa bạc. Bánh mềm tan trong miệng, vị đường hơi ngọt sắc chiếm vị giác. Với sứ ma quen hơi lạnh bóng tối và linh hồn, đường nhân loại ấy thực ra quá ngọt. Nhưng động tác nhai của hắn cực chậm và nghiêm túc, như đang nếm cống phẩm quý. Sau khi nuốt, Karl lấy khăn trắng bên cạnh thanh nhã lau khóe môi.
+
+"Quả nhiên rất ngọt."
+
+Đôi mắt nâu sẫm dấy sóng dịu dàng, giọng mang chút lười biếng ấm áp,
+
+"Vì là mệnh lệnh của ngài, cháu tự nhiên không nhắc những người không liên quan nữa."
+
+Chiều nay não và tầm nhìn cháu chỉ phục vụ một mình ngài.
+
+" Hắn đặt khăn xuống, ánh nhìn sâu thẳm nhìn cô ấy, trang trọng đón câu cảm thán tùy ý của cô ấy. "
+
+Còn em nói tiếc...
+
+" Karl đưa tay, qua mặt bàn nhẹ phủ lên mu bàn tay cô ấy cầm thìa, ngón cái dịu dàng xoa đốt ngón, "
+
+Trước chưa trải nghiệm không sao. Từ hôm nay, chỉ cần nơi em hứng thú, dù nhà hàng cao cấp phải xếp hàng nhân gian hay vực sâu địa ngục chưa khám phá sau này, chỉ cần em đưa tay, cháu sẽ mở cánh cửa cho em.
+
+" Hắn hạ giọng, trong không gian nhân loại đầy hương cà phê, đưa lời hứa nặng của sứ ma cao giai. "
+
+Em không cần cảm thấy tiếc, vì thế giới em xứng đáng có tất cả tốt nhất.
+
+" Ánh nắng ngoài cửa có vẻ tươi hơn. Lần này không khí quán thực sự nhẹ nhàng và tràn đầy lãng mạn khó nói. Không công việc, không tranh giành, chỉ món tráng miệng vừa phải và đôi mắt cô ấy chỉ có anh."
+
+Thời gian quán cà phê vui vẻ đầy đường ngắn ngủi mà đẹp. Vì trưa đã ăn no ở nhà, hai phần soufflé chia nhau xong bụng không còn chỗ. Khi thanh toán Karl cực tự nhiên trả tiền. Cô ấy không hỏi chi tiết hắn xử lý đổi tiền địa ngục và nhân gian, hắn là trợ lý sứ ma đỉnh địa ngục, những chuyện nhỏ chỉ cần tin hắn. Chỉ khi thấy tiền hắn đổi thật sự dùng được cô ấy mới thở phào. Ra khỏi quán cà phê, hai người chuyển sang Quảng trường Hằng Long sầm uất nhất trung tâm. Trung tâm mua sắm điều hòa mát tràn hương đắt tiền. Vì lần về nhân gian này hoàn toàn không cần lo tiền bạc, cô ấy gần như lập tức nhớ chiếc váy lụa hoa thủ công thuần túy từng rất thích khi mới tốt nghiệp nhưng vì giá năm chữ số đứng ngoài tủ kính xem mấy lần rồi bỏ qua. Cô ấy kéo Karl vào cửa hàng thời trang cao cấp. Chiếc váy vẫn treo yên ở khu VIP nổi bật.
+
+"Chào cô, cô mắt tinh quá, đây là..."
+
+Nhân viên nhiệt tình đón, nhưng khi thấy người đàn ông lai cực cao ráo khí trường kinh người phía sau cô ấy, giọng vô ý nhỏ xuống.
+
+"Em muốn thử chiếc váy đó, phiền chị."
+
+Cô ấy cười chỉ váy, nói số đo cho nhân viên. Vài phút sau nhân viên lấy váy xuống. Cô ấy cầm chiếc váy lụa nhẹ bước vào phòng thử đồ rộng rãi. Phòng thử đồ rộng, đèn mềm toàn diện chiếu từng đường nét cơ thể. Ba mặt gương cao sàn bao quanh tạo ảo giác không cùng. Cô ấy đứng trước gương, vừa cởi áo sơ mi khoác lên ghế nhung, sắp mở khóa áo lót để thay chiếc váy lụa hoa thủ công giá năm chữ số. Không khí tỏa hương đắt tiền nhạt. Đúng lúc ấy, ngoài cửa vọng tiếng nói chuyện.
+
+"Cô có thể đi bận việc khác rồi."
+
+Là giọng Karl. Hắn dùng giọng ôn nhoã nhưng không thể nghi ngờ, lịch sự đuổi người đi,
+
+"Cô ấy tôi khi thay đồ không thích người ngoài quấy rầy."
+
+Và tôi thấy tủ trưng bày kia có mấy đôi giày gót satin, phiền cô vào kho lấy vài size phù hợp ra dự phòng. Không vội, cứ chọn từ từ." "... Vâng thưa anh, cần gì gọi em.
+
+" Tiếng chân nhân viên dần xa."
 
 ---
 
@@ -15208,7 +17758,9 @@ Sáng hôm sau, ánh nắng xuyên khe rèm rọi lên mặt cô ấy.
 
 Cô ấy thoải mái vươn vai, ngồi dậy. Cả đêm không ác mộng, thể lực và tinh lực của cô ấy đã ở trạng thái thư giãn cực độ này hoàn toàn phục hồi đỉnh điểm.
 
-Cầm điện thoại trên đầu giường, cô ấy thấy thông báo tin WeChat avatar đen, Karl gửi "Chào buổi sáng."
+Cầm điện thoại trên đầu giường, cô ấy thấy thông báo tin WeChat avatar đen, Karl gửi
+
+"Chào buổi sáng."
 
 Đây là ngày nghỉ thứ hai của cô ấy.
 
@@ -15268,7 +17820,11 @@ Karl đứng trước cửa kính cao sàn khổng lồ, bình minh dát lớp v
 
 Màn hình điện thoại sáng, hắn cúi mắt cực nghiêm túc đọc đoạn văn dài cô ấy gửi. Khi thấy câu "không cần cứ bên em", đốt ngón dài của hắn hơi dừng lại.
 
-Với sứ ma được tạo ra, "kỳ nghỉ" và "sở thích cá nhân" là hai từ cực xa lạ. Trong sinh mệnh trải mấy thế kỷ của hắn, chưa từng có thời gian cá nhân, sự tồn tại của hắn bản thân là để phục vụ và thi hành.
+Với sứ ma được tạo ra,
+
+"Kỳ nghỉ"
+
+Và "sở thích cá nhân" là hai từ cực xa lạ. Trong sinh mệnh trải mấy thế kỷ của hắn, chưa từng có thời gian cá nhân, sự tồn tại của hắn bản thân là để phục vụ và thi hành.
 
 Nhưng vì đây là "mệnh lệnh" chủ nhân đưa ra, hơn nữa là "tự do" ban cho với tư cách cô ấy đời.
 
@@ -15312,7 +17868,11 @@ Cùng lúc, trung tâm triển lãm nghệ thuật hiện đại trung tâm thà
 
 Phòng triển lãm đặc biệt cuối tuần đông nghịt. Karl mặc áo khoác đen sẫm cắt may tinh tế, hai tay cắp túi, dáng thẳng đứng trước bức tranh trừu tượng khổng lồ tên 《Sự Xé Rách Linh Hồn》 được nhiều người vây quanh.
 
-Vài sinh viên khoa nghệ thuật bên cạnh đang bàn luận về các mảng đỏ đen hỗn loạn trên tranh, dùng từ ngữ hoa mỹ khen ngợi biểu đạt tuyệt diệu của tác giả về "nỗi đau sâu thẳm nhân tính".
+Vài sinh viên khoa nghệ thuật bên cạnh đang bàn luận về các mảng đỏ đen hỗn loạn trên tranh, dùng từ ngữ hoa mỹ khen ngợi biểu đạt tuyệt diệu của tác giả về
+
+"Nỗi đau sâu thẳm nhân tính"
+
+.
 
 Đôi mắt giả trang nâu sẫm của Karl lại lộ vẻ hứng thú không gợn sóng. Là sứ ma cao giai từng chứng kiến máy xay linh hồn thật sự tầng sâu địa ngục, mục kích thủ đoạn của thất tội quân chủ, sự hỗn loạn trong tranh ấy với hắn như nét vẽ nguệch ngoạc trẻ con không đáng một xu.
 
@@ -15322,7 +17882,11 @@ Người đàn ông trung niên đeo thẻ giám đốc nghệ thuật chú ý k
 
 Karl hơi nghiêng đầu, trên gương mặt tuấn mỹ hiện nụ cười xã giao hoàn mỹ. Hắn thậm chí không dùng bất kỳ ma lực vực sâu nào, chỉ dựa thẩm mỹ nghệ thuật cổ điển tích lũy qua mấy thế kỷ và sự khống chế tâm lý nhân loại tuyệt hảo, trong mười phút dùng bình phẩm cực chính xác cay độc khiến vị giám đốc nghệ thuật kiêu ngạo ấy coi hắn là tri kỷ.
 
-Khi hắn bước ra khỏi phòng triển lãm, trong túi trong áo khoác đã thêm hai tấm "chứng nhận hướng dẫn riêng VVIP" vốn không phát hành.
+Khi hắn bước ra khỏi phòng triển lãm, trong túi trong áo khoác đã thêm hai tấm
+
+"Chứng nhận hướng dẫn riêng VVIP"
+
+Vốn không phát hành.
 
 Hắn không định để đám đông ồn ào chen chúc ảnh hưởng trải nghiệm thưởng triển của quản lý quý giá ngày mai.
 
@@ -15350,7 +17914,7 @@ Hắn cả ngày ở ngoài. Dù tin WeChat ngắn gọn nói để hắn "làm 
 
 Hắn sẽ tưởng tượng cô ấy đang làm gì trong nhà bếp cũ, ngồi với gia đình quan tâm cô ấy trên chiếc sofa cực chật xem phim tình cảm sướt mướt có vui không. Hắn khao khát ngay lập tức gặp cô ấy, khao khát dùng sức ôm chặt cô ấy, nhưng vì hôm nay cô ấy chỉ muốn ở với gia đình, hắn, "sếp" đã rời sân khấu trong kịch bản hiện tại, tuyệt đối sẽ không xuất hiện cực vô duyêntỏ sự tồn tại.
 
-Nhưng...... hắn thật sự, nhớ cô ấy.
+Nhưng...... Hắn thật sự, nhớ cô ấy.
 
 Nỗi quyến luyến và khao khát mãnh liệt thuộc sứ ma vực sâu ấy, trong đêm tĩnh lặng được phóng đại vô hạn.
 
@@ -15372,7 +17936,7 @@ Cô ấy cắn môi dưới, nhanh chóng gõ bàn phím, không chút do dự p
 
 Gửi xong, cô ấy nhìn dòng "Đang nhập..."
 
-nhấp nháy trên đầu màn hình, đột nhiên không hài lòng với giao tiếp văn bản lạnh lẽo này. Cô ấy quả quyết gửi thêm.
+Nhấp nháy trên đầu màn hình, đột nhiên không hài lòng với giao tiếp văn bản lạnh lẽo này. Cô ấy quả quyết gửi thêm.
 
 "Anh có muốn video không?"
 
@@ -15402,7 +17966,7 @@ Yết hầu hắn trên màn hình dữ dội lên xuống. Trong suite chỉ c�
 
 Karl đột nhiên đưa điện thoại gần hơn. Gương mặt cực gây shock ấy trong nháy mắt phóng đại gấp bội.
 
-"Vì đêm nay cháu không thể trên giường ngài dùng sức ôm chặt ngài. Giọng hắn trở nên trầm khàn, mang ma lực không thể kháng cự, Vậy ngài có thể...... cho cháu cẩn thận xem ngài nhớ cháu thế nào không?"
+"Vì đêm nay cháu không thể trên giường ngài dùng sức ôm chặt ngài. Giọng hắn trở nên trầm khàn, mang ma lực không thể kháng cự, Vậy ngài có thể...... Cho cháu cẩn thận xem ngài nhớ cháu thế nào không?"
 
 Kèm theo lời lộ liễu ấy, trong video cô ấy nghe rõ tiếng khóa kim loại thắt lưng bị tháo thô bạo "cạch".
 
@@ -15524,7 +18088,7 @@ Bên kia màn hình, động tácvuốt ve thân thịt của Karl trong nháy m
 
 "Đét! Đét! Đét! Tiếng bàn tay đập túi và thân thô qua loa cực rõ gõ vào màng nhĩ. Cây hung khí cực đáng sợ dưới sự ngược đãi của chủ nhân sung huyết đến mức kinh hãi, dịch tuyến tiền liệt đầu tiết ra thậm chí văng lên mép ống kính khi lắc mạnh."
 
-"Vãn Vãn, em thật...... lấy mạng cháu."
+"Vãn Vãn, em thật...... Lấy mạng cháu."
 
 Giọng Karl khàn đáng sợ, như thú dữ bò lên từ vực sâu cực sâu gầm. Hắn thở nặng, đôi mắt như xuyên màn hình đinh chặt gương mặt đỏ ửng của cô ấy.
 
@@ -15624,7 +18188,11 @@ Cô ấy vui vẻ nhận vé, xem kỹ thời gian địa điểm, vì miễn ph
 
 Ở chiều không gian bên kia, sâu Ảnh Hạng. Trong bể tắm toàn cảnh tầng trên 【Phi Sắc Quỷ Ảnh】, Vi Ô Lai Khả lười biếng dựa mép bể tắm đá obsidian, đôi cánh mỏng bán trong suốt từ từ duỗi trong nước nóng đầy tinh hoa ma lực.
 
-Một sứ ma bóng tối hạ giai hình dạng vặn vẹo đang quỳ bên ngoài bể, run rẩy báo cáo phản hồi của "Mạng giám sát đô thị nhân loại".
+Một sứ ma bóng tối hạ giai hình dạng vặn vẹo đang quỳ bên ngoài bể, run rẩy báo cáo phản hồi của
+
+"Mạng giám sát đô thị nhân loại"
+
+.
 
 "Không có ma lực chạm vào...... Vi Ô Lai Khả vờn ngọn lửa ma hồng nhảy trên đầu ngón, đồng tử vàng đầy vẻ vui thích khiến người rùng mình, Đúng rồi. Muốn dễ dàng tránh cảnh giác của sứ ma bóng tối cao giai kia, cách duy nhất là, tuyệt đối không dùng bất kỳ thủ đoạn nào thuộc địa ngục."
 
@@ -15664,7 +18232,11 @@ Vi Ô Lai Khả ngón dài nhẹ cài khuy tay áo lam ngọc không phù phép,
 
 "Bữa tiệc xã giao thuần nhân loại không ma lực...... Hắn nhìn bản thân trong gương, khóe miệng cong góc đầy trêu chọc và nguy hiểm."
 
-Vì sứ ma chó mất nhà hộ chủ trong Ảnh Hạng phòng thủ thành phố nhân loại chặt như thùng sắt, nhạy với mọi dao động ma lực. Vậy hắn bỏ hết ma pháp, lấy thân phận "nhà tài trợ nhân loại có tiền có rảnh tình cờ đi nghe hòa nhạc" đi dự cuộc "ngẫu nhiên" đã bị hắn mua sẵn.
+Vì sứ ma chó mất nhà hộ chủ trong Ảnh Hạng phòng thủ thành phố nhân loại chặt như thùng sắt, nhạy với mọi dao động ma lực. Vậy hắn bỏ hết ma pháp, lấy thân phận
+
+"Nhà tài trợ nhân loại có tiền có rảnh tình cờ đi nghe hòa nhạc"
+
+Đi dự cuộc "ngẫu nhiên" đã bị hắn mua sẵn.
 
 "Chuẩn bị đón bất ngờ của em đi, quản lý tiểu thư thân yêu của ta."
 
@@ -15690,7 +18262,7 @@ Cô ấy hơi trợn mắt, che giấu kinh ngạc, ánh nhìn lại rơi lên c
 
 Nghe Karl bổ sung kiến thức, trong đầu cô ấy thoáng hiện những nhân viên đầy phong tình Ảnh Hạng, cùng ông chủ 【Phi Sắc Quỷ Ảnh】 luôn mang nụ cười nguy hiểm.
 
-Cô ấy không nhịn được thầm nghĩ: Ma tinh hoang dã không biết từ đâu trên sân khấu còn gây cuồng nhiệt thế, nếu để Vi Ô Lai Khả, ma tinh cao giai toàn thân tỏa sắc thuần túy và khống chế, lên nhân gian làm diễn viên ngôi sao...... với sức quyến rũ bất khả nhất thế ấy, nếu mình không đi địa ngục làm quản lý mà chỉ là công nhân bình thường, có lẽ cũng không kháng cự trở fan cuồng nhiệt nhất của hắn.
+Cô ấy không nhịn được thầm nghĩ: Ma tinh hoang dã không biết từ đâu trên sân khấu còn gây cuồng nhiệt thế, nếu để Vi Ô Lai Khả, ma tinh cao giai toàn thân tỏa sắc thuần túy và khống chế, lên nhân gian làm diễn viên ngôi sao...... Với sức quyến rũ bất khả nhất thế ấy, nếu mình không đi địa ngục làm quản lý mà chỉ là công nhân bình thường, có lẽ cũng không kháng cự trở fan cuồng nhiệt nhất của hắn.
 
 Nhưng ý nghĩ ấy chỉ quay nửa vòng trong đầu đã bị cô ấy thông minh bóp tắt.
 
@@ -15738,7 +18310,7 @@ Trong sự chuyên chú của hắn, cô ấy thu điện thoại, thuận thế
 
 Nghe lời cô ấy, ma tinh chủ soạn vốn giữ quản lý biểu cảm hoàn mỹ lập tức sững. Đôi mắt xanh nhạt đầy kinh ngạc không che, ánh nhìn quét qua cô ấy vài lượt.
 
-"Một...... con người thuần túy? Làm quản lý ở Ảnh Hạng? Hắn không tin nổi lẩm bẩm, rồi như ý thức thất thái, vội thu biểu cảm, nhưng sự kinh ngạc trong giọng vẫn nồng, Quả là chuyện...... chưa từng nghe. Em vốn tưởng ngài chỉ là cô ấy đời nhân loại được sứ ma cao giai kia yêu chiều."
+"Một...... Con người thuần túy? Làm quản lý ở Ảnh Hạng? Hắn không tin nổi lẩm bẩm, rồi như ý thức thất thái, vội thu biểu cảm, nhưng sự kinh ngạc trong giọng vẫn nồng, Quả là chuyện...... Chưa từng nghe. Em vốn tưởng ngài chỉ là cô ấy đời nhân loại được sứ ma cao giai kia yêu chiều."
 
 Karl đứng sau cô ấy nửa bước, hai tay cắp túi áo khoác. Hắn không nói, chỉ dùng ánh nhìn cực lạnh mang ý cảnh báo xem xét đường nét mặt ma tinh, xác tín đối phương không có ý vượt giới.
 
@@ -15884,7 +18456,15 @@ Hành động này đầy sự chiếm hữu và thân mật kinh ngạc, là s�
 
 Lời này gần như đọc nguyên văn mọi sự giằng xé trong lòng cô ấy vừa rồi. Nhìn sự hoảng hốt lướt qua trong mắt cô ấy, Vi Ô Lai Khả khóe miệng càng khoái. Hắn cuối cùng thả cằm cô ấy ra, lùi nửa bước, như kẻ chiến thắng khoan dung. , Vậy đi, chúng ta mỗi bên nhượng bộ một bước. Bữa tối này, em phải ăn cùng ta. Hắn dùng giọng không cho phép từ chối kết luận, rồi mới lần đầu thực sự đưa ánh nhìn khinh miệt về phía Karl. , Còn tiểu trợ lý của em…… Vi Ô Lai Khả đảo mắt nhìn Karl toàn thân cơ bắp căng cứng tỏ ra cực hung hãn, trên mặt lộ nụ cười thương hại lại tàn ác, …… Để hắn cũng đi. Dù sao, tận mắt xem chủ nhân của mình ăn tối với người đàn ông khác, đối với hắn chắc chắn cũng là kiểu 'học tập' mới lạ, phải không?
 
-Lời Vi Ô Lai Khả dung hợp hoàn mỹ sự sỉ nhục và ép buộc tình cảm, như dao găm tẩm độc, chuẩn xác đưa tới trước mặt cô ấy, buộc cô ấy đưa ra lựa chọn. Cô ấy rõ ràng cảm nhận thân Karl phía sau đã căng đến mức kinh hãi. Cánh tay ôm eo cô ấy cứng như sắt, không phải bảo vệ mà là dấu hiệu sắp thoát khỏi lồng nhảy vào địch. Hơi thở ổn định của hắn đã mất, thay vào là tiếng thở thấp như thú trong cổ họng bị kìm nén đến cực độ. "Chó trung thành", "học tập"…… từng chữ Vi Ô Lai Khả đều tàn nhẫn xé rách nhân cách và phẩm giá độc lập mà Karl vừa xây dựng trước mặt cô ấy. Cô ấy không thể để hắn nhịn thêm nữa.
+Lời Vi Ô Lai Khả dung hợp hoàn mỹ sự sỉ nhục và ép buộc tình cảm, như dao găm tẩm độc, chuẩn xác đưa tới trước mặt cô ấy, buộc cô ấy đưa ra lựa chọn. Cô ấy rõ ràng cảm nhận thân Karl phía sau đã căng đến mức kinh hãi. Cánh tay ôm eo cô ấy cứng như sắt, không phải bảo vệ mà là dấu hiệu sắp thoát khỏi lồng nhảy vào địch. Hơi thở ổn định của hắn đã mất, thay vào là tiếng thở thấp như thú trong cổ họng bị kìm nén đến cực độ.
+
+"Chó trung thành"
+
+,
+
+"Học tập"
+
+…… từng chữ Vi Ô Lai Khả đều tàn nhẫn xé rách nhân cách và phẩm giá độc lập mà Karl vừa xây dựng trước mặt cô ấy. Cô ấy không thể để hắn nhịn thêm nữa.
 
 "Vi Ô Lai Khả, cô ấy cuối cùng mở miệng, giọng không lớn nhưng mang sự lạnh lẽo và quyết đoán bất ngờ với mọi người, Trò đùa của anh quá đà rồi. Cô ấy thoát khỏi vòng tay Karl, lần nữa, cũng kiên định hơn đứng che trước hắn, đối mặt với đôi mắt trà nhạt mang nụ cười thưởng thức của Vi Ô Lai Khả."
 
@@ -15896,7 +18476,11 @@ Lời cô ấy khiến không khí phòng nghỉ hậu trường trong nháy m�
 
 Karl là trợ lý trưởng của em, đương nhiên cần đi cùng toàn trình, ghi chép điểm họp. Cô ấy cực khéo léo kéo cuộc La Sát Trường đầy rối ren tình ái này về quỹ đạo cạnh tranh thương mại.
 
-Thao tác này khiến Vi Ô Lai Khả cũng sững. Hắn nhìn gương mặt cô ấy đầy vẻ "được rồi, vì trốn không khỏi thì công sự công bàn", sự thưởng thức và khống chế trong đáy mắt dần bị sự cảm thích và hưng phấn kỳ phùng địch thủ thay thế. Hắn cất tiếng cười trầm ấm, chủ động nhượng bộ sang bên nửa bước, làm tư thế "mời". , 'Bữa ăn thương mại'? Quản lý tiểu thư thân mến của ta, em luôn mang cho ta bất ngờ mới. Hắn cười như cáo ăn trộm cá, Được, vì là 'công việc' thì càng không thể coi thường. Eric, đặt nhà hàng, đặt phòng tầng đỉnh 'Nguyệt Hạ Nôi'. Ta nhớ cửa kính cao sàn ở đó vừa hay nhìn thấy cảnh đêm toàn thành phố. , Vâng, vâng! Vi Ô Lai Khả đại nhân! Eric như được ân xá lập tức gật đầu cúi lạy, lấy điện thoại chạy như trốn ra góc gọi đặt chỗ.
+Thao tác này khiến Vi Ô Lai Khả cũng sững. Hắn nhìn gương mặt cô ấy đầy vẻ
+
+"Được rồi, vì trốn không khỏi thì công sự công bàn"
+
+, sự thưởng thức và khống chế trong đáy mắt dần bị sự cảm thích và hưng phấn kỳ phùng địch thủ thay thế. Hắn cất tiếng cười trầm ấm, chủ động nhượng bộ sang bên nửa bước, làm tư thế "mời". , 'Bữa ăn thương mại'? Quản lý tiểu thư thân mến của ta, em luôn mang cho ta bất ngờ mới. Hắn cười như cáo ăn trộm cá, Được, vì là 'công việc' thì càng không thể coi thường. Eric, đặt nhà hàng, đặt phòng tầng đỉnh 'Nguyệt Hạ Nôi'. Ta nhớ cửa kính cao sàn ở đó vừa hay nhìn thấy cảnh đêm toàn thành phố. , Vâng, vâng! Vi Ô Lai Khả đại nhân! Eric như được ân xá lập tức gật đầu cúi lạy, lấy điện thoại chạy như trốn ra góc gọi đặt chỗ.
 
 Vi Ô Lai Khả đưa đôi mắt chất chứa ý sâu xa trở lại cô ấy, và Karl bên cạnh cô ấy tuy không còn phát sát khí nhưng vẫn toàn thân tỏa mùi người lạ tránh xa. , Vậy thì, quản lý tiểu thư của ta, cùng vị 'trợ lý trưởng' thân mến, phiền hai vị đợi khoảng hai mươi phút ở phòng khách bên ngoài, đợi Eric báo cáo xong, ba chúng ta cùng đi ăn.
 
@@ -15948,7 +18532,15 @@ Gần như ngay khi lời hắn dứt, Karl cũng dùng nĩa lấy một lát c�
 
 "Cá hồi nhà hàng này chất lượng tốt hơn, quản lý. Giọng hắn không chút gợn sóng, Jamón hàm lượng mỡ quá cao, không lợi cho ngài giữ thể lực."
 
-Trên bàn ăn, cuộc chiến không khói súng đã nổ. Vi Ô Lai Khả không ngừng gắp món cho cô ấy, giới thiệu lai lịch và công hiệu từng món trân quý, lời nói đầy ám chỉ và chọc ghẹo. Còn Karl thì thầm lặng hóa giải từng cái, dùng lý do "sức khỏe", "an toàn", "nguy cơ dị ứng" thay thế món Vi Ô Lai Khả gắp cho cô ấy bằng thứ hắn cho là ổn thỏa hơn. Cô ấy kẹp giữa hai bên, đồ ăn trên đĩa càng chồng càng cao, nhưng một miếng cũng không nuốt nổi.
+Trên bàn ăn, cuộc chiến không khói súng đã nổ. Vi Ô Lai Khả không ngừng gắp món cho cô ấy, giới thiệu lai lịch và công hiệu từng món trân quý, lời nói đầy ám chỉ và chọc ghẹo. Còn Karl thì thầm lặng hóa giải từng cái, dùng lý do "sức khỏe",
+
+"An toàn"
+
+,
+
+"Nguy cơ dị ứng"
+
+Thay thế món Vi Ô Lai Khả gắp cho cô ấy bằng thứ hắn cho là ổn thỏa hơn. Cô ấy kẹp giữa hai bên, đồ ăn trên đĩa càng chồng càng cao, nhưng một miếng cũng không nuốt nổi.
 
 Cuối cùng, khi Vi Ô Lai Khả định đổ rượu vang tím sẫm kỳ quái trong ly mình vào ly cô ấy, Karl đưa tay trực tiếp nắm lấy cổ tay Vi Ô Lai Khả.
 
@@ -16078,7 +18670,11 @@ Cơn khoái cảm tột đỉnh ấy khiến cô ấy trong nháy mắt mất h�
 
 "Hừ…… Vi Ô Lai Khả cất tiếng cười thấp ngắn khoái trá. Hắn rõ ràng nhìn thấu ý đồ cô ấy, chẳng những không thu tay mà càng tăng thêm. Hắn rút ngón tay đang khuấy trong lỗ cô ấy, rồi trước mặt Karl, cực dâm tình từ từ liếm sạch dịch trong suốt thuộc về cô ấy trên đầu ngón. Tiếp đó bàn tay vừa nếm cô ấy ấy lại thăm xuống. Lần này là ba ngón. Chúng mang lực không cho từ chối, lại lần nữa ngang ngược từ từ đâm vào lỗ vừa trải qua cực khoái vẫn ẩm ướt lầy lội của cô ấy. Cảm giác bị căng, vượt giới hạn, rách khiến cô ấy hít vào, thân đột ngột căng cứng. Ngón tay Vi Ô Lai Khả trong thịt non chặt của cô ấy không chút thương xót mở rộng, đâm rút, còn ngón cái lại chuẩn xác phủ lên hạt đậu đã sưng đỏ, dùng lực vừa phải mang kỹ thuật cực cao vẽ nhanh vòng tròn."
 
-"Thân mến, đừng nhịn. Giọng hắn bên tai cô ấy vang lên, mang sự mê hoặc như ác ma, Cơ thể em thành thật hơn miệng nhiều…… nó đang hát đấy…… em nghe…… Kèm theo lời hắn, động tác ngón tay càng nhanh, mỗi lần đâm rút đều kéo theo tiếng nước "ục ục" khiến người đỏ mặt. Sự nhịn của cô ấy trong mắt họ là khiêu khích còn cám dỗ hơn bất kỳ tiếng rên nào. Vi Ô Lai Khả rút ngón tay đang hoành hành trong lỗ cô ấy, trên đó đầy dịch trong suốt cô ấy phun ra khi cực khoái. Hắn nhìn Karl đang chuyên tâm liếm giữa đùi cô ấy, lại nhìn thân cô ấy run rẩy phủ lớp đỏ nhạt vì gắng nhịn khoái cảm, trên mặt lộ nụ cười có thể gọi là tệ hại. Hắn biết phải thêm lửa cho vị trợ lý im lặng này. Hắn cúi xuống, không chạm cô ấy nữa, mà đưa bàn tay đầy dịch cô ấy ấy, cực chậm, đầy tính thưởng thức, đưa tới trước mặt Karl."
+"Thân mến, đừng nhịn. Giọng hắn bên tai cô ấy vang lên, mang sự mê hoặc như ác ma, Cơ thể em thành thật hơn miệng nhiều…… nó đang hát đấy…… em nghe…… Kèm theo lời hắn, động tác ngón tay càng nhanh, mỗi lần đâm rút đều kéo theo tiếng nước "
+
+Ục ục
+
+" khiến người đỏ mặt. Sự nhịn của cô ấy trong mắt họ là khiêu khích còn cám dỗ hơn bất kỳ tiếng rên nào. Vi Ô Lai Khả rút ngón tay đang hoành hành trong lỗ cô ấy, trên đó đầy dịch trong suốt cô ấy phun ra khi cực khoái. Hắn nhìn Karl đang chuyên tâm liếm giữa đùi cô ấy, lại nhìn thân cô ấy run rẩy phủ lớp đỏ nhạt vì gắng nhịn khoái cảm, trên mặt lộ nụ cười có thể gọi là tệ hại. Hắn biết phải thêm lửa cho vị trợ lý im lặng này. Hắn cúi xuống, không chạm cô ấy nữa, mà đưa bàn tay đầy dịch cô ấy ấy, cực chậm, đầy tính thưởng thức, đưa tới trước mặt Karl."
 
 Karl đang chôn đầu giữa đùi cô ấy động tác đình trệ. Hắn ngẩng đầu, trong đôi mắt đen phản chiếu vết dâm đãng thuộc về cô ấy trên đầu ngón Vi Ô Lai Khả. Nhục nhã như sắt nóng đỏ, thiêu đốt lên tâm hồn hắn. Cuối cùng hắn không nhịn nữa. Karl đột ngột đứng bật dậy, bóng cao lớn mang khí thế hủy thiên diệt địa. Hắn túm lấy mắt cá cô ấy, kéo thô bạo cả người cô ấy từ giường tới, rồi như lật con búp bê vô hồn, lật cô ấy nằm sấp, ép cô ấy tư thế quỳ gối cực xấu hổ, mông giương cao. Cô ấy chưa kịp kêu, Karl đã chen vào giữa hai chân cô ấy, dùng thân lạnh từ sau ôm hoàn toàn cô ấy.
 
@@ -16102,7 +18698,11 @@ Cô ấy ngậm nước mắt, thần trí mơ hồ nhìn vật to gớm ghiếc
 
 Chất lỏng kỳ lạ mang hương hoa ngọt từ quy đầu tiết ra, trượt xuống cổ họng cô ấy. Chất ấy như mang ma lực, khi tiếp xúc, cơ thể cô ấy như bị châm lửa, cảm giác trống rỗng và khao khát mạnh không tên từ tứ chi dâng lên, khiến cô ấy không kiểm soát phát sốt. Thân vốn căng vì đau đớn giờ không kiểm soát thả lỏng, thậm chí khao khát xâm phạm mạnh hơn, dữ dội hơn. Phía sau Karl vẫn đâm rút hung tợn, nhưng cô ấy cảm thấy đau như xé đang dần tan, thay vào là khoái cảm cực độ khó tả vừa đau vừa sướng. Âm đạo cô ấy bắt đầu chủ động tiết dịch, đón mỗi cú va của vật to, thịt trong lỗ chủ động co thắt, hút, chiều chuộng người đàn ông đang chìm trong ghen tuông phía sau.
 
-"Ừm…… à…… ha à…… Cô ấy không thể nhịn nữa, tiếng rên dâm đãng không kiểm soát tràn từ khóe miệng, trộn với tiếng ọ ọ bị vật chặn cổ họng, cực dâm tình. Cô ấy như phát tình, cơ thể cực nhạy cảm, cực khao khát. Cô ấy bắt đầu chủ động, vụng về dùng lưỡi liếm, hút vật trong miệng, thịt phía sau cũng siết chặt hơn, như thúc Karl dùng cách thô bạo hơn. Cơ thể cô ấy dưới tác dụng dịch ma tinh như thuốc kích dục hoàn toàn phản bội ý chí. Cảm giác trống rỗng và dục vọng mạnh khiến cô ấy không thể suy nghĩ, chỉ muốn được lấp đầy, được đối xử thô bạo hơn. Cô ấy bắt đầu chủ động lắc mông vô ý thức, dùng thịt ẩm nóng chặt bao bọc, hút vật đang đâm rút hung tợn phía sau. Âm đạo cô ấy chưa từng dâm đãng thế, mỗi lần đón đều kéo theo tiếng nước "phụt phụt", dịch chảy theo chỗ giao hợp, thấm ướt ga trải đắt tiền."
+"Ừm…… à…… ha à…… Cô ấy không thể nhịn nữa, tiếng rên dâm đãng không kiểm soát tràn từ khóe miệng, trộn với tiếng ọ ọ bị vật chặn cổ họng, cực dâm tình. Cô ấy như phát tình, cơ thể cực nhạy cảm, cực khao khát. Cô ấy bắt đầu chủ động, vụng về dùng lưỡi liếm, hút vật trong miệng, thịt phía sau cũng siết chặt hơn, như thúc Karl dùng cách thô bạo hơn. Cơ thể cô ấy dưới tác dụng dịch ma tinh như thuốc kích dục hoàn toàn phản bội ý chí. Cảm giác trống rỗng và dục vọng mạnh khiến cô ấy không thể suy nghĩ, chỉ muốn được lấp đầy, được đối xử thô bạo hơn. Cô ấy bắt đầu chủ động lắc mông vô ý thức, dùng thịt ẩm nóng chặt bao bọc, hút vật đang đâm rút hung tợn phía sau. Âm đạo cô ấy chưa từng dâm đãng thế, mỗi lần đón đều kéo theo tiếng nước "
+
+Phụt phụt
+
+", dịch chảy theo chỗ giao hợp, thấm ướt ga trải đắt tiền."
 
 Cảm nhận sự chủ động của cô ấy, Karl phía sau động tác đình trệ, rồi bùng nổ va chạm hoang dã hơn. Hắn như muốn trút hết ghen tuông và phẫn nộ hôm nay vào cuộc giao hợp, mỗi lần đều đâm sâu tận cùng, khiến cô ấy mất ý thức trong làn sóng cực khoái. Vi Ô Lai Khả trước mặt nhìn cô ấy bị dục vọng hoàn toàn chi phối, nụ cười khóe miệng càng rạng. Hắn nắm eo cô ấy khiến không thoát được cuộc xâm phạm bão táp phía sau, đồng thời ấn đầu ép cô ấy sâu nông nuốt vật to cùng kích thước. Đầu ngón hắn đi trên người cô ấy, lúc nắn ngực lúc trượt xuống lòng đùi búng hạt đậu sưng đỏ, chuẩn xác khống chế mỗi khoái cảm của cô ấy.
 
@@ -16148,13 +18748,29 @@ Karl gần như lời hắn vừa dứt đã nhìn về. Hắn nhíu mày, có v
 
 "Em giờ chẳng biết gì! Cô ấy xoa eo đau, quát họ, Em chỉ biết thân đau lắm, bụng đói lắm! Đêm qua không rõ sao, rõ ràng đã kiệt sức mà vẫn không thỏa mãn, vẫn muốn mãi, giờ đi cũng khó! Trải nghiệm sau sự kiện thế này, hai người toàn âm điểm!"
 
-Lời phàn nàn đầy sức ấy khiến hai ác ma trong phòng sững. Karl phản ứng trước, mau bước tới cầm đĩa đồ ăn, mặt đầy tự trách và xót: , Quản lý, là lỗi tôi. Xin ngài dùng trước. Hắn vừa nói vừa liếc Vi Ô Lai Khả như nói "đều tại anh". Vi Ô Lai Khả bị trừng mặt đầy sửng sốt và oan ức. Đôi mắt hổ phách phủ sương, sợi tóc biến thành khói cũng rũ xuống oan. , Âm, âm điểm? Hắn không tin nổi chỉ mình, Thân mến, sao em nói thế? Ta làm vì em mà! Hắn cúi sát giải thích nhanh: Dịch ta kích phát tiềm năng, phóng đại giác quan, ta chỉ muốn em vui hơn, cảm nhận thêm chúng ta để chấm điểm thôi! Ai ngờ phản ứng cơ thể em thành thật thế…… Giọng càng nhỏ, cuối cùng mang chút nũng nịu, như mèo lớn bị chủ oan. Lời cãi chày cãi cối khiến cô ấy bí lời, nhìn gương mặt "ta vì em mà em không nhận tình" của hắn và Karl im lặng đưa nước, chỉ thấy đầu to.
+Lời phàn nàn đầy sức ấy khiến hai ác ma trong phòng sững. Karl phản ứng trước, mau bước tới cầm đĩa đồ ăn, mặt đầy tự trách và xót: , Quản lý, là lỗi tôi. Xin ngài dùng trước. Hắn vừa nói vừa liếc Vi Ô Lai Khả như nói "đều tại anh". Vi Ô Lai Khả bị trừng mặt đầy sửng sốt và oan ức. Đôi mắt hổ phách phủ sương, sợi tóc biến thành khói cũng rũ xuống oan. , Âm, âm điểm? Hắn không tin nổi chỉ mình, Thân mến, sao em nói thế? Ta làm vì em mà! Hắn cúi sát giải thích nhanh: Dịch ta kích phát tiềm năng, phóng đại giác quan, ta chỉ muốn em vui hơn, cảm nhận thêm chúng ta để chấm điểm thôi! Ai ngờ phản ứng cơ thể em thành thật thế…… Giọng càng nhỏ, cuối cùng mang chút nũng nịu, như mèo lớn bị chủ oan. Lời cãi chày cãi cối khiến cô ấy bí lời, nhìn gương mặt
+
+"Ta vì em mà em không nhận tình"
+
+Của hắn và Karl im lặng đưa nước, chỉ thấy đầu to.
 
 Cuộc chiến đêm qua chưa phân thắng bại, chỉ kéo dài đến hôm nay theo cách tế vi hơn.
 
 Cô ấy trừng Vi Ô Lai Khả, Ít nói đi, em đói chết rồi. 'Ý tốt' của anh em nhận rồi, lần sau đừng tốt thế nữa. Nói xong cô ấy không để ý hắn, mệt mỏi dựa đầu giường để Karl từng thìa đút ăn. Cháo ấm trôi xuống dạ dày trống, ấm lên. Vi Ô Lai Khả thấy vậy không giận mà nổi hứng, cũng cúi xuống xiên miếng trái cây đưa miệng cô ấy. , Nào, há miệng, ăn trái cây giúp tiêu hóa. Cô ấy chưa kịp từ chối đã bị nhét vào miệng. Nước ngọt mát nổ trong miệng, làm nhạt vị cháo. Thế là Karl vô cảm đút cháo, Vi Ô Lai Khả thỉnh thoảng cho trái cây. Cô ấy kẹp giữa, dưới sự phục vụ băng hỏa ấy no bụng.
 
-"Được rồi được rồi. Vi Ô Lai Khả lau khóe miệng cô ấy, vẻ khoan dung, Thương em đáng thương, lần này tha. Hắn dừng, lại lộ nụ cười tệ quen thuộc, Nhưng lần sau có dịp chúng ta phải thi lại cho em chấm điểm kỹ. Cô ấy suýt nghẹn vì thìa cháo cuối, không tin nổi nhìn hắn, sao vẫn nhớ chấm điểm? Cô ấy vô thức nhìn Karl hy vọng hắn nói ma tinh ngang bướng ấy. Karl nghe lời Vi Ô Lai Khả lại chậm rãi gật đầu. Trong đôi mắt đen mang quyết "lần sau ta tuyệt không thua nữa". Hắn cũng muốn biết kết quả. Dù không khí vẫn kỳ quái, hai người coi nhau là gai mắt hình như đạt hòa bình tế vi trên "lần sau để em chấm điểm", bằng cái giá là eo tương lai của cô ấy. Cô ấy cảm thấy như búp bê bị tháo tung rồi ráp vụng, toàn thân đau nhức. Đã ngày nghỉ cuối mà mệt không muốn động. Phim hẹn với Karl cũng mất hứng. Cô ấy nằm lì trong suite với hai người đàn ông toan tính, xem ti vi nhàm chán. Cô ấy co góc sofa, Vi Ô Lai Khả chiếm bên kia gọt táo thanh nhã, Karl ngồi ghế đơn đọc sách, nhưng chú ý toàn về cô ấy. Lúc ấy đầu cô ấy đột nhiên "cạch". Đêm qua…… cô ấy không về nhà! Cô ấy bật ngồi thẳng, mặt tái. Cha mẹ chắc lo chết!"
+"Được rồi được rồi. Vi Ô Lai Khả lau khóe miệng cô ấy, vẻ khoan dung, Thương em đáng thương, lần này tha. Hắn dừng, lại lộ nụ cười tệ quen thuộc, Nhưng lần sau có dịp chúng ta phải thi lại cho em chấm điểm kỹ. Cô ấy suýt nghẹn vì thìa cháo cuối, không tin nổi nhìn hắn, sao vẫn nhớ chấm điểm? Cô ấy vô thức nhìn Karl hy vọng hắn nói ma tinh ngang bướng ấy. Karl nghe lời Vi Ô Lai Khả lại chậm rãi gật đầu. Trong đôi mắt đen mang quyết "
+
+Lần sau ta tuyệt không thua nữa
+
+". Hắn cũng muốn biết kết quả. Dù không khí vẫn kỳ quái, hai người coi nhau là gai mắt hình như đạt hòa bình tế vi trên "
+
+Lần sau để em chấm điểm
+
+", bằng cái giá là eo tương lai của cô ấy. Cô ấy cảm thấy như búp bê bị tháo tung rồi ráp vụng, toàn thân đau nhức. Đã ngày nghỉ cuối mà mệt không muốn động. Phim hẹn với Karl cũng mất hứng. Cô ấy nằm lì trong suite với hai người đàn ông toan tính, xem ti vi nhàm chán. Cô ấy co góc sofa, Vi Ô Lai Khả chiếm bên kia gọt táo thanh nhã, Karl ngồi ghế đơn đọc sách, nhưng chú ý toàn về cô ấy. Lúc ấy đầu cô ấy đột nhiên "
+
+Cạch
+
+". Đêm qua…… cô ấy không về nhà! Cô ấy bật ngồi thẳng, mặt tái. Cha mẹ chắc lo chết!"
 
 "Sao vậy thân mến? Vi Ô Lai Khả dừng tay quan tâm hỏi."
 
@@ -16236,7 +18852,11 @@ Hắn giơ tay đầu hàng phóng đại, giọng đầy tiếc nuối giả v�
 
 "Bí mật nhỏ hai người các người giữ lấy đi."
 
-Hắn nài nỉ ở lại, mỹ danh "quan tâm sức khỏe đối tác", thế là bộ ba kỳ quái ấy trải qua buổi chiều hòa bình đến mức kỳ quái trong suite. Cả ba cùng xem chương trình ti vi nhàm chán, không ai nhắc chuyện dâm đãng đêm qua hay trận "thi đấu" tương lai. Đến bốn giờ chiều điện thoại Vi Ô Lai Khả đột nhiên reo. Hắn nghe máy ứng vài tiếng rồi cúp.
+Hắn nài nỉ ở lại, mỹ danh
+
+"Quan tâm sức khỏe đối tác"
+
+, thế là bộ ba kỳ quái ấy trải qua buổi chiều hòa bình đến mức kỳ quái trong suite. Cả ba cùng xem chương trình ti vi nhàm chán, không ai nhắc chuyện dâm đãng đêm qua hay trận "thi đấu" tương lai. Đến bốn giờ chiều điện thoại Vi Ô Lai Khả đột nhiên reo. Hắn nghe máy ứng vài tiếng rồi cúp.
 
 "Có vẻ ta có chút công vụ địa ngục cần xử lý."
 

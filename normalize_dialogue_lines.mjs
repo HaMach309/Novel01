@@ -47,10 +47,15 @@ function findDialogues(str) {
         // (2) >= 15 ký tự và kết thúc . ? ! … , HOẶC
         // (3) ở đầu dòng, HOẶC sau dấu chấm câu . ? ! : ,
         const atLineStart = /^\s*$/.test(str.slice(0, start));
-        const afterPunct = /[.!?:]\s*$/.test(before) || /,\s*$/.test(before);
+        const afterPunct = /[.!?:]\s*$/.test(before) || /,\s*$/.test(before) || /[.!?…]\s*$/.test(before);
         const isDialogue = inner.length >= 25 ||
           (inner.length >= 15 && /[.?!…,]"?\s*$/.test(inner)) ||
-          (inner.length >= 12 && (atLineStart || afterPunct));
+          (inner.length >= 12 && (atLineStart || afterPunct)) ||
+          (inner.length >= 8 && atLineStart) ||
+          (inner.length >= 6 &&
+            inner.length <= 60 &&
+            afterPunct &&
+            !INLINE_BEFORE.test(before));
 
         if (isDialogue) {
           results.push({ start, end: end + 1, text: str.slice(start, end + 1), inner });
