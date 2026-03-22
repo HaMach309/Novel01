@@ -90,6 +90,15 @@ Hướng dẫn dịch văn bản tiểu thuyết từ **tiếng Trung giản th�
 
 - Tránh các từ hiện đại khi bối cảnh cổ trang: "thanh toán", "tài khoản", "app", "đăng nhập", "deal", "deadline", "chill", "stress", "idol", "fan"… (trừ khi truyện cố ý xuyên không/hiện đại).
 
+#### 3.4 Câu cảm thán—hạn chế «À», ưu tiên «A» / «á» theo ngữ cảnh
+
+- **Không lạm dụng "À"** (có dấu huyền) cho mọi tiếng cảm thán hay hạt từ cuối câu trong gốc (啊, 呀, 哎, 唉, 哇…). "À" dễ nghe giọng **chậm, nhận ra, giải thích**; dùng nhiều sẽ làm thoại đồng điệu, thiếu nhịp kịch.
+- **Khi nào giữ "À"**: chợt hiểu, vừa nhớ ra, giọng trầm/dịu, câu kiểu "À, ra là thế / À, ta biết rồi".
+- **Ưu tiên "A"** (không dấu thanh): kêu lên bất ngờ, giật mình, đau, sợ, gọi vội, cảm thán mạnh, hoặc tiếng kêu ngắn đầu câu thoại—chọn **A** nếu ngữ cảnh là **vỡ òa / gấp / ồn ào** hơn là suy nghĩ chậm.
+- **Ưu tiên "á"** (dấu sắc): tiếng kêu **ngắn, cắt, gấp**, mỉa mai nhẹ, hoặc vần điệu với câu sau (ví dụ nhấn mạnh cuối câu)—chọn **á** khi âm hưởng **sắc, gọn**, không phải giọng trầm "À…".
+- **Nguyên tắc**: mỗi lượt thoại/cảnh, **đọc thử**—nếu "À" nghe như đang **giảng giải** thay vì **phản ứng cảm xúc**, đổi sang **A** hoặc **á** cho sát tình huống.
+- **Tiếng kêu «hà á» → «há á»**: khi dịch các cảm thán/cuối câu kiểu 啊呀、哈呀… ra tiếng Việt mà vô tình thành **hà á** (chữ đầu **huyền**), nếu đó là **tiếng kêu** (không phải từ "hà" có nghĩa như "sao", "gì"…), **chuẩn hóa thành há á** (chữ đầu **sắc**) cho đúng giọng cảm thán; tránh **hà á** trong thoại khi ý là kêu lên.
+
 ## Quy trình khi dịch
 
 1. **Đọc qua** đoạn/chương gốc để nắm ngữ cảnh và nhân vật.
@@ -135,3 +144,4 @@ Lý Minh nhìn ra ngoài cửa sổ, trong lòng nghĩ:
 - [ ] Không có dấu hiệu tóm tắt: không lược bỏ, không “đại ý/tóm lại/nói chung”, không gom đoạn làm ngắn nội dung; độ dài bản dịch tương xứng với bản gốc.
 - [ ] Đã rà các phần dễ sót (ngoặc, chú thích, tiếng kêu, ký hiệu phân cảnh, thơ/ca từ).
 - [ ] Câu tiếng Việt tự nhiên, đúng thể loại và xưng hô.
+- [ ] Câu cảm thán: không lạm dụng "À"; đã cân nhắc "A" / "á" theo ngữ cảnh; tiếng kêu **há á** không viết nhầm **hà á** (mục 3.4).

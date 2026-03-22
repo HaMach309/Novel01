@@ -186,7 +186,7 @@ Bịch Nạp Duy phát tiếng rên, đâm mạnh vào miệng huyệt.
 
 Đới Thụy Lâm hét, lực đàn ông đặc biệt hoang dã, như thú đói mấy ngày bỗng thấy thịt non nhiều nước. Bịch Nạp Duy nắm chặt eo Đới Thụy Lâm, đầu quy luôn đâm sâu nhất, thân thô gân nổi nong từng lớp thịt non trong đường, rồi ma sát hung hãn qua lại. Thịt non mẫn cảm bị kích thích không ngừng, không ngừng tiết chất nhớt, ôm vật xâm nhập, bọc cả cây dương vật ướt nhớt.
 
-"Ừm… à…"
+"Ừm… a…"
 
 Đới Thụy Lâm thân bị đâm không ngừng nhấp nhô, nàng chỉ có thể nắm cánh tay khóa eo đối phương mới ổn định, không bị đâm choáng, đôi vú trắng trước ngực lắc đến tàn ảnh, trông đặc biệt dâm. Giữa hai đùi giao nhau, rồng thịt lớn trong huyệt đỏ lầy nhanh vào ra đâm, đâm huyệt thịt đỏ nhớt, dâm thủy bôi khắp gốc đùi hai người. " Á…
 
@@ -194,11 +194,11 @@ Bịch Nạp Duy phát tiếng rên, đâm mạnh vào miệng huyệt.
 
 Trong sự đâm sâu của đàn ông, dương vật hoàn toàn đâm vào tử cung Đới Thụy Lâm. Kích thích quá lớn khiến Đới Thụy Lâm bản năng muốn tránh, nhưng eo nhỏ bị tay Bịch Nạp Duy giữ chặt, như đóng đinh trên dương vật hắn, không cách nào thoát.
 
-"Á à… ta sắp đến… ừm…"
+"Á a… ta sắp đến… ừm…"
 
 Đới Thụy Lâm đã khóc đỏ mặt. Khi đầu quy lại đâm mạnh vào tử cung, Đới Thụy Lâm sướng mắt trắng dã, thân thể run dữ, vọt lên cao trào. Bịch Nạp Duy không dễ thỏa mãn, hắn tiếp tục nắm eo nhỏ Đới Thụy Lâm, đẩy hông đâm hoa huyệt nàng, đâm nàng run rẩy, nước tràn, gốc đùi nhớt thỉnh thoảng phát tiếng nước dâm "cù chụt".
 
-"Ừm ừm… à…"
+"Ừm ừm… a…"
 
 Từng đợt cao trào xâm kích thân thể Đới Thụy Lâm, hoa huyệt bị đâm không ngừng co giật, khoái cảm quá lớn kích thích đầu óc choáng, căn bản vô lực phản kháng, chỉ có thể để Bịch Nạp Duy mạnh mẽ rút đẩy trong thân nàng.
 
@@ -346,7 +346,7 @@ Cảm giác như điện khiến thân thể Đới Thụy Lâm mềm, eo bản 
 
 Đới Thụy Lâm đưa tay xuống giữa hai người, một tay tách môi âm, để dương vật rút thuận từ huyệt nhỏ, tay kia đặt lên thân dương vật thô, muốn rút dương vật Ái Lạp Lý Ân ra. Lòng bàn tay mềm chạm thân dương vật thô, trong cổ Ái Lạp Lý Ân không nhịn được rên. Ái Lạp Lý Ân không nhịn được đẩy eo, theo tay Đới Thụy Lâm rút đẩy, lòng bàn tay non cùng huyệt nhỏ bị dương vật ma sát.
 
-"Ngươi đừng động… ừm à…"
+"Ngươi đừng động… ừm a…"
 
 Thân thể Đới Thụy Lâm vốn mềm, bị dương vật đập mấy cái, huyệt nhỏ càng tê. Nàng chết cũng không thừa nhận mình bị Ái Lạp Lý Ân đâm rất sướng… Nàng cố ý bỏ qua biểu cảm Ái Lạp Lý Ân, tiếp tục rút dương vật lớn tra tấn này.
 
@@ -478,7 +478,7 @@ Giáo hoàng Pháp Hi Tát tóc đỏ rực, dáng thẳng, nắm tay nữ hoàn
 
 Phí Cách Khả Áo Nạp mạnh dạn bước tới, cởi váy Đới Thụy Lâm.
 
-"Đừng, ngươi cút đi… à…"
+"Đừng, ngươi cút đi… a…"
 
 Xương đòn Đới Thụy Lâm bị Phí Cách Khả Áo Nạp cắn, da mỏng rõ ràng bị hắn cắn đau. Đới Thụy Lâm mặt mang nhục và giận, đây chính là thứ Phí Cách Khả Áo Nạp thích thấy. Nếu không phải thần chết đó, họ cần gì đưa con rối lên ngôi!
 
@@ -530,13 +530,13 @@ Hắn tăng tốc đập, dương vật rút một đoạn, lại đâm mạnh v
 
 Trong huyệt nhỏ như phát lũ, cao trào liên tiếp, chảy dòng lớn nước ngọt trong, đàn ông nắm eo Đới Thụy Lâm đâm cung, như oanh tạc dã man đập. Phí Cách Khả Áo Nạp động tác đâm càng rộng, mỗi lần rút chỉ còn đầu quy, lại đâm vào, chiếm đầy toàn bộ cung. Chất nhớt bị kéo ra, lại bị dương vật đẩy vào, tiếng nước phù phù không ngừng, cửa cung chật Đới Thụy Lâm bị đập mở đi đập mở lại, vòng thịt mềm quanh đó vừa mềm vừa tê.
 
-"À à, quá sâu, đó không được… ngươi quá to… ừm ừm… ta không muốn nữa…"
+"A a, quá sâu, đó không được… ngươi quá to… ừm ừm… ta không muốn nữa…"
 
 Đới Thụy Lâm cảm thấy da đầu hình như lại bị dòng điện kích thích, lại đạt cao trào. Đới Thụy Lâm vừa khóc vừa co giật, hai tay buông hai bên, toàn thân mềm như bùn. Phí Cách Khả Áo Nạp dùng tay bóp chặt eo nàng, không cho nàng động, gần như bóp gãy.
 
 Đầu quy cào thịt non sâu xung kích, mỗi lần đâm sâu nhất đều mang khoái cảm đánh linh hồn, như điện truyền nhanh khắp tứ chi Đới Thụy Lâm.
 
-"Á… à Á Á… ơ… à… đừng…"
+"Á… a Á Á… ơ… a… đừng…"
 
 Đới Thụy Lâm rên không rõ, Phí Cách Khả Áo Nạp cố ý nghiền miếng thịt mẫn cảm nhất nàng, đẩy hông rút đẩy càng hung, mỗi lần đâm hết, thịt đập bốp bốp. Cánh tay đàn ông khóa eo nhỏ nàng gân xanh từng sợi nổi, toát sức mạnh bừng bừng đáng sợ, dương vật to cứng cũng đầy gân, trong huyệt đâm thô, đâm cửa tử cung non mỏng Đới Thụy Lâm nước tràn.
 
@@ -634,7 +634,7 @@ Bịch Nạp Duy dùng tay vuốt tóc dài xanh Đới Thụy Lâm, cầm chơi
 
 một tiếng, vỗ vào huyệt nhỏ đỏ ửng.
 
-"À ha…" Đới Thụy Lâm phát tiếng khóc, cảm giác bàn tay đập vào thịt huyệt vừa đau vừa kích thích, cảm giác cao trào nàng càng lên tầng. Phí Cách Khả Áo Nạp lại vung tay, bắt đầu từng cái vỗ huyệt nữ hoàng, lực từ nhẹ đến nặng, bốp bốp vỗ.
+"A ha…" Đới Thụy Lâm phát tiếng khóc, cảm giác bàn tay đập vào thịt huyệt vừa đau vừa kích thích, cảm giác cao trào nàng càng lên tầng. Phí Cách Khả Áo Nạp lại vung tay, bắt đầu từng cái vỗ huyệt nữ hoàng, lực từ nhẹ đến nặng, bốp bốp vỗ.
 
 Miệng huyệt lập tức nổi vết bàn tay, đau từ âm hộ khiến Đới Thụy Lâm bản năng muốn khép chân, đáng tiếc chân nàng bị đàn ông khống chế, chỉ có thể lắc mông giãy.
 
@@ -646,13 +646,13 @@ Rõ ràng đau, nhưng khoái cảm nhanh chóng từ giữa đùi đánh vỏ n
 
 Hai đàn ông kia cũng không rảnh, họ mỗi người đập một bên vú. Nhũ hoàn mềm non bị vỗ lõm rồi đàn hồi bật lên, vết bàn tay xếp ngay ngắn trên đầu vú, đặc biệt chăm sóc đầu vú đến sưng đỏ, như hai đóa mai đỏ tươi. Chỗ mẫn cảm nhất trên vú vừa đau vừa sướng, hai bầu vú trắng non bị đánh lung lay, phủ đầy vết bàn tay đỏ tươi.
 
-"Ừm… à…"
+"Ừm… a…"
 
 Đới Thụy Lâm vặn thân tránh, nhưng tránh nhẹ không ích gì. Và nàng lại tìm được khoái ý trong vỗ đánh đồng thời đàn ông, không tự giác đạt cao trào. Toàn thân vừa tê vừa đau, Đới Thụy Lâm chỉ lo khóc, nước bọt chảy xuống không hay, như bị đánh nát.
 
 Huyệt nhỏ bị vỗ sưng đỏ phô ra trước mắt đàn ông, như đóa hoa đỏ chảy mật nở rộ, vừa đẹp vừa dâm.
 
-"Vỗ huyệt có cảm giác thế à? Ừm? "
+"Vỗ huyệt có cảm giác thế á? Ừm? "
 
 Phí Cách Khả Áo Nạp vỗ bàn tay vang lên lại hung hãn đập xuống. Huyệt nhỏ nóng rát đau tê, mang đến sự dâng trào sâu hơn.
 
@@ -710,7 +710,7 @@ Phí Cách Khả Áo Nạp chế nhạo Đới Thụy Lâm hai lần thất kinh
 
 Phí Cách Khả Áo Nạp rút dương vật ra, tháo bao cao su lạnh, phun nước tiểu mình vào miệng huyệt đỏ ửng Đới Thụy Lâm. Nước tiểu nóng mạnh xối thẳng vào miệng huyệt mềm non Đới Thụy Lâm, khiến nàng tê da đầu, tư thế hai chân dang rộng khiến nàng càng cảm nhận khoái cảm dòng nóng xung kích. Âm vật mẫn cảm sưng tấy Đới Thụy Lâm dưới xung kích nước tiểu cảm nhận rất rõ, rung nhẹ cũng khiến thịt non trong hoa huyệt co thắt điên cuồng, rồi trong co giật không ngừng run rẩy vọt lên cao trào.
 
-"Á à… à…"
+"Á a… a…"
 
 Đới Thụy Lâm khó chịu nổi kích thích này, rên to. Cao trào liên tiếp khiến Đới Thụy Lâm hoàn toàn hết sức, nàng nhắm mắt, không muốn suy nghĩ nữa, mùi nước tiểu của hai người lan tỏa trong không khí.
 
@@ -860,7 +860,7 @@ Nàng thấy bụng dưới hơi căng, dùng tay xoa bụng, Bịch Nạp Duy l
 
 Đới Thụy Lâm ngậm dương vật nghẹn ngào. Nước tiểu ấm từng dòng chảy xuống, phát tiếng xấu hổ xì xào, Bịch Nạp Duy nhân lúc nàng đi tiểu, càng nhanh càng mạnh rút đẩy, mỗi lần đều đâm cửa cung, huyệt nhỏ Đới Thụy Lâm cũng không ngừng cao trào phun nước. Hai lỗ mỗi cái phun của mình, Đới Thụy Lâm căn bản không kiểm soát được, chỉ có thể mở thân để họ đâm.
 
-Nàng đếm không xuể mình cao trào bao nhiêu lần, giờ cả gốc đùi cũng run, tiếng rên ừm à không ngừng.
+Nàng đếm không xuể mình cao trào bao nhiêu lần, giờ cả gốc đùi cũng run, tiếng rên ừm a không ngừng.
 
 Bịch Nạp Duy phun một dòng tinh đặc vào bình hoa, dòng nóng lại kích thích bụng dưới Đới Thụy Lâm, khiến nàng tê mỏi gần mất tri giác. Phí Cách Khả Áo Nạp cũng phun lượng lớn tinh đặc vào miệng Đới Thụy Lâm, nâng gáy nữ hoàng rót hạt giống mình vào, nhìn nàng nuốt xuống. Nhưng sau khi rút dương vật khỏi miệng nữ hoàng, hắn lại phun một dòng trắng đục, tinh dịch trong chớp mắt phun đầy mặt Đới Thụy Lâm.
 
@@ -1002,7 +1002,7 @@ Hạt mật nhỏ truyền kích thích như điện giật, Đới Thụy Lâm 
 
 Lưỡi đàn ông này hình như có chất nhám, mỗi lần liếm thịt non Đới Thụy Lâm, Đới Thụy Lâm đều phun nước co giật. Lưỡi hắn thử đưa vào động huyệt nữ hoàng, động huyệt bên trong rất chặt, mềm non khó tin.
 
-"Ngứa… ngứa… à… đừng…"
+"Ngứa… ngứa… a… đừng…"
 
 Đới Thụy Lâm rên khóc, toàn thân bị liếm tê mỏi, những đàn ông này đương nhiên không dừng, chỉ đẩy nàng lên đỉnh kích thích hơn. Đàn ông ôm đầu nàng lại mổ mổ môi nàng, dù không hôn sâu, nhưng cũng đủ khiến Đới Thụy Lâm chìm đắm. Đàn ông tăng lực liếm, cố ý dùng răng cắn nhẹ một môi âm lớn, Đới Thụy Lâm cảm thấy đau nhẹ, nhưng lập tức bị khoái cảm nhấn chìm.
 
@@ -1468,7 +1468,7 @@ Ngón tay hắn qua nội y ren trắng chọc âm vật mẫn cảm nhất Đ�
 
 Bịch Nạp Duy nắm dương vật, dùng dương vật đập cửa huyệt, đập thịt huyệt đó đỏ sưng dâm thủy văng, khiến Đới Thụy Lâm rên.
 
-"Á… à… tuyệt… sướng quá…"
+"Á… a… tuyệt… sướng quá…"
 
 Khoái cảm tích lũy, sắp bị đập đến cao trào, Đới Thụy Lâm run rẩy nhấc chân kẹp eo Bịch Nạp Duy, vặn eo đón. Bịch Nạp Duy thấy nữ hoàng sắp cao trào, hắn hạ eo, để thân dương thô toàn bộ áp hạt âm vật mẫn cảm, rồi rút đẩy trước sau.
 
@@ -1484,7 +1484,7 @@ Bịch Nạp Duy cũng hưng phấn, hắn để dương vật rút đẩy trong
 
 Bịch Nạp Duy thở nóng lên mặt Đới Thụy Lâm, hắn đã đổ mồ hôi, nhưng thể lực vẫn dồi dào. Bịch Nạp Duy dùng hai ngón véo âm vật nhỏ Đới Thụy Lâm mạnh vò.
 
-"Á… đừng… à… ừm… đừng véo… tha ta… à…"
+"Á… đừng… a… ừm… đừng véo… tha ta… a…"
 
 Đới Thụy Lâm khóc mất tiếng. Bịch Nạp Duy đâm mạnh vài cái, dương vật ép cửa cung, hắn gầm rót tinh dịch nóng vào thân Đới Thụy Lâm. Dù đã bắn, dương vật Bịch Nạp Duy vẫn cứng, hắn không muốn rút khỏi cửa huyệt mê người.
 
@@ -1738,7 +1738,7 @@ Bịch Nạp Duy rút dương vật, theo động tác hắn dâm thủy bị đ
 
 Khoái cảm quá kích thích, xung Đới Thụy Lâm choáng, cả người run mạnh, hoa huyệt chảy nước siết chặt cây thịt to đàn ông, như muốn bóp đứt. Bịch Nạp Duy bị nàng siết hít hơi, suýt bắn ra, hắn vội rút nửa thân dương vật nghỉ, mới nhịn ý bắn. Đới Thụy Lâm sợ, hai tay đặt vai đàn ông cào loạn, thở gấp kêu.
 
-"Á… đừng… cầu ngươi, đừng… sâu quá, à…"
+"Á… đừng… cầu ngươi, đừng… sâu quá, a…"
 
 Bịch Nạp Duy bị hoa huyệt Đới Thụy Lâm siết tê da đầu, tần suất lắc eo hông hoàn toàn mất kiểm soát, lực đâm dương vật trong đó càng lúc càng mạnh, chỉ muốn có khoái cảm lớn hơn kích thích hơn.
 
@@ -1908,7 +1908,7 @@ Hoa huyệt non mềm lộ trong không khí, môi âm treo dịch dâm óng án
 
 Ái Lạp Lý Ân cười thấp nhắc nhở, dùng lưỡi liếm má và môi nàng. Đột nhiên Đới Thụy Lâm cảm thấy cây thịt nóng phía dưới đang rút ra, trong huyệt trống rỗng. Tiếp đó cây thịt thô to hình dạng khác lại đẩy vào, đầu quy này lại to lại cong, thân dương khô ấm, còn mang độ cong.
 
-"Hà… à… à…"
+"Hà… a… a…"
 
 Đới Thụy Lâm chỉ cần cúi đầu, đã thấy cảnh thịt dâm hồng non trong huyệt mình bị dương vật Ái Lạp Lý Ân kéo ra. Cửa cung sâu đã bị đâm mềm, dương vật thô cứng đâm vào huyệt mềm đó không ngừng, cửa cung cuối cùng không chịu nổi mở ra, để đầu quy cưỡng ép xông vào khoang cung, chiếm toàn bộ không gian. Đới Thụy Lâm đôi mắt lam ánh nhìn tán loạn, mặt đỏ, mắt ướt mơ màng, cứ thế thương hại nhìn Ái Lạp Lý Ân, cho đến khi hắn bắn ra.
 
@@ -1944,7 +1944,7 @@ Phí Cách Khả Áo Nạp cố ý phát âm thanh nuốt, càng nắm chặt m�
 
 Phí Cách Khả Áo Nạp môi khép chặt hút âm vật hồng non lồi, dùng lưỡi không ngừng đẩy lên xuống, mỗi lần đẩy lên, hạt đỏ sẫm ẩn trong âm vật đều bị lưỡi cào qua, khiến Đới Thụy Lâm cảm thấy miếng thịt mềm nhỏ đó đã tê không còn là của mình. Lưỡi Phí Cách Khả Áo Nạp càng lúc càng mạnh, muốn hút hết dịch trong hoa huyệt, không còn một giọt. Đới Thụy Lâm cảm thấy Phí Cách Khả Áo Nạp càng lúc càng mạnh, hắn còn dùng răng cắn nhẹ thịt huyệt nàng, khiến Đới Thụy Lâm thoải mái vặn eo mông, trong miệng không ngừng phát tiếng rên nhỏ.
 
-"Hà… nhẹ chút… à…"
+"Hà… nhẹ chút… a…"
 
 Đới Thụy Lâm gốc đùi run, tiết thêm nhiều dịch, nàng sắp cao trào nữa. Nước bọt dồi dào tràn miệng, bị ngón tay Ái Lạp Lý Ân khuấy, không kiểm soát tràn mép.
 
@@ -1952,7 +1952,7 @@ Phí Cách Khả Áo Nạp môi khép chặt hút âm vật hồng non lồi, d�
 
 Vị chua không ngừng chồng chất, Đới Thụy Lâm khó chịu tràn tiếng rên, thân căng. Phí Cách Khả Áo Nạp ngậm hạt âm sung huyết sưng đó, hút mạnh giày vò, làm cú chạy cuối.
 
-"Ư ư… à hà…"
+"Ư ư… a hà…"
 
 Khoái cảm quá mạnh, nước mắt Đới Thụy Lâm lâm râm. Chẳng mấy chốc nàng đột nhiên cong người run, chất lỏng trong suốt loãng đổ ra, phun đầy mặt đàn ông.
 
@@ -2054,7 +2054,7 @@ Nàng vừa khó chịu vừa thỏa mãn, há miệng trợn mắt, lúc này d
 
 Đới Thụy Lâm bước không chạm đất, bắp chân treo giữa không trung đung đưa, vòm chân căng thành đường cong đẹp.
 
-"Đừng… ừm, đừng nữa… à, mau dừng! "
+"Đừng… ừm, đừng nữa… a, mau dừng! "
 
 Đới Thụy Lâm cảm thấy ý tiểu ngày càng mạnh, hai chân run không ngừng. Bọn càng muốn nhịn ý tiểu đáng sợ này, ý tiểu càng mạnh. Chất lỏng vàng nhạt từ lỗ nhỏ phía trước phun ra, tưới lên người ba người.
 
@@ -2314,7 +2314,7 @@ Lần này Đới Thụy Lâm chủ động mở. Dù không rõ mặt nữ tử
 
 Nữ tử tóc lam băng đưa tay phải vuốt má Đới Thụy Lâm, Đới Thụy Lâm chưa kịp đáp, nàng lại tan như khói. Có sức ấm chảy vào thân Đới Thụy Lâm, nàng chưa kịp hồi vị, cảnh xung quanh đột nhiên sụp, nàng rơi vào hố đen.
 
-"Không… à! "
+"Không… a! "
 
 Dù Đới Thụy Lâm kêu thế nào, thân nàng vẫn rơi, như vực sâu vô tận. Mở mắt mạnh, nàng vẫn quỳ trong thánh đình, xung quanh quen thuộc bình thường. Hôm sau Đới Thụy Lâm lại yêu cầu đến thánh đình Áo Lý Nạp Khắc cầu nguyện, nàng như thường quỳ trước tượng thần sáu cánh thân người đuôi cá, cố "mơ" lại.
 
@@ -2354,7 +2354,7 @@ Ngón tay Bịch Nạp Duy qua nội y ren trắng chọc âm vật mẫn cảm 
 
 Giọng Bịch Nạp Duy nghiêm, Đới Thụy Lâm lần đầu trực tiếp cảm nhận cơn giận đàn ông này.
 
-"Đâu… đâu có. Ta chỉ muốn… ừm à… ta chỉ cầu nguyện thôi…"
+"Đâu… đâu có. Ta chỉ muốn… ừm a… ta chỉ cầu nguyện thôi…"
 
 Đới Thụy Lâm phủ nhận. Bịch Nạp Duy nghe càng giận, nữ hoàng vẫn nói dối! Bịch Nạp Duy lại thô bạo cắn môi Đới Thụy Lâm, đưa tay vào chân nàng, lột hết nội y ren trắng bỏ vào túi áo. "
 
@@ -2364,11 +2364,11 @@ Giọng Bịch Nạp Duy nghiêm, Đới Thụy Lâm lần đầu trực tiếp 
 
 Bịch Nạp Duy ngón cái chống âm vật, ngón giữa đưa vào áp thành trong mềm cửa huyệt, cùng ngón cái vò vặn mấy chục, âm vật nhỏ non trong tay hắn càng đỏ sưng, nhụy tiết dâm thủy như dòng, Đới Thụy Lâm mở chân rộng, cúi mắt thấy rõ huyệt mật chảy vũng mật trong suốt.
 
-"Ừm à… Bịch Nạp Duy… đừng… dừng tay…"
+"Ừm a… Bịch Nạp Duy… đừng… dừng tay…"
 
 Đới Thụy Lâm bị chơi ngứa, muốn được chèn đầy, nhưng quá xấu hổ làm chuyện này với Bịch Nạp Duy. Bịch Nạp Duy phủ môi Đới Thụy Lâm, phong ấn tiếng rên. Hơi thở Đới Thụy Lâm càng gấp, lúc này Bịch Nạp Duy lại đưa thêm một ngón, hai ngón khép rút đẩy khuấy nhanh, lặp lại vài lần. "
 
-Á…" Đới Thụy Lâm sướng phun dòng chất lỏng trong suốt trong huyệt, văng lòng bàn tay Bịch Nạp Duy, mùi chất lỏng lan quanh hai người. Bịch Nạp Duy toàn thân cơ bắp căng, hạ thể dương cứng, nữ hoàng vừa cao trào mắt trống nhìn trên, miệng không ngừng "ừm à", huyệt nhỏ còn phun thêm nước.
+Á…" Đới Thụy Lâm sướng phun dòng chất lỏng trong suốt trong huyệt, văng lòng bàn tay Bịch Nạp Duy, mùi chất lỏng lan quanh hai người. Bịch Nạp Duy toàn thân cơ bắp căng, hạ thể dương cứng, nữ hoàng vừa cao trào mắt trống nhìn trên, miệng không ngừng "ừm a", huyệt nhỏ còn phun thêm nước.
 
 Thật muốn đâm vào, đâm xuyên nàng!
 
@@ -2392,7 +2392,7 @@ Bịch Nạp Duy cứng hẳn, hắn nhanh cởi quần, lộ dương vật hồ
 
 Đới Thụy Lâm miệng chê thân thành thật, trong lòng thật ra khao khát tình dục kích thích hơn, dù sao lực này với nàng không đủ. Đầu quy đàn ông liên tục đập âm vật nhỏ hồng, thân dương và môi thịt ma sát, Đới Thụy Lâm sướng mở chân rộng hơn. Bịch Nạp Duy nắm dương vật, dùng dương vật đập cửa huyệt, đập thịt huyệt đó đỏ sưng dâm thủy văng, khiến Đới Thụy Lâm rên.
 
-"Á… à… tuyệt… sướng quá…"
+"Á… a… tuyệt… sướng quá…"
 
 Cảm giác dính ướt mềm khiến thân mẫn cảm, tiếng đập lặp lại khiến khoái cảm tích nhanh. Huyệt nhỏ Đới Thụy Lâm đã ướt, dâm thủy chảy, đầu quy Bịch Nạp Duy cũng mở tối đa, lỗ mắt chảy nước, theo đập đầu quy, dịch tuyến tiền liệt trong suốt văng khắp, trông dâm vô cùng. Ban đầu Bịch Nạp Duy chỉ đập nhẹ, thấy nữ hoàng càng lúc càng sướng, hắn dần tăng lực, hông cũng lắc theo.
 
@@ -2400,7 +2400,7 @@ Cảm giác dính ướt mềm khiến thân mẫn cảm, tiếng đập lặp l
 
 Khoái cảm tích lũy, sắp bị đập đến cao trào, Đới Thụy Lâm run rẩy nhấc chân kẹp eo Bịch Nạp Duy, vặn eo đón:
 
-"Á à… Bịch Nạp Duy, nhanh… ừm…"
+"Á a… Bịch Nạp Duy, nhanh… ừm…"
 
 Bịch Nạp Duy thấy nữ hoàng sắp cao trào, hắn hạ eo, để thân dương thô toàn bộ áp hạt âm vật mẫn cảm, rồi rút đẩy trước sau. Ma sát nhanh diện rộng, kích thích âm vật liên tục. Đới Thụy Lâm chỉ thấy thân như dòng điện mạnh chạy qua, tê toàn thân.
 
@@ -2416,13 +2416,13 @@ vang, thân nàng cũng rung nhanh, cảm giác như thật bị Bịch Nạp Du
 
 Đới Thụy Lâm hơi chưa thỏa, Bịch Nạp Duy chưa đâm vào… Nhưng tiếp theo Bịch Nạp Duy cọ má Đới Thụy Lâm, đỡ hai chân nàng lên hai bên eo, để dương vật chống mở thịt non chậm đâm vào khe thịt.
 
-"Ư à… ừm…"
+"Ư a… ừm…"
 
 Huyệt nhỏ ngứa khó chịu cuối cùng được vật lớn nóng chèn mở, Đới Thụy Lâm ngửa đầu kêu, thỏa mãn tê sướng không nói nổi. Bịch Nạp Duy cũng hưng phấn, hắn để dương vật rút đẩy trong huyệt ướt, lực càng mạnh. Dương vật đâm mỗi lần sâu hơn, mỗi lần rút đẩy đập mông Đới Thụy Lâm đét đét, Đới Thụy Lâm hai tay chống vai kỵ sĩ, đôi chân mảnh treo eo.
 
 Eo Đới Thụy Lâm vặn mạnh, thịt mềm trong ống dẫn kẹp chặt dương vật Bịch Nạp Duy, thịt mị hút siết dương vật, thật sướng Bịch Nạp Duy tê da đầu. Dương vật Bịch Nạp Duy mỗi lần đâm tận gốc, chọc nhụy, đập chỗ đó mềm nhũn.
 
-"Á… ừm à… ừ… đừng… ừm…"
+"Á… ừm a… ừ… đừng… ừm…"
 
 Đới Thụy Lâm không ngừng rên dưới Bịch Nạp Duy, mặt đỏ mắt mơ, khiến kỵ sĩ trên người càng gắng.
 
@@ -2436,7 +2436,7 @@ Bịch Nạp Duy thở nóng lên mặt Đới Thụy Lâm, hắn đã đổ m�
 
 Bịch Nạp Duy rảnh một tay, lực đâm tốc độ không giảm, lại dùng hai ngón véo âm vật nhỏ Đới Thụy Lâm mạnh vò.
 
-"Á… đừng… à… ừm… đừng véo… tha ta… à…"
+"Á… đừng… a… ừm… đừng véo… tha ta… a…"
 
 Đới Thụy Lâm khóc mất tiếng, không chịu nổi kích thích. Bịch Nạp Duy động tác dưới không ngừng, dương vật thô đâm huyệt non Đới Thụy Lâm dâm thủy văng, hạt thịt đỏ sưng bị kéo tùy ý, khiến Đới Thụy Lâm rên van xin, không có chút thở. Bịch Nạp Duy đã đâm đỏ mắt, chỉ theo bản năng nguyên thủy, đâm mạnh thân mềm bên dưới.
 
@@ -2444,7 +2444,7 @@ Sức Đới Thụy Lâm bị vắt gần hết, không còn sức vặn eo, nh�
 
 Dù Bịch Nạp Duy thả âm vật, hạt thịt vẫn có cảm giác bị vò.
 
-"Ừm… à…"
+"Ừm… a…"
 
 Đới Thụy Lâm lại đạt cao trào lớn phun lượng lớn nước, rút đẩy mạnh liên tục khiến nàng chìm trong khoái lạc thân xác.
 
@@ -2538,7 +2538,7 @@ Bịch Nạp Duy cảm thấy huyệt Đới Thụy Lâm co thắt càng lúc c�
 
 Tiếng thịt va chạm vang vọng, có thể tưởng tượng hai người vận động dữ dội thế nào.
 
-"Á hà… chậm chút… à Á Á…"
+"Á hà… chậm chút… a Á Á…"
 
 Đới Thụy Lâm liên tục cao trào phun nước, nhiều dâm dịch dính nhớt trong suốt không ngừng rót lên đầu quy và thân dương Bịch Nạp Duy, làm mờ chỗ giao hợp. Cảm giác tê mỏi từ lưng truyền lên não, Bịch Nạp Duy không còn kìm chế, tùy ý đâm đập mạnh mẽ, đâm mạnh nữ hoàng bên dưới. Cuối cùng, dương vật thô dài đẩy sâu, cửa tinh mở, tinh dịch nóng như lũ tràn, trong chớp mắt đổ vào hoa búp Đới Thụy Lâm.
 
@@ -2550,7 +2550,7 @@ Nhưng dương vật to vẫn vô tình rút ra.
 
 Đới Thụy Lâm phồng ừm một tiếng, nhưng huyệt chưa thỏa mãn lại hưng phấn đón dương vật trở về. Đầu quy Bịch Nạp Duy mài trong huyệt hẹp, đầu ngón mài núm vú non, kích thích kép trên dưới khiến huyệt Đới Thụy Lâm ngứa hơn, hạ thể như lửa đốt, nàng mong dương vật đâm sâu hơn, nhanh hơn.
 
-"Ừm à… ngứa quá… ngứa, nhanh chút…"
+"Ừm a… ngứa quá… ngứa, nhanh chút…"
 
 Đới Thụy Lâm quấn chân lên eo Bịch Nạp Duy, tiện hắn vào sâu hơn. Hơi thở Bịch Nạp Duy nặng, dương vật lớn đột nhiên rút đẩy nhanh. Tiếng rên Đới Thụy Lâm bị đâm đứt quãng, đầu quy mỗi lần đều đẩy mở thịt mị sâu, đâm mạnh thành tử cung mẫn cảm.
 
@@ -2642,7 +2642,7 @@ Vì chất nhầy, dương vật ra vào ống dẫn thuận hơn, kéo theo dâ
 
 Đàn ông nhận ra phản ứng nữ hoàng, đẩy thứ vừa bị đẩy ra nửa phần lại vào, đột nhiên vào sâu hơn.
 
-"Ừm… à… hà… đừng… chậm chút…"
+"Ừm… a… hà… đừng… chậm chút…"
 
 Đới Thụy Lâm không kìm được kêu, đón nhận đàn ông đâm đập mạnh mẽ. Hai bên thịt vú bị cắn, răng đàn ông ngậm núm vú véo xé, đầu quy cũng gần đẩy vào cửa hẹp hơn. Một đàn ông nâng mặt Đới Thụy Lâm, môi hắn đè mạnh môi nữ hoàng, lưỡi quấn đầu lưỡi nữ hoàng, như dương vật trong thân nữ hoàng thô bạo khuấy, để lại cho nữ hoàng cảm giác ngạt thở như chết đuối.
 
@@ -2660,7 +2660,7 @@ Bụng dưới Đới Thụy Lâm co thắt, chân run không kiểm soát, kho�
 
 Đột nhiên một cú đâm sâu, dương vật đâm sâu hơn vào hoa tâm, chọc điểm mẫn cảm sâu nhất, rồi phun lượng lớn tinh dịch.
 
-"Ừm… à… à…"
+"Ừm… a… a…"
 
 Đới Thụy Lâm bị ép chịu từng đàn ông rút đẩy rót tinh, nàng có vẻ cảm thấy bụng mình đang phồng to… Khi đàn ông mặc quần áo sắp rời, họ mới tháo băng mắt Đới Thụy Lâm, cuối cùng cúi chào nhẹ, rồi rời đi có trật tự. Đới Thụy Lâm sờ bụng, hơi may mình khó mang thai, dù đàn ông rót bao nhiêu vào huyệt, bụng nàng cũng không phản ứng.
 
@@ -3064,7 +3064,7 @@ Một roi này rất mạnh, Đới Thụy Lâm thét đau, nàng không nhịn 
 
 Thủ lĩnh hề hề cười, lấy ra một que niệu đạo trong suốt giống chuỗi cà chua. Hắn dùng ngón tay thô ráp tách hoa huyệt ướt Đới Thụy Lâm, tìm niệu đạo ẩn dưới âm vật, rồi nhét que niệu đạo vào.
 
-"Á— đừng… cầu ngươi, à— đau quá… ư…"
+"Á— đừng… cầu ngươi, a— đau quá… ư…"
 
 Đới Thụy Lâm cảm thấy vật lồi lạ chui vào niệu đạo mẫn cảm, cảm giác này rất kỳ lạ, vừa đau vừa sướng, khiến nàng không ngừng hét. Trong lúc bị cắm que niệu đạo, vì kích thích nàng nhanh chóng lại có cảm giác bài tiết, nàng gắng đẩy thứ này ra, nhưng thứ này càng cắm càng sâu. Các viên cầu trên que niệu đạo không ngừng ép thành niệu đạo hẹp, khiến Đới Thụy Lâm cảm thấy rất khó chịu.
 
@@ -3094,7 +3094,7 @@ Nhưng nàng lại sợ bị trừng phạt khó chịu hơn, chỉ có thể c�
 
 Âm vật mẫn cảm sưng phồng dưới xung kích nước tiểu cảm giác rất rõ, rung động nhẹ cũng khiến thịt non trong hoa huyệt co rút điên cuồng, rồi trong co giật không ngừng, Đới Thụy Lâm run rẩy lên đỉnh cao trào.
 
-"Á à… à…"
+"Á a… a…"
 
 Đới Thụy Lâm khó chịu nổi kích thích này, rên to.
 
@@ -3266,7 +3266,7 @@ Cuối cùng một giờ trôi qua, bàng quang Đới Thụy Lâm đã mệt m�
 
 Đới Thụy Lâm hoảng hốt mở mắt, cố vươn cổ nhìn xuống, chỉ thấy dương vật thẳng đứng đó phủ đầy lông tơ mềm, châm thịt mị mẫn cảm khiến nàng run rẩy.
 
-"Á— à— sướng… sướng quá…"
+"Á— a— sướng… sướng quá…"
 
 Hoa huyệt nhỏ chưa từng bị đối xử như vậy, từng tấc thịt mị đều bị lông mềm ma sát, ngay cả nếp thịt dày đặc cũng không thoát. Sự tê dại và châm chích kỳ quái khiến Đới Thụy Lâm không ngừng khóc, đuôi mắt rơi lệ thảm thương.
 
@@ -3276,7 +3276,7 @@ Hoa huyệt nhỏ chưa từng bị đối xử như vậy, từng tấc thịt 
 
 Đới Thụy Lâm chưa kịp phản ứng, dương vật chôn sâu trong thân đột nhiên rút đẩy, ống dẫn bị hút nước và thân dương vật giữa nổ ra ma sát đáng sợ, như hai hòn đá lửa đập mạnh, bắn ra tia lửa cực sáng. Nàng không rảnh thưởng thức, chỉ trong tiếng hét cao trào mất nước, co giật từ hoa huyệt nhỏ truyền khắp toàn thân, ngay cả lưỡi cũng vì khoái cảm quá độ mà thè ra, run rẩy lung tung trong không trung.
 
-"Dâm quá? Như vậy đã cao trào rồi à? "
+"Dâm quá? Như vậy đã cao trào rồi á? "
 
 "Xem bụng nàng, co giật dữ quá…"
 
@@ -3320,7 +3320,7 @@ Tiếng roi vang khắp phòng, nghe mà tim đập thình thịch. Thủ lĩnh 
 
 Roi không ngừng rơi xuống vô tình, Đới Thụy Lâm không ngừng khóc hét:
 
-"Ư ư… sắp hỏng rồi… đau quá… sắp bị roi đánh nát rồi… hà Á…"
+"Ư ư… sắp hỏng rồi… đau quá… sắp bị roi đánh nát rồi… há á…"
 
 Không biết lại bị thú nhân đánh bao nhiêu cái, Đới Thụy Lâm cứ í í á á kêu, cả giữa đùi hoàn toàn mở ra cho thú nhân. Thủ lĩnh đặt roi xuống, ngón tay nhanh chóng xoa huyệt vài cái, nước tiểu Đới Thụy Lâm lập tức không kiểm soát phun ra chân thủ lĩnh, làm ướt cả chân hắn.
 
@@ -3472,13 +3472,13 @@ Hai mảnh môi âm bị đánh dày, thậm chí âm vật non như chồi cũn
 
 Thịt mềm quanh cửa huyệt chưa run xong, bàn tay khác lại rơi, khoái cảm chua tê từ âm vật đâm vào hoa huyệt nhỏ, dâm thủy bắt đầu rơi rỉ không ngừng.
 
-"Á… hà Á… ứm Á…"
+"Á… há á… ứm Á…"
 
 Đới Thụy Lâm lắc đầu, cắn môi nức nở.
 
 Bàn tay thú nhân căn bản không dừng, đánh liên tục mấy cái, mỗi lần đều rất mạnh.
 
-"Á à… sắp… sắp tiểu rồi… ư ư, sắp tiểu rồi… đừng đánh nữa, ư Á…"
+"Á a… sắp… sắp tiểu rồi… ư ư, sắp tiểu rồi… đừng đánh nữa, ư Á…"
 
 Cảm giác thất kinh quen thuộc ập tới, nếu không có pháp thuật phong, Đới Thụy Lâm đã phun nước tiểu ra.
 
@@ -3754,7 +3754,7 @@ Nhìn thú nhân trước mắt cao lớn, da đen thô, mặt bò, nàng bản 
 
 Thú nhân lấy ra một quả trứng rung, bật công tắc, rồi ấn trứng rung đang rung lên âm vật Đới Thụy Lâm lộ ra ngoài.
 
-Kích thích mạnh mẽ khiến Đới Thụy Lâm sướng đau kêu lên: "Á à…"
+Kích thích mạnh mẽ khiến Đới Thụy Lâm sướng đau kêu lên: "Á a…"
 
 Vì kích thích quá lớn, âm vật vốn đã mẫn cảm trong khoảnh khắc trứng rung áp lên đã lập tức cao trào, khoái cảm đến vừa gấp vừa mạnh, xung kích Đới Thụy Lâm toàn người run giật dữ dội.
 
@@ -3762,7 +3762,7 @@ Rồi thú nhân đem trứng rung to bằng hai ngón tay này, thấm mật th
 
 Trứng rung bị thịt non kẹp lập tức rung mạnh hơn.
 
-"Á… à Á Á…"
+"Á… a Á Á…"
 
 Hoa huyệt nhỏ Đới Thụy Lâm bị quả trứng rung đó rung chua tê, tứ chi không ngừng run, nhưng vì tay chân bị dây trói, chỉ có thể giữ tư thế ưỡn ngực dang chân, để vài bộ phận riêng tư nhất cơ thể hoàn toàn lộ ra trước mắt thú nhân.
 
@@ -3812,7 +3812,7 @@ Bàn chân thú nhân lại đạp lên hoa huyệt đang run giật của nàng
 
 Nàng sướng vô lực rên rỉ:
 
-"Á à… à Á Á… chủ nhân…"
+"Á a… a Á Á… chủ nhân…"
 
 Chân thú nhân vẫn đạp lên âm hộ bị làm thảm hại của nàng, chậm rãi cọ xát, không ngừng ma sát môi âm đỏ sưng và âm vật.
 
@@ -3862,7 +3862,7 @@ Hậu huyệt chặt hơn hoa huyệt, bị dương vật thô to chống ra, Đ
 
 Thú nhân đâm cặc trong huyệt hậu môn mấy cái, hoa huyệt nhỏ vẫn còn nhét trứng rung, dương vật thú nhân thậm chí có thể cảm nhận tiếng rung ù ù của trứng rung.
 
-"Á… hà Á… đừng… đừng…"
+"Á… há á… đừng… đừng…"
 
 Đới Thụy Lâm bị ép vểnh mông chịu đâm của thú nhân, cặc thú nhân rất to, nàng cảm thấy hậu môn đã bị chống đến giới hạn.
 
@@ -3922,7 +3922,7 @@ Hai cây cặc điên cuồng trong hoa huyệt nhỏ va đập thô bạo, mỗ
 
 Hai cây cặc to dài trước sau va đập qua lại, làm tiếng nước quạch quạch không dứt.
 
-"Các ngươi mau dừng lại… hà Á… không chịu nổi…"
+"Các ngươi mau dừng lại… há á… không chịu nổi…"
 
 Đới Thụy Lâm giọng khản, không ngừng vặn eo, muốn tránh cặc to phía trước, nhưng thân thể vặn ra sau lại khiến cặc to phía sau đâm sâu hơn.
 
@@ -4048,7 +4048,7 @@ Trong sự đâm sâu của thú nhân, cặc hoàn toàn đâm vào tử cung �
 
 Kích thích quá lớn khiến Đới Thụy Lâm bản năng muốn tránh, nhưng eo nhỏ bị tay thú nhân giam chặt, như đóng đinh nàng trên cặc hắn, sao cũng không thể chạy trốn.
 
-"Á à… ta sắp đến rồi… ừm…"
+"Á a… ta sắp đến rồi… ừm…"
 
 Đới Thụy Lâm đã khóc đỏ mặt.
 
@@ -4192,7 +4192,7 @@ Cuối cùng, thú nhân áp vào cửa tử cung Đới Thụy Lâm bắn ra l�
 
 Nhưng sau khi bắn xong tinh dịch, hắn vẫn không rút ra, vẫn trong tử cung nàng tiếp tục thọc rút, sau đó lại bắn ra một dòng chất lỏng nóng bỏng.
 
-"Á à… nóng quá… sao có thể như vậy…"
+"Á a… nóng quá… sao có thể như vậy…"
 
 Đới Thụy Lâm nhận ra điều gì, mở to mắt.
 
@@ -4356,7 +4356,7 @@ Trừ vài giọt cuối cùng, gần như toàn bộ đều phun vào chậu ho
 
 Thủ lĩnh khen ngợi nàng, tiếp theo lại phun một dòng nước mạnh vào hậu huyệt nàng.
 
-"Á à à—"
+"Á a a—"
 
 Đới Thụy Lâm bị kích thích ngửa đầu hét lớn, hậu huyệt co thắt dữ dội, kẹp thủ lĩnh đến mức hắn phải rít lên.
 
@@ -4450,7 +4450,7 @@ Thú nhân lúc này lại lấy ra một cái kẹp kim loại nhỏ, phía sau
 
 Thủ lĩnh không chút do dự, thông qua thiết bị ở đầu kia của dây mở dòng điện.
 
-"Á à à— đau quá— đừng Á…"
+"Á a a— đau quá— đừng Á…"
 
 Một dòng điện kích thích giật vào âm vật mẫn cảm của Đới Thụy Lâm, âm vật lập tức trở nên đỏ sưng hơn.
 
@@ -5182,7 +5182,7 @@ Mặt đất trở nên nhầy ướt và trơn trợt, hai bàn chân Đới Th
 
 Bên tai truyền đến tiếng uốn éo nhầy ướt, thứ gì đó lạnh lẽo, ướt át trong nháy mắt tiếp theo quấn chặt lấy cổ chân Đới Thụy Lâm, như rắn siết chặt con mồi vậy.
 
-"Á à…"
+"Á a…"
 
 Nàng la hét, quay người điên cuồng vùng thoát, nhưng nhiều xúc thủ dạng dây leo thịt ùa đến từ khắp bốn phương, từng cái quấn lấy cổ tay và mắt cá chân nàng, thậm chí quấn cả vào bên cổ và eo nàng, tước đoạt tự do cuối cùng của nàng.
 
@@ -5504,7 +5504,7 @@ Nàng thậm chí có thể cảm nhận rõ, đầu xúc thủ đang từng nh�
 
 Đúng vào khoảnh khắc Đới Thụy Lâm lên đỉnh, A Đỗ Tát Tư không do dự dùng pháp thuật cắt đứt chi xúc thủ của mình.
 
-"Á à à — ngươi… ngươi…"
+"Á a a — ngươi… ngươi…"
 
 Đới Thụy Lâm bị hành động của người đàn ông này làm kinh hãi, nàng chưa kịp kêu lên kinh sợ thì đã phát hiện đoạn xúc thủ cụt bị cắt nằm trong hoa huyệt nàng đang uốn éo và len sâu vào bên trong, dù nàng có cố tống nó ra thế nào cũng vô ích.
 
