@@ -8764,7 +8764,7 @@ Vừa chạm đất, đùi mềm đau, lại ngồi bật xuống giường.
 
 Tiêu Kinh nói ngông, nhưng… cũng có lý.
 
-Kiều nương sốt ruột, cuối cùng vẫn ngồi yên để Tiêu Kinh squat mang giày giúp.
+Kiều nương sốt ruột, cuối cùng vẫn ngồi yên để Tiêu Kinh cúi mang giày giúp.
 
 Đợi sắp xong ra ngoài, đã lâu sau.
 
@@ -9167,6 +9167,1292 @@ Kiều nương giữ hắn, không cho đi vội, nghiến răng:
 “Không phải bệnh… là… là kinh nguyệt tới, bụng hơi đau thôi. Chàng lấy cho ta bình nước nóng… ôm bụng sẽ đỡ.”
 
 Tiêu Kinh nghe vậy lập tức chuẩn bị bình nước, nhét vào chăn cho nàng ôm tay ôm bụng.
+
+---
+
+## Chương 121 Bắn ra quá nhiều…
+
+Kiều nương lúc này mới dịu đi một chút. Nhưng Tiêu Kinh đứng bên nhìn, vẫn nhíu mày đậm, trong lòng nghĩ tháng trước khi nàng tới kinh, lúc ấy thân thể còn yếu hơn, cũng không thấy đau đến thế, sao lần này lại nặng như vậy, chẳng lẽ thật do trời lạnh?
+
+"Đỡ hơn chưa?" Tiêu Kinh hỏi gấp.
+
+"Đỡ nhiều rồi, ta không sao." Kiều nương nắm tay Tiêu Kinh, ngón tay khẽ vuốt trong lòng bàn tay hắn.
+
+"Ngủ một giấc đi, đến giờ cơ ta gọi nàng dậy."
+
+"Vâng."
+
+Kiều nương nhắm mắt, mặt còn tái, chậm rãi thiếp đi. Sau khi nàng ngủ, Tiêu Kinh lại đợi thêm một lúc, thấy nàng thật sự ngủ say, mới vội vã ra ngoài.
+
+Lúc ấy trên đất đã lót một lớp tuyết mỏng, hắn giẫm lên nhanh như bay, một đường đi gấp. Chẳng mấy chốc, Tiêu Kinh kéo Lê Viễn về, cảnh ấy quen thuộc, không lâu trước đã xảy ra mấy lần.
+
+"Lần này lại sao nữa? Bị thương chỗ nào mà gấp thế?" Lê Viễn đã quen, chẳng còn tức, bước sát theo Tiêu Kinh.
+
+"Không biết."
+
+"Không biết? Không biết thì gọi ta tới làm gì? Chẳng lẽ không có bệnh trạng?"
+
+"Chính vì không biết mới gọi ngươi. Ngươi chẳng phải đại phu sao?"
+
+"Ngươi…"
+
+Uổng công Lê Viễn đọc sách cả đời, lại không nói lại một tên thô lỗ.
+
+Tiêu Kinh nhíu mày, cuối cùng vẫn nói: "Bụng nàng đau."
+
+"Bụng đau? Có phải lạnh bụng không, có ăn đồ lạnh sống không?" Lê Viễn đoán bệnh. "Ngươi kể cho ta chế độ ăn uống mấy ngày nay của nàng."
+
+Hai người đàn ông vừa đi vừa nói, vào sân, tới cửa. Lê Viễn định bước vào thì bị Tiêu Kinh giữ cổ tay.
+
+"Ngươi làm gì vậy? Chẳng phải ngươi kêu ta tới khám?" Lê Viễn ngơ ngác.
+
+"Nàng đang ngủ, ngươi nhẹ chân, đừng nói." Tiêu Kinh dặn nặng nề.
+
+"Được rồi, ta biết. Ngươi đối với nàng quả thật tốt."
+
+"Nàng là nương tử ta, ta đương nhiên phải tốt với nàng."
+
+Lê Viễn vốn định trêu Tiêu Kinh vài câu, nhưng nghe giọng hắn trầm mà chắc, không hiểu sao lại có cảm giác như bị người ta khoe ân ái trước mặt. Thôi thôi, gã đại phu này cứ làm tròn bổn phận khám bệnh vậy.
+
+Hai người khẽ bước vào, Kiều nương đang ngủ, trong nhà ấm, mặt nàng cũng hồng lên chút. Nhưng Lê Viễn liếc một cái đã thấy trước hết quầng thâm dưới mắt nàng, rồi bắt mạch, thỉnh thoảng lại nhìn Tiêu Kinh đứng bên căng thẳng.
+
+Lâu sau, y thu tay, nói: "Ra ngoài nói."
+
+Tiêu Kinh cũng muốn vậy, hai người đóng cửa lại, ra mái hiên.
+
+"Nàng bị sao? Bệnh gì?" Tiêu Kinh hỏi gấp.
+
+"Không phải bệnh."
+
+"Không phải bệnh? Không phải bệnh thì nãy sao như sắp ngất?" Sắc mặt Tiêu Kinh càng đen.
+
+"Hừ, chẳng lẽ ngươi nghi ngờ y thuật ta? Sư phụ ta là ngự y trong cung, ta là đệ tử xuất sắc nhất của người, tuyệt đối không chẩn sai mạch." Lê Viễn khẽ cười khẩy.
+
+"Vậy Kiều nương thế nào?"
+
+"Thế nào à, cái đó phải hỏi ngươi, Tiêu Kinh."
+
+"Hỏi ta?" Tiêu Kinh nhìn chằm Lê Viễn, chờ lời tiếp.
+
+"Không phải bệnh, là xả quá nhiều, hao thân." Lê Viễn vừa nói vừa trừng Tiêu Kinh một cái.
+
+Tiêu Kinh sững người, đứng cứng tại chỗ.
+
+"Nương tử ngươi là con gái mảnh mai, không giống ngươi to cao thô kệch, một lớp cơ bắp, thể chất như trâu. Ngươi đêm nào cũng vậy, xương cốt nàng sao chịu nổi."
+
+Lê Viễn chê bai Tiêu Kinh om sòm, giọng khoa trương một nửa thật một nửa giả, còn một nửa là thói quen chọc ghẹo nhau. Dù sao chuyện Song Nương chủ động nhắc hôn ước với Tiêu Kinh, bao năm qua vẫn là cái gai trong lòng Lê Viễn.
+
+Nhưng trong lòng y lại biết ơn những ngày y không có mặt, Tiêu Kinh đã từng chăm Song Nương. Nên y mới luôn giúp Tiêu Kinh, nhưng lời nói chẳng nương tay.
+
+Giờ lời Lê Viễn nghe vào tai Tiêu Kinh, lạnh hơn cả tuyết trên trời, đâm thấu xương. Hắn sầm mặt, trong lòng dường như đã có quyết định.
+
+"Ngươi định làm gì?" Lê Viễn nhận ra, giữ Tiêu Kinh lại trước khi hắn cử động.
+
+"Lên trấn, mua nhân sâm."
+
+Tiêu Kinh nghĩ đơn giản: lần trước mạng Kiều nương là nhân sâm cứu được, thì giờ cũng có thể dùng nhân sâm bồi lại.
+
+"Ê ê ê, gấp gì vậy? Để ta nói hết đã." Lê Viễn tốn sức lắm mới giữ được Tiêu Kinh, thở dốc: "Cũng không nặng đến thế, không cần nhân sâm, ăn ngon ngủ khỏe, đừng để lạnh, nghỉ ngơi cho ra, thân tự khôi phục. Nhưng điều quan trọng nhất là, trong thời gian ngắn, không được phòng sự nữa."
+
+"Thật sẽ khỏi?" Tiêu Kinh dừng tại chỗ, mắt nặng, hỏi lại bằng giọng nghi ngờ ba phần.
+
+"Ngươi không tin ta thì gọi ta làm gì? Nhớ hết lời ta vừa nói, nhất là câu cuối, nghe rõ chưa?"
+
+"Ta nghe rõ."
+
+Tiêu Kinh đáp, lại hỏi Lê Viễn vài chuyện ăn uống hằng ngày, rồi mới để y đi. Lê Viễn bước trong tuyết mịt mù, gió lạnh thổi, co cổ lại, hơi lạnh, nhưng mặt lại mang nụ cười, lưng về phía Tiêu Kinh, không cho hắn thấy.
+
+Người này nhìn nho nhã, trong bụng cũng có nước đen. Không được phòng sự nữa, có Tiêu Kinh chịu khổ.
+
+Tiêu Kinh nhanh chóng về nhà, đóng cửa gấp, không cho gió lạnh lùa vào. Trở lại giường, Kiều nương khẽ nhíu mày, mơ màng tỉnh: "A Kinh, nãy ai tới? Ta như nghe tiếng chàng nói."
+
+Tiêu Kinh kéo chăn cho nàng, đáp: "Không ai cả, ta tự lẩm bẩm, nàng ngủ tiếp đi."
+
+"Ừm…"
+
+Kiều nương trở mình, lại ngủ. Tiêu Kinh lặng lẽ nhìn, mặt lâu lắm không hết vẻ tự trách. Kiều nương không hay biết gì. Đến bữa tối, thấy Tiêu Kinh nấu một bát canh gà, nàng liếm môi, hỏi: "Chàng lấy gà đâu?"
+
+"Đổi thịt muối với hàng xóm. Nàng thích không?" Tiêu Kinh đặt đũa, hỏi.
+
+"Thích." Ánh mắt Kiều nương rời khỏi bát canh, ngước nhìn Tiêu Kinh, cười: "Lần sau đừng đổi nữa. Thịt muốn ăn được lâu, canh gà chỉ một bữa, phí quá."
+
+Bất ngờ chưa, thứ Sáu cũng có chương mới~
+
+---
+
+## Chương 122 Đó đều là mệnh nàng…
+
+"Không phí đâu, nàng thích là được."
+
+Tiêu Kinh vẫn là Tiêu Kinh, giọng vẫn trầm như mọi khi, nhưng Kiều nương nhìn hắn, trong chỗ nhỏ nhặt cảm thấy có điều gì khác. Từ khi nàng tỉnh lại, ánh mắt Tiêu Kinh nhìn nàng càng chăm chú, thoáng còn vài phần khác, nhìn mãi lại thoáng nặng nề, không còn nhẹ như trước.
+
+Kiều nương không chắc, trong mắt lóe qua là thật hay nàng đa tâm. Nhưng vẫn nhịn không được, lúc ăn hỏi:
+
+"A Kinh, lúc ta ngủ có chuyện gì xảy ra không?"
+
+Tiêu Kinh gắp một miếng thịt gà vào bát cơm Kiều nương: "Chẳng có gì, ăn cho tập trung, ăn nhiều chút."
+
+"Đã nhiều lắm rồi, đừng gắp cho ta nữa. Chàng cũng ăn." Trong bát nhỏ của nàng gần tràn, toàn thịt, chẳng có rau, ăn đến bóng mỡ.
+
+Chuyện ấy trong lời qua tiếng lại cũng lướt qua, Tiêu Kinh giấu trong lòng không nói, Kiều nương cũng không moi được miệng hắn.
+
+Đêm tĩnh, tuyết ngoài nhà rơi không tiếng, trên đất tuyết càng dày. Trong bếp, lửa bếp cháy lép bép, thỉnh thoảng nổ lách tách, khói bốc lên nghi ngút.
+
+Mùa đông năm nay thật sự đã bắt đầu. Nhưng sự yên tĩnh ấy bị một tràng khóc cắt ngang.
+
+Kiều nương lúc đầu cũng không để tâm, có lẽ nhà nào trẻ phạm lỗi bị đánh, chuyện thường. Nhưng tiếng khóc theo gió lạnh kéo dài, càng lúc càng to, càng thảm, như ngay cạnh sân nhà họ.
+
+Tiếng khóc làm Kiều nương nhíu mày, trong ngực dấy lên bất an. Nàng vốn ngồi bên bếp sưởi, đợi Tiêu Kinh dọn bếp rồi cùng về phòng, nhưng ngồi không yên, thỉnh thoảng thò đầu ra xem chuyện gì.
+
+"A Kinh, chúng ta ra xem đi." Kiều nương cuối cùng không nhịn được, tiếng khóc như gào xé tai nàng.
+
+Tiêu Kinh lau tay, đáp: "Ta về phòng lấy áo cho nàng, nàng ra sau."
+
+Coi như hắn gậy. Hắn khoác thêm áo ngoài cho Kiều nương, hai người lội tuyết, theo tiếng khóc mà đi. Vừa ra khỏi sân không xa, tiếng khóc càng nặng.
+
+Chuyện xảy ra nhà bên cạnh, đã có vài người vây quanh. Kiều nương lại gần nhìn, thấy một cô bé chừng mười ba mười bốn tuổi mặc áo rách mỏng, ngã trong tuyết, vừa khóc vừa ôm chân một người đàn bà.
+
+"Mẹ, con xin mẹ, Hỉ Nhi xin mẹ, đừng gả con đi. Con mới mười bốn! Mẹ, xin cho con ở nhà thêm vài năm!" Hỉ Nhi khóc lem nước mắt, nằm lâu trong tuyết, tay và má hở ra đỏ cả.
+
+Dưới ánh mờ, Kiều nương thấy cảnh ấy, tim run lên, như gió lạnh ập vào mặt.
+
+Người đàn bà bị Hỉ Nhi ôm mặt cứng, vung tay quát: "Mày khóc thế cũng vô ích, nhà người ta thách cưới cha mày đã nhận rồi, không gả cũng phải gả!"
+
+"Mẹ, đừng… Hỉ Nhi không muốn lấy chồng…"
+
+Tiếng khóc thảm thiết vang mãi không dứt. Con gái nhà nghèo lấy chồng sớm, mười ba mười bốn cũng coi là thường, nhưng vấn đề nằm ở người chồng…
+
+"Bà Chu kia quả thật nỡ lòng, gả con bé thế cho một gã góa ở thôn bên."
+
+"Phải đó, nghe nói gã góa đã hơn bốn mươi, tuổi còn lớn hơn cả cha Hỉ Nhi, trước chết ba vợ, toàn bị say đánh chết."
+
+"Biết làm sao được, người ta có tiền. Nhà bà Chu ba thằng con trai, nghèo rớt mồng tơi, thằng út đến giờ chưa lấy được vợ. Chờ tiền bán thân Hỉ Nhi mà cưới dâu…"
+
+Dù chuyện tàn nhẫn thương cảm, lời dân làng vẫn thản nhiên, chỉ một tiếng thở dài nhẹ rồi hết. Không ai thương Hỉ Nhi, không ai lên tiếng giúp, chỉ có một bà kéo Hỉ Nhi đứng dậy khỏi tuyết, nhét vào tay một củ khoai lang nướng.
+
+"Hỉ Nhi, đừng khóc nữa, khóc mặt lạnh cóng hết. Ăn khoai nướng của dì, về nghe lời mẹ. Mẹ làm gì hại con? Nhà người ta có ruộng có tiền, qua bên đó ngày nào cũng có khoai nướng."
+
+Lời dỗ dành ấy cũng coi như an ủi.
+
+Kiều nương đứng bên nhìn ngẩn người. Nàng từng bị bán như súc vật, nhưng lúc đó một mình côi cút, bất đắc dĩ. Giờ Hỉ Nhi cha mẹ còn, lại bị chính cha mẹ đẩy vào lửa. Nhìn tận mắt, tay chân nàng lạnh buốt, run lên.
+
+"Lạnh à? Về thôi." Tiêu Kinh ôm chặt nàng, khẽ hỏi.
+
+Kiều nương ngước nhìn Tiêu Kinh, lại nhìn quanh, ánh lo âu cuối cùng dừng lại Hỉ Nhi. Tiêu Kinh hiểu mắt nàng, thở dài, khẽ nói: "Chúng ta không giúp được nàng."
+
+"Chúng ta có thể cho nàng bạc. Thế không phải không phải gả nữa." Kiều nương đề nghị nhỏ.
+
+Tiêu Kinh lắc đầu, vẫn câu ấy: "Kiều nương, chúng ta thật sự không giúng được."
+
+Đúng lúc đó trong đám đông có thêm tiếng động, hóa ra Lê Viễn và Song Nương tới. Lê Viễn là trưởng thôn, chuyện thế này có người đi báo ngay.
+
+Kiều nương thấy Song Nương thì mừng, trong hỗn loạn hai người liếc nhau, chưa kịp nói. Nàng đứng chờ, nghĩ có Lê Viễn và Song Nương có thể khuyên bà Chu bỏ hôn, đừng gả Hỉ Nhi cho người như vậy.
+
+Nhưng cuối cùng… Song Nương đưa Hỉ Nhi vào nhà, cũng nói với bà Chu một lúc, Lê Viễn giải tán người xem, đây là việc nhà bà Chu, để họ tự xử.
+
+Người tan, chuyện cũng như thế kết. Nhưng với hôn sự Hỉ Nhi, không ai nói một câu phản đối, một câu không hợp, vẫn y như cũ.
+
+Cuối cùng bà Chu đỏ mắt, giọng thô: "Nó là con gái ta, miếng thịt từ người ta rớt xuống, ngươi tưởng ta nỡ? Nhưng nó không gả, ba thằng con trai ta lấy vợ bằng cách nào? Đó đều là mệnh nó, ai bảo nó đầu thai không mở mắt, chọn nhầm nhà chúng ta. Mười bốn năm nay ta cho nó ăn, không để chết đói, chẳng lẽ nó không nên báo đáp ta? Đó đều là mệnh nó…"
+
+---
+
+## Chương 123 Thêm một phần xuân tình…
+
+Đó đều là mệnh nàng… Kiều nương nằm trên giường trằn trọc không ngủ, trong đầu cứ văng vẳng câu ấy. Lúc bà Chu nói, giọng tức giận, giận Hỉ Nhi không nghe lời khiến bà thành trò cướng và ác nhân cả thôn. Nhưng trong đó còn nhiều hơn là bất lực giữa đời khốn khó…
+
+"Không ngủ được?" Tiêu Kinh đột ngột lên tiếng, phá tan im lặng.
+
+"Ừm." Kiều nương nghiêng người, nắm tay Tiêu Kinh chặt hơn.
+
+"Trong lòng khó chịu? Còn nghĩ chuyện nãy?" Tiêu Kinh trong bóng tối mở mắt, mơ hồ thấy nếp nhăn giữa mày Kiều nương.
+
+"A Kinh, mai chàng đi hỏi thử, bà Chu rốt cuộc nhận bao nhiêu thách cưới. Ta với chàng lén đưa bạc cho Hỉ Nhi được không?" Kiều nương nghĩ cả đêm, chỉ nghĩ ra cách này.
+
+"…" Tiêu Kinh một lúc không nói, chìm trong im lặng. Hắn chiều Kiều nương trăm thứ, duy chuyện này từ đầu đã không tán thành.
+
+"A Kinh, chúng ta thử đi." Kiều nương hiểu hắn không đồng ý, khuyên: "Chàng mua ta về, đổi mệnh ta. Có lẽ chúng ta cũng giúp được Hỉ Nhi."
+
+Nàng không quên được gương mặt khóc lem nhem ấy, không nhìn được một thiếu nữ rơi vào bóng tối tàn nhẫn. Ngực Tiêu Kinh phập phồng nặng, cuối cùng nhượng bộ: "Nếu nàng thật lòng muốn vậy thì làm. Nhưng…"
+
+Hắn bóp lòng bàn tay nàng, đầu ngón tay khẽ cọ: "Nếu việc không như ý, nàng cũng đừng buồn."
+
+"Ừm. Ta chỉ muốn thử một lần." Kiều nương gật. "A Kinh, cảm ơn chàng."
+
+Nàng cọ má vào ngực hắn, má áp vai, trong hơi ấm quanh quẩn, cuối cùng có chút buồn ngủ. Tiêu Kinh lại cứng người, trong bóng tối mắt sáng rực, đầy dục vọng đậm.
+
+Luồng nóng ấy chạy khắp tứ chi bách hài, kích thịt căng cứng nóng, nhưng hắn không còn tùy tiện như trước, thậm chí không dám sờ mông hay véo ngực. Hai tay cứng đỡ, nhịn đến dục tan, trời hơi sáng mới nhắm mắt.
+
+Hôm sau Tiêu Kinh hỏi được, nhà kia đưa năm trăm văn thách cưới. Năm trăm văn… Kiều nương không tin nổi, một cô gái sống động chỉ đáng năm trăm văn. Sáng nay nàng còn thấy Hỉ Nhi ra trong gió lạnh, bưng chậu gỗ xuống sông giặt. Trời lạnh, nước gần đóng băng, nước đâm xương.
+
+Mấy hôm nay Tiêu Kinh đã không cho nàng xuống sông, nước lạnh cũng không đụng, mà một cô gái gầy gò phải làm hết việc nhà. Thế mà cũng vì có năm trăm văn mà bị đuổi khỏi nhà.
+
+Kiều nương càng quyết đưa tiền. Có lẽ bà Chu nhận tiền, lo xong vợ cho thằng con thứ ba, sẽ không vội gả Hỉ Nhi, đợi nàng mười sáu rồi chọn người tử tế.
+
+Trên đường Hỉ Nhi giặt xong về, Song Nương lén gọi nàng lại.
+
+"Chị là… người… nương tử mua về nhà này?" Hỉ Nhi chưa gặp Song Nương, chỉ nghe đồn, mắt đen chớp chớp nhìn kỹ.
+
+"Ừm, ta là nương tử Tiêu Kinh." Kiều nương sợ người thấy, không dám lề mề, nhanh tay nhét năm trăm văn vào cổ áo Hỉ Nhi: "Đây là năm trăm văn, nàng đưa cho mẹ, bảo mẹ hủy hôn."
+
+"… Thật là bạc?" Hỉ Nhi mừng quá, sốt sắng muốn xem, suýt làm rơi chậu.
+
+"Thật. Về nhà xem từ từ, ta không lừa nàng." Kiều nương dặn: "Tuyệt đối đừng nói với mẹ là ta cho, nhớ chưa?"
+
+"Thế… thế con phải nói sao…" Hỉ Nhi mừng đến choáng, mặt còn hoảng.
+
+"Bảo là nàng nhặt được, trời không để nàng lúc này xuất giá." Kiều nương nghĩ sẵn lời. Bà Chu bảo đó là mệnh Hỉ Nhi, vậy để trời đổi mệnh nàng.
+
+"Cảm ơn chị. Cảm ơn… cảm ơn chị…" Hỉ Nhi mừng rơi nước mắt, mặt đỏ vì rét.
+
+"Đừng khóc. Về lau nước mắt, đừng để mẹ thấy. Nhớ, không được nói với ai. Chỉ nàng biết ta biết, trời biết đất biết." Kiều nương sợ Hỉ Nhi nhỏ, về bị bà Chu hù mấy câu đã lỡ lời, lại nhắc nặng.
+
+"Chị yên tâm, con nhớ rồi. Con nhất định không nói!" Hỉ Nhi hứa liên tục.
+
+Lúc về Hỉ Nhi ngoảnh đầu ba lần, mặt cuối cùng có cười. Kiều nương thở phào một hơi dài.
+
+"Yên tâm rồi?" Tiêu Kinh không biết đã tới bên, khẽ hỏi.
+
+"Lúc ta cùng đường gặp chàng, A Kinh, chàng cũng là mệnh của ta." Kiều nương nhìn bóng Hỉ Nhi xa dần như thấy mình ngày xưa.
+
+Tiêu Kinh phủi tuyết trên vai nàng, mặt thô mà ấm. Có lẽ quyết định này không sai…
+
+"Đây lạnh, mau về nhà."
+
+Tiêu Kinh kéo nàng vào nhà, sờ tay sờ mặt, không lạnh, mới yên tâm.
+
+"A Kinh, dạo này chàng lo cho ta quá." Kiều nương thấy hắn cẩn thận, cười hỏi.
+
+Kẻ nói vô tâm người nghe hữu ý. Vai Tiêu Kinh run nhẹ, suýt lộ, cúi đầu: "Đông mà cảm phong khó khỏi lắm, nàng cẩn thận thân."
+
+"Có chàng giữ, ta chẳng hở gió lạnh, sao cảm phong được." Kiều nương cười khẽ, khóe môi cong.
+
+Tiêu Kinh ngước lên, vừa lúc thấy nàng mị màu, mắt hắn thoáng đứng. Ngày ngày gặp mà giây phút này vẫn ngẩn. Mặt Kiều nương nóng lên, để hắn nhìn, mắt long lanh, thêm một phần xuân tình.
+
+---
+
+## Chương 124 【Một đợt cập nhật】
+
+Kiều nương chú ý ánh mắt Tiêu Kinh càng lúc càng đậm, cũng thấy dục vọng cuộn dưới đáy mắt hắn. Nàng lặng lẽ nhìn nhau với hắn, trong ánh mắt dịu cũng thêm một tia chiều chuộng.
+
+Tuyết rơi xong không còn việc gì, rảnh mà vui vẻ, cũng… chẳng sao. Trong lòng Kiều nương nàng thậm chí gác luôn ước hẹn trước đây, muốn dùng cách người đàn ông này thích nhất đáp lại hắn, cưng hắn, để Tiêu Kinh cũng cảm thấy được yêu như nhau.
+
+Không khí quanh hai người nóng lên, như mấy lần ân ái bắt đầu, tai như vang tiếng lép bép, như củi khô gặp lửa. Hơi Kiều nương dốc, mắt ướt ánh.
+
+Nhưng giây sau. Tiêu Kinh bỗng rụt mắt, quay sang ấm trên bàn. Hắn cúi rót trà, tay siết chặt chén, giọng vọng lại: "Nương tử, nàng khát không? Uống trà cho đỡ khô cổ không?"
+
+Dù hỏi vậy, hắn không đợi Kiều nương trả lời đã rót đầy một chén, đặt trên bàn. Rót xong, hắn chắp tay sau lưng, lùi một bước.
+
+Kiều nương nhíu mày, nhìn chén gần tràn, lại nhìn Tiêu Kinh đứng bên, thấy lạ mà không nói được lạ chỗ nào. Không khí ái muội vừa nhen theo mắt hắn rụt đã tan hết, chỉ còn trà mới rót bốc khói, như còn hơi ấm.
+
+"Ồ…"
+
+Trong không khí quái lạ, Kiều nương ngơ ngác đưa tay uống hết chén ấm. Cổ họng ấm, lòng lại có cảm giác chưa từng có, cứ vướng mãi. Uống trà nàng vẫn thỉnh thoảng liếc Tiêu Kinh, mặt hắn trầm, chẳng khác mọi khi.
+
+Chuyện nhỏ ấy cũng qua. Kiều nương đặt chén xuống, lấy ra một thứ, nói: "A Kinh, áo bông này ta may xong rồi, chàng mặc thử. Chỗ nào không vừa ta sửa."
+
+"May xong rồi?" Tiêu Kinh hiếm khi ngạc nhiên.
+
+"Ừm, xong rồi. Đây là… lần đầu ta may. Không vừa thì ta bảo tiệm may." Ngón tay Kiều nương vuốt vải kẻ ô vuông, má hơi hồng.
+
+Nàng thường chỉ thêu khăn tay, chưa may áo đàn ông, trong lòng không chắc. Tiêu Kinh không rõ nhà khác may mấy ngày, nhưng nương tử nhà hắn ngay cả yếm cũng mất nhiều ngày, áo này nhanh thế là ngoài dự đoán, nên mới sững.
+
+Nghe vậy hắn liền bảo: "Không thể không vừa. Nương tử may, mặc trên người ta nhất định vừa."
+
+Nói xong hắn đã cởi áo ngoài, chỉ còn một lớp áo trong, giơ tay lấy áo mới.
+
+"Để ta." Kiều nương cản.
+
+"Vâng."
+
+Tiêu Kinh đáp, giơ tay đứng như giá áo. Giữa họ toàn Tiêu Kinh mặc cho nàng lúc nàng còn mơ màng, Kiều nương mặc cho hắn thế này là lần đầu.
+
+Áo nàng tự may. Nàng còn tự mặc cho hắn. Tiêu Kinh nghĩ vậy, dưới lớp áo trong ngực phập phồng mấy nhịp mới nén được hơi nóng dội lên.
+
+Tay áo… cổ áo… dây… Kiều nương chưa từng mặc áo cho đàn ông, nhưng kiểu mẹ chăm cha nàng từng thấy vẫn nhớ. Nàng bắt chước mẹ, chỉnh áo ngay ngắn cho Tiêu Kinh.
+
+Người đàn ông cao lớn vạm vỡ, mặc áo kẻ ô, hợp hơn nàng tưởng. Vẻ thô hàn của Tiêu Kinh như bị dìm, lại toát khí anh hùng trầm ổn, cùng gương sâu, người gặp hằng ngày như nàng cũng ngẩn mấy phần.
+
+"Sao vậy? Mặc lên không đẹp?" Tiêu Kinh bắt được Kiều nương ngẩn, nhíu mày, hơi gượng.
+
+Hắn chưa mặc vải tốt thế, cũng chưa được ai chăm thế, luống cuống, động đậy muốn cởi.
+
+"Đừng động." Kiều nương vội cản: "Đẹp. Chàng mặc, đẹp lắm."
+
+Đàn ông trước đây chẳng thích bị gọi là "đẹp", nhưng từ miệng nương tử lại thấy trong lòng thoải mái, khóe miệng không kìm được cong.
+
+Đẹp… Nương tử khen hắn đẹp. Tiêu Kinh trong người nóng ran, cứ nghĩ đi nghĩ lại. Kiều nương lại chỉnh cổ áo hắn làm rối, mắt cụp, thần chăm, dựa trước ngực hắn, bên thân nhỏ nhắn gần như bị hắn bọc kín, chìm hẳn vào.
+
+---
+
+## Chương 125
+
+Chưa quấn lấy nhau, cũng chưa chạm, nhưng chỉ gần như vậy, hai thân quen thuộc đã cảm hơi nhau, vô thức lại lại gần. Gần… Hơi nóng vừa tắt lại bùng như tro nóng, quấn lại. Như sợi chỉ đỏ buộc Kiều nương với Tiêu Kinh chặt.
+
+Không khí đổi đột ngột, hai người đều rõ, nhưng không ai chọc thủng lớp giấy mỏng. Kiều nương ngước nhìn Tiêu Kinh, má trắng đỏ hết, mắt lưu chuyển, mị mà. Chỉ một cái liếc đã in vào mắt, vào đầu, vào lòng Tiêu Kinh, khắc sâu, ngực phập phồng mạnh hơn.
+
+Máu sôi, áo mới lại dày ấm, nóng đến mức giữa trời tuyết Tiêu Kinh gần như toát mồ hôi, đầu như bốc khói. Kiều nương cũng không biết đối mặt ánh mắt hắn nóng thế thế nào, tuy không dám nhìn thẳng nhưng không tránh, trong lòng thầm mong chuyện sắp tới, thậm chí giữa hai đùi, trong quần lót cũng ẩm nóng, dâm thủy chảy ra, sẵn sàng đón thịt căng Tiêu Kinh sắp đâm vào.
+
+Chuẩn bị… để chứa thịt cứng Tiêu Kinh sắp thúc vào. Kiều nương chỉnh xong cổ, cúi chỉnh dây lưng.
+
+"Eo chỗ này… ta may rộng chút, không khít, để ta sửa lại. Hoặc siết dây chặt hơn, đừng hở gió…" Nàng vừa nói vừa với tay sau lưng Tiêu Kinh, chỉnh từng chi tiết.
+
+Khi vòng tay qua, nàng lại gần hắn hơn, má dán ngực hắn, cảm nhịp thở, cả tiếng tim dưới da. Thịch thịch. Như của Tiêu Kinh, cũng như của chính nàng. Chìm trong hơi nóng ấy, Kiều nương không nỡ rụt tay, để lưng Tiêu Kinh mãi. Lâu đến mức eo nàng cũng có thêm sức nặng.
+
+Là Tiêu Kinh ôm nàng. Kiều nương nhắm mắt, mi mắt rủ hiền, nước mềm… đợi Tiêu Kinh bế nàng lên hoặc đè xuống giường.
+
+Nhưng… Trong đầu nàng chẳng có gì xảy ra. Tiêu Kinh ôm eo nàng, nhẹ đẩy ra sau, Kiều nương bị đẩy khỏi lòng hắn.
+
+"Nương tử, để ta tự."
+
+Tiêu Kinh lấy dây từ tay nàng, buộc lên người, siết mạnh, nhanh gọn. Hắn lùi hai bước, đưa cho nàng xem: "Nương tử, thế này được không?"
+
+"Được… được…"
+
+"Trên mái còn việc chưa xong. Ta ra làm tiếp, nàng ở trong đừng ra, nghỉ cho khỏe." Tiêu Kinh nói, không đợi Kiều nương đáp đã ra cửa. Bước lớn, bóng nhanh biến mất.
+
+Kiều nương đứng lặng lâu, nếu không trong nhà thật vắng một người, nếu không lúc đẩy cửa có gió lạnh quất vào mặt… nàng còn không tin vừa rồi. Nàng bị đẩy ra? Hắn đi thật rồi?
+
+Kiều nương siết ngón tay, trên tay còn hơi ấm Tiêu Kinh, nhưng trước mắt không còn người. Chuyện sao khác hẳn nàng tưởng? Chẳng lẽ Tiêu Kinh không hề muốn… muốn… ban ngày… Trái lại nàng, chỉ dựa vào lòng hắn đã dục dâng, thèm khát, dâm đãng.
+
+Vệt ẩm giữa hai đùi còn lại như chứng cứ. Mặt Kiều nương càng đỏ, xấu hổ tức giận, muốn đào hố chôn mình.
+
+Trong nhà khó chịu, ngoài nhà còn hơn. Tiêu Kinh thở hổn hển ra sân, tay không nắm một nắm tuyết lạnh, siết chặt, cơ bắp dưới áo bông căng cứng, máu dồn, gió rít cũng không xua nổi. Huống chi thứ giữa háng, cứng như sắt, nóng như than.
+
+Không được… không được! Tiêu Kinh siết hàm, lặng thầm nhắc, đợi đỏ trong mắt tan dần, đợi dục tan giữa trời tuyết. Lời Lê Viễn hắn nhớ kỹ. Hắn không quên Kiều nương từng hôn mê, càng không muốn chuyện ấy lặp lại.
+
+Một bức tường, một cánh cửa, trong ngoài hai người. ***
+
+Hai ngày sau mới có tin Hỉ Nhi. Nghe nói hôn sự Hỉ Nhi đã hủy, dân làng lúc trà sau bàn chuyện, không rõ ngọn ngành, đoán bà Chu mềm lòng, không nỡ đẩy con ruột vào chỗ chết.
+
+Kiều nương nghe lời đồn, mặt không biểu cảm, lòng lại vui. Niềm vui ấy nàng chỉ bày cho Tiêu Kinh biết.
+
+---
+
+## Chương 126 【Ba đợt cập nhật】（3900 trân châu thêm chương）
+
+Đêm nàng dựa ngực Tiêu Kinh, nói đi nói lại: "Đợi thêm hai năm, Hỉ Nhi nhất định gặp được nhà tử tế."
+
+Có nhà tử tế, bình an vui vẻ nửa đời sau, là con đường duy nhất của đàn bà thời này. Lời Kiều nương không chỉ mừng mà còn là chúc từ đáy lòng. Nàng lúc cùng đường gặp Tiêu Kinh, Hỉ Nhi biết đâu cũng gặp "Tiêu Kinh" của riêng mình.
+
+Nghĩ vậy Kiều nương càng thấy mình may. Nàng trở mình dưới chăn, với tay ôm Tiêu Kinh. Giữa họ không cần thêm lời cảm ơn, so với "cảm ơn", yêu nhau thật lòng mới là cách tốt nhất.
+
+Trong tối Kiều nương không thấy mặt Tiêu Kinh, nhưng lực hắn ôm lại nặng, thế là đủ. Tay Tiêu Kinh siết, hai người dính chặt từ đùi đến bụng đến ngực đến cổ. Cảm nhiệt độ nhau, cảm chỗ lồi lõm.
+
+Cơ cứng Tiêu Kinh, ngực mềm Kiều nương, bụng căng Tiêu Kinh, hơi thở nông Kiều nương… Mắt Kiều nương trong chợt lóe, mi run, thêm một tia mê dục. Vì thịt căng Tiêu Kinh đã dựng cứng, kẹp giữa hai đùi nàng, thô dài nóng… nàng quen mấy hết.
+
+Ba ngày họ không làm. So với mấy hôm trước như bão, ba ngày ngắn ngủi sao mà dài. Lúc đầu Kiều nương còn vui, bớt trận kịch liệt đêm khuya thì không còn nửa đêm ngất, sáng không mơ màng, sinh hoạt trở lại bình thường.
+
+Nhưng giờ nàng mới là kẻ nhung nhớ, nhớ thịt thô dài của Tiêu Kinh trong âm hộ dậy sóng khoái cảnh vô biên. Muốn… Âm hộ còn thèm hơn thân, cứ gần Tiêu Kinh, ngửi mùi hắn là co thắt, trong đường hoa ướt tràn, mấy lần ướt cả một mảnh quần trong.
+
+Huống chi lúc này, lửa dục trong lòng bị châm, cháy thành lửa lớn.
+
+"A Kinh…" Kiều nương gọi mềm, đùi khẽ cựa, cọ vào thịt căng giữa háng Tiêu Kinh.
+
+Có lẽ đây là lần đầu nàng chủ động trêu dâm đến thế. Dù xấu hổ, vợ chồng cũng chẳng sao. Kiều nương tin Tiêu Kinh sẽ thích.
+
+Khi thịt căng rung trên đùi nàng, nàng càng chắc, vùi mặt ngực hắn, cười ngọt. Nóng… Nóng quá… Không nhịn… Dục Tiêu Kinh kích khắp thân, vốn đã nhịn nặng, lại bị nàng trêu, hắn nghiến răng, trán rịn mồ hôi hột, muốn vén chăn chạy ra tuyết cho hết nóng.
+
+"Đừng động!" Trước khi tự chủ gãy, Tiêu Kinh giữ chặt hai đùi Kiều nương, đè mạnh.
+
+"A…" Kiều nương sững, ngước nhìn, chớp mắt cố nhìn mặt Tiêu Kinh: "A Kinh, chàng sao vậy?"
+
+Tiêu Kinh không dám nhìn mắt nàng, chỉ ghé hôn trán, khẽ nói: "Trời lạnh, nàng sẽ lạnh."
+
+"Chàng…"
+
+"Ngủ đi."
+
+Tiêu Kinh vỗ lưng nàng, không buông, vẫn ôm chặt, dưới thân thịt cứng như sắt dựng giữa hai đùi nàng, không nhúc nhích.
+
+Thế… ngủ? Kiều nương không tin nổi quyết định này của Tiêu Kinh. Trước hắn ham dục, một ngày bốn năm lần cũng có, nếu nàng không cầu xin chẳng tha. Sao đột nhiên đổi tính.
+
+Trong lòng nàng vẫn thắc mắc, nhưng lý do Tiêu Kinh đưa lại làm ấm lòng. Hắn nhịn vì nàng. Nhưng Kiều nương cũng không nỡ Tiêu Kinh, dính sát thế nàng sao không biết hắn đang kìm và khổ.
+
+"A Kinh, chỗ chàng thế nào?" Kiều nương không dám cựa, mắt đảo, hít sâu, khẽ hỏi: "Có muốn… ta dùng tay giúp chàng không?"
+
+Trước khi nàng không làm được, Tiêu Kinh từng nắm tay nàng, bắt vuốt từ gốc đến quy đầu, tinh đặc cũng bắn cả vào lòng bàn tay, để từ đầu ngón đến kẽ tay đều dính mùi hắn. Đó mới là Tiêu Kinh… Kiều nương nhớ lại, nghĩ mấy trò dâm ấy, âm hộ lại ướt hơn…
+
+---
+
+## Chương 127 【Bốn đợt cập nhật】（3900 trân châu thêm chương）
+
+Kiều nương không cố ý, nhưng lúc dục dâng, vô thức siết đùi, khẽ cọ. Vô tình kẹp luôn thịt căng Tiêu Kinh, chìm trong mềm giữa hai đùi. Quy đầu chạm quần trong, căng cứng, theo chuyển động chậm, kích đỉnh nhỏ, chảy vệt dính.
+
+Hơi ẩm quấn lấy nhau, chẳng rõ của nàng hay của hắn.
+
+"A Kinh…" Giọng Kiều nương mềm hơn, như rên lúc mặn nồng. Trước đây Tiêu Kinh nghe sẽ máu sôi, giờ lại như dây trói tay chân.
+
+"Nương tử, ngủ đi." Hắn vỗ lưng nàng, buông tay, xuống giường.
+
+"A Kinh, chàng đi đâu?" Kiều nương vội hỏi, mặt ngơ, định đuổi theo.
+
+Tiêu Kinh giữ vai nàng, kéo chăn kín, không hở gió.
+
+"Nàng ngủ đi, ta buồn tiểu, chút về." Chẳng mấy chốc trong phòng không còn Tiêu Kinh.
+
+Kiều nương nằm chăn ấm, cằm chạm chăn, khẽ lẩm bẩm: "Buồn tiểu… mà cũng cứng thế sao?"
+
+Tiêu Kinh đi lâu, khi về người lạnh, thịt căng cũng mềm, không rõ tiểu hay tự xả, dù sao cũng mềm.
+
+"A Kinh…" Kiều nương chưa ngủ, hắn lên giường là tìm ôm quen.
+
+"Người ta lạnh, sưởi thêm chút." Tiêu Kinh đè chăn, không cho nàng dựa ngay. Ấm lại mới ôm nàng vào lòng.
+
+Một hồi vật vã, trăng cao đêm sâu, Kiều nương buồn ngủ, lơ mơ quên cả ẩm và dục giữa đùi, trong hơi Tiêu Kinh mà thiếp đi.
+
+Nhưng chuyện chưa xong. Lúc rảnh Kiều nương cứ nghĩ lại, càng nghĩ càng lạ. Trước trời lạnh Tiêu Kinh còn bắt nàng ngồi trên người, bắt nàng tự động, véo ngực, đâu có sợ nàng lạnh. Giờ trong nhà có lò, nhiệt chẳng khác mấy. Ở suối nước nóng bốn bề tuyết hắn còn làm đến nàng choáng ngất. Sao đột nhiên đổi hẳn.
+
+Sau đó Kiều nương thử Tiêu Kinh vài lần, mỗi lần nàng chủ động gần, Tiêu Kinh không tìm cớ lảng, là giả vờ không thấy. Nếu ngày thường hắn vẫn vậy, nàng còn tưởng hắn bị ai nhập.
+
+Ngày qua ngày, nghi ngờ trong lòng Kiều nương chồng chất. Mấy hôm trời ấm, tuyết tan chút, Tiêu Kinh muốn tranh ngày cuối lên núi, xong chuyến này năm nay không lên nữa, đợi xuân sang.
+
+Trời chưa sáng Tiêu Kinh đã ra, Kiều nương tỉnh, nhìn hắn mặc quần áo sắp đồ.
+
+"Giờ tan tuyết, lạnh hơn lúc tuyết rơi, trong núi trơn, chàng cẩn thận… sao mặc đồ cũ, mặc áo mới đi, dày ấm." Kiều nương lo như lần đầu tiễn.
+
+"Trong núi bẩn, mặc đồ cũ là được. Nàng ngủ tiếp, đừng dậy. Không săn được gì ta về sớm."
+
+"Áo để mặc, bẩn ta giặt… A Kinh…"
+
+Tiếng gọi Kiều nương lạc trong môi Tiêu Kinh. Bốn môi chạm, lưỡi hắn thọc nhanh, quét một vòng trong miệng nàng rồi buông.
+
+"Ở nhà ngoan đợi ta." Giọng Tiêu Kinh trầm, vác đồ ra cửa.
+
+Kiều nương nghe tiếng đóng cửa, còn mơ hồ, đầu lưỡi liếm môi, toàn mùi Tiêu Kinh, không giác cười.
+
+Sáng Tiêu Kinh đi, Kiều nương không rảnh. Nàng nghĩ mãi, đổi tính của Tiêu Kinh bắt đầu từ buổi chiều nàng ngủ trưa, hỏi mãi hắn đều bảo không có gì. Hỏi trên người hắn không ra, nàng định hỏi người khác.
+
+Thân với Tiêu Kinh nhất là Song Nương. Yếm con Song Nương may xong, Kiều nương tiện mang sang. Tới nơi Lê Viễn vừa ra khỏi nhà, thấy nàng chào, nói vài câu.
+
+Toàn chuyện thường ngày, chẳng có gì lạ. Nhưng lạ là Lê Viễn vốn không để tâm mấy chuyện ấy, giờ hỏi lại gượng, huống chi mắt Lê Viễn cứ quanh người nàng, như giấu chuyện.
+
+---
+
+## Chương 128 Chuyện con cái đừng vội…
+
+"Hôm nay Tiêu Kinh không đi cùng nàng?" Lê Viễn không chỉ mắt lạ, miệng còn nụ cười khó đoán.
+
+"Hắn ra ngoài, quá trưa mới về." Kiều nương nhìn kỹ Lê Viễn, muốn bắt manh mối.
+
+"Thế à, trời lạnh thế còn ra, khổ thật. Ha ha." Lê Viễn cười rõ hơn, nhất là hai chữ "khổ", giọng bỗng gằn, như có ý.
+
+"Lê đại phu…" Kiều nương nghi hoặc mở lời.
+
+Lê Viễn cắt ngang: "Song Nương trong nhà, nàng có thai không tiện ra, nàng qua nói chuyện cũng tốt, vào đi, đứng cửa lạnh, Tiêu Kinh còn kiếm ta tính sổ."
+
+Kiều nương không hỏi được gì, hành vi lạ của Lê Viễn càng làm nghi sâu. Trong nhà Song Nương đã nghe tiếng ngoài cửa, chưa đợi Kiều nương tới đã thò đầu chào.
+
+"Kiều nương, vào mau, ngoài lầy lội, cẩn thận ngã."
+
+Bị câu ấy chặn, Kiều nương đành gác chuyện trước, bước theo đá lát, từng bước vào. Nhà Song Nương cũng đặt lò ấm như nhà Kiều nương.
+
+Song Nương thấy Kiều nương nhìn quanh, ngượng cười: "Xương cốt ta khoẻ, đông trước còn xuống đồng, giặt sông, không sợ rét. Nhưng A Viễn không yên tâm, coi ta như bệnh nhân, trong buồng cũng phải có than. Nàng đường tới lạnh không? Lại gần lò một chút."
+
+Nàng nhường chỗ gần lò cho Kiều nương. Kiều nương đáp: "Lê đại phu thương nàng."
+
+Song Nương cười, không cãi, gật luôn, mày mắt hạnh phúc, chớp mắt hỏi lại: "Tiêu Kinh không tốt với nàng à?"
+
+"… Tốt." Kiều nương bị than sưởi làm má đỏ, nhưng nhìn Song Nương không tránh, mắt sáng.
+
+Sau đó Kiều nương lấy yếm ra, Song Nương xem, tấm tắc. Con hổ đỏ thêu sống động, nhất là đôi mắt, linh lắm. Tay nghề ấy không phải gái thường làm được.
+
+Song Nương cầm yếm, hiếm khi luống cuống: "Kiều nương, nàng thêu thế này, lại tốn bao công, ta…"
+
+"Nàng không thích?"
+
+"Thích chứ."
+
+"Nàng thích là ta vui. Cần gì để ý thứ khác." Kiều nương cười dịu với Song Nương.
+
+Song Nương nhìn ngẩn. Từ đầu bà đã biết lai lịch Kiều nương không đơn giản, Lê Viễn cũng từng nói mấy câu khó hiểu, lúc đó bà không hiểu nhưng thấy khí chất Kiều nương, cả con gái nhà phú hộ giàu nhất trấn cũng không bằng.
+
+Ban đầu Song Nương còn lo Tiêu Kinh giữ không nổi người như vậy, sau thấy họ yên ổn mới thật yên tâm. Giờ nhìn Kiều nương dù mặc cùng kiểu, búi tóc giống, đầu không trang sức, ánh mắt lời nói nụ cười vẫn dịu hiền, khiến người ta kinh ngạc.
+
+Người tốt làm sao…
+
+"Vậy ta không khách, nhận." Song Nương hoàn hồn, cất yếm cẩn thận.
+
+"Nhưng…" Kiều nương ngập ngừng.
+
+"Nói đi, cần ta giúp gì?" Song Nương vẫn hào.
+
+"Ta muốn biết, mấy hôm trước…" Kiều nương nói rõ ngày, "buổi chiều ấy Lê đại phu có ra khỏi nhà không?"
+
+"Ngày ấy à…" Song Nương nghĩ kỹ, đếm ngón, rồi vỗ đùi: "Hôm đó Tiêu Kinh tới kéo A Viễn đi khám, vội vã, ta tưởng nàng lại ốm. Nhưng A Viễn về bảo nàng không sao. Ta muốn sang thăm, y không cho ra."
+
+"Khám cho ta?" Kiều nương nhíu mày.
+
+"Không phải sao?" Song Nương bỗng cười khẩy: "Thân Tiêu Kinh ba năm ta chưa thấy ốm. Y chỉ lúc nàng có chuyện mới mặt lo như thế."
+
+"Đúng… là khám cho ta." Kiều nương trong lòng còn chỗ chưa thông, nhưng để Song Nương khỏi hiểu lầm, vẫn gật.
+
+"Thân nàng chỗ nào không khỏe?"
+
+"Không, chút thôi. A Kinh làm quá lên, phiền Lê đại phục trời lạnh còn chạy một chuyến."
+
+"A Viễn về cũng bảo không sao, còn cười bí hiểm. Không phải vì ngày tháng, ta còn tưởng nàng có thai."
+
+"Làm gì nhanh thế."
+
+Miệng Kiều nương vậy, trong đầu lại hiện lời dâm trên giường Tiêu Kinh và tinh bắn trong người, hắn thà nàng có thai ngay.
+
+Song Nương thấy nàng thất thần, nắm tay: "Chuyện con cái đừng vội. Ta với A Viễn cưới hơn một năm mới có. Từ từ sẽ có."
+
+"Ừm." Kiều nương gật, dặn lại: "Nàng có thai rồi, nhất định giữ thân, đừng như trước…"
+
+"Ôi ôi, sao nàng cũng như A Viễn, ta nghe đến phát ngán. Một mình y nhắc đủ rồi, đừng nhắc thêm."
+
+Song Nương sảng khoái mà gấp gáp cả chuyện này. Hai người nói xong con cái, lại nói chuyện khác, rồi không tránh được chuyện Hỉ Nhi.
+
+"Tiền Hỉ Nhi nhặt được là nàng cho phải không?" Giọng Song Nương ba phần hỏi bảy phần chắc.
+
+"Sao nàng biết?" Kiều nương trợn mắt. Nàng không nghĩ Tiêu Kinh kể với Song Nương, không chứng cứ sao đoán được. Điều làm nàng bất an hơn là trong mắt Song Nương có vẻ không tán thành.
+
+---
+
+## Chương 129
+
+Vẻ không tán thành ấy giống hệt Tiêu Kinh lúc đầu nghe nàng muốn cho Hỉ Nhi bạc. Song Nương hít nhẹ một hơi, đáp: "Chưa nói trong thôn mấy nhà dư bạc, chuyện thế này nửa năm một năm cũng có, nói khó nghe, bọn ta đã quen, cũng quen đứng ngoài."
+
+Kiều nương nghe từng chữ Song Nương nói, tim thót. Nhất là Song Nương nói "bọn ta" chứ không phải "họ", bà cũng tính mình vào.
+
+Song Nương từng gặp chuyện giống Hỉ Nhi, cũng là nạn nhân, nếu không có Tiêu Kinh, giờ sống chết ra sao không ai biết. Chắc chắn không được như bây giờ an nhàn hạnh phúc. Thái độ ấy nên đêm Hỉ Nhi khóc, Song Nương dù có mặt cũng không khuyên bà Chu hủy hôn.
+
+"Nàng có thấy bọn ta lạnh lùng không?" Song Nương thấy kinh ngạc trong mắt Kiều nương.
+
+"Không… ta tin các người có lý do." Kiều nương khẽ nói.
+
+"Đó là thế đạo. Ta lớn lên trong thôn này, thấy và trải đều vậy. Từng muốn giúp họ, cuối cùng phát hiện ta còn chẳng cứu được mình." Nói đến đây giọng Song Nương nghẹn.
+
+Người sảng khoái ấy nghĩ lại chuyện cũ, vết thương được Lê Viễn chăm lành, nhưng lạnh buốt bất lực ngày xưa cả đời không quên.
+
+"Thật ra lời bà Chu cũng có lý. Phương bắc chiến liên miên, thỉnh thoảng dân lánh nạn tới đây, nhưng bao nhiêu người chết đói dọc đường. Hỉ Nhi bị ép gả, nhưng bà Chu không để nàng chết đói, nuôi lớn. So với kẻ chết đói, nàng đã may."
+
+"Chẳng lẽ… chỉ được thế?" Kiều nương siết tay, móng cấu vào lòng bàn tay.
+
+"Lần này nàng cho bạc, cứu một lần, lần sau thì sao? Nàng còn cho nữa? Hay không phải Hỉ Nhi, là người khác, nàng đều giúp được?" Song Nương hỏi dồn, Kiều nương mặt tái, mắt tối, Song Nương dừng một chút, lại nói: "Kiều nương, nàng làm không sai. Nhưng nàng chưa chắc cứu được nàng ta, càng không cứu được mọi người, đó là thế đạo."
+
+Đó là thế đạo… Đường về từ nhà Song Nương Kiều nương vẫn nghĩ câu ấy. Bà Chu bảo đó là mệnh, Song Nương bảo đó là thế đạo, thực ra một ý.
+
+Dưới thế đạo này, dân khổ, triều đình tối, ngay cả cha nàng thanh liêm cũng gia phá nhân vong. Lúc nhà nàng gặp nạn không ai giang tay. Nàng lưu thanh lâu cũng không có, chỉ có lạnh nhạt chế giễu.
+
+Con nhà quan còn thế, dân thường càng cực nhọc. Tiêu Kinh ở thôn không ít ngày, cũng từng như Song Nương nói, đứng ngoài. Hắn chỉ giúp hai người.
+
+Một là Song Nương, vì giống em gái mất sớm. Một là nàng, vậy nàng… vì sao? Nếu Tiêu Kinh thật thiếu vợ, tiền hắn có thể chọn người tốt hơn xinh hơn, đâu tới lượt nàng lúc đó dơ hôi.
+
+Về nhà Kiều nương lòng rối như tơ, không để ý đã vào sân, cũng không thấy trong sân có thêm đồ, Tiêu Kinh về sớm.
+
+Nàng tỉnh lại vì tiếng nói trong nhà cửa hé.
+
+"Tiêu đại ca!"
+
+Giọng đàn bà! Kiều nương dừng bước, dừng cả tay định đẩy cửa, mắt lách qua khe cửa nhìn vào. Trong nhà hai người, một Tiêu Kinh đứng, một… Hỉ Nhi. Nàng quỳ bên chân Tiêu Kinh.
+
+Hỉ Nhi mặc áo bông đỏ, áo cũ nhỏ không vừa, nhưng so với áo xám rách trước đã là tốt nhất. Nàng còn búi tóc kiểu người lớn, mặt còn trẻ con, hơi lệch, lộ rõ ý đồ.
+
+"Tiêu đại ca, xin ngài nhận con. Làm nha hoàn tiểu thiếp cũng được. Mẹ con đã nhận tiền con, lúc đầu cũng hủy hôn, nhưng nhà kia thách thêm, mẹ lại gậy. Tiêu đại ca, con thật không muốn gả người bằng tuổi cha con, người ta bảo say là đánh, con không muốn chết, thật không muốn chết…"
+
+Hỉ Nhi vừa van vừa khóc như mưa.
+
+"Việc nhà ngươi, ngươi nói với mẹ, không liên quan ta." Tiêu Kinh mặt lạnh, từ chối không nương.
+
+Có lẽ không phải lần đầu bị từ chối, không Hỉ Nhi đã không quỳ van, mặt cũng không lem nước mắt thế.
+
+Kiều nương ngoài cửa nghe, đã hiểu đại khái, trong lòng chấn động. Nàng không ngờ bà Chu lại bán Hỉ Nhi lần nữa vì thêm chút thách cưới. Và nàng càng không ngờ chuyện sắp tới.
+
+"Tiêu đại ca, đừng xem con nhỏ, con đã có kinh rồi, là người lớn rồi. Dì hàng xóm cứ bảo con mông to, sau dễ đẻ." Hỉ Nhi không hề xấu hổ, giới thiệu mình như hàng.
+
+"Liên quan gì tới ta." Tiêu Kinh vẫn lạnh, bước đi luôn.
+
+"Có liên quan! Tiêu đại ca, có liên quan!" Hỉ Nhi ôm chặt đùi hắn, lau nước mắt: "Chiều hôm đó trưởng thôn nói với ngài, con đều nghe. Tiêu đại ca, nương tử ngài thân yếu, không thể đêm nào cũng ngủ cùng ngài. Con khoẻ, con được…"
+
+Nói xong Hỉ Nhi cởi áo bông đỏ, cởi từng lớp, đến khi lộ nửa thân trên trần. Thiếu nữ mười ba mười bốn, không trắng lắm, nhưng da bóng, ngực đã nhô, căng cứng vểnh ra.
+
+（Về tam quan trong chương này, mong độc giả đừng tranh luận, là sản phẩm của hoàn cảnh cụ thể.）
+
+---
+
+## Chương 130 Thịt căng hắn có dựng không?
+
+Thiếu nữ mười ba mười bốn tuổi, không trắng cũng không đầy đặn, nhưng da bóng, ngực đã nhô, căng vểnh, non mơn mởn mà cũng xuân sắc. Hỉ Nhi không hề ngại cởi ngực, còn khoe thế, ưỡn ngực về phía Tiêu Kinh.
+
+"Tiêu đại ca, xem này, vú con không nhỏ. Con còn nhỏ, qua vài tháng còn lớn nữa, sẽ lớn… lớn hơn cả nương tử ngài. Tiêu đại ca, con từ nhỏ không ốm, mẹ bảo chưa thấy ai khoẻ như con, chỉ cần ngài nhận con, muốn thế nào cũng được. Con khoẻ, tuyệt không chịu không nổi, cũng không ngất."
+
+Lời van dài không dứt, từng chữ chui vào tai Kiều nương, như châm chọc nàng. Từ lúc thấy Hỉ Nhi cởi áo, Tiêu Kinh nhìn thẳng phía trước, không liếc xuống.
+
+Hắn trầm giọng ra lệnh: "Hỉ Nhi, mặc áo vào, không ta ném ngươi ra ngoài!"
+
+Đó là lòng thương cuối cho cô gái ngu ngốc đáng thương này.
+
+"Tiêu đại ca!"
+
+Hỉ Nhi vừa lau khô nước mắt lại rơi, ôm chặt đùi hắn không buông, vừa khóc vừa gào: "Tiêu đại ca, nương tử giờ của ngài là mua về, tốn biết bao bạc. Nàng chỉ giặt quần áo cho ngài, chẳng biết gì, cơm cũng do ngài nấu. Con đều thấy… đều thấy… Mẹ con bảo chưa thấy ai lười biếng thế!"
+
+Mày Tiêu Kinh nhíu thêm, trong người uất giận nặng hơn.
+
+"Tiêu đại ca, con rẻ… con rẻ lắm, không cần nhiều bạc, một chút thôi. Xin ngài nói với mẹ, mua con đi. Con giặt được, nấu được, dọn nhà, còn xuống đồng, từ nhỏ làm quen, làm rất giỏi! Con còn cho ngài chịch, không một lời than. Con nhất định làm tốt hơn nương tử ngài. Xin ngài… xin ngài…"
+
+Tiêu Kinh mặt đen hẳn, chẳng buồn nói thêm với người điên này. Hắn lôi Hỉ Nhi đang ôm đùi, quay ra cửa, trần truồng cũng mặc, đâu phải nương tử hắn, cần gì nương tay.
+
+Nhưng vừa nghiêng người, Tiêu Kinh thấy Kiều nương đứng ngoài cửa, người cứng đờ.
+
+"Kiều nương, ta…" Tiêu Kinh không có tật giật mình, nhưng bị vợ bắt gặp, phản ứng đầu tiên vẫn muốn giải thích, muốn đá Hỉ Nhi.
+
+"Chàng không cần nói, ta đều nghe." Mặt Kiều nương hơi tái, không nhiều biểu cảm, trừ trầm hơn thường cũng chẳng khác mấy. Nhưng trong lòng Tiêu Kinh thoáng thấy không ổn, trong nhà còn người thứ ba, hắn nuốt lời lại.
+
+Kiều nương đẩy cửa, từng bước tới trước Hỉ Nhi.
+
+"Chị… ta…" Hỉ Nhi không ngờ Kiều nương lúc này xuất hiện, hoảng đến quên khóc, đối diện chỉ là gái bằng tuổi mà sao đầu gối cứ lùi. Cuối cùng như liều mạng, gào về phía Kiều nương.
+
+"Chị cũng chỉ bị Tiêu đại ca mua về, chỉ cần ngài chịu mua con, con cũng giống chị… không sao, chị làm lớn, con làm nhỏ."
+
+"Hừ."
+
+Kiều nương cười lạnh, lòng lạnh buốt. Nàng giờ hiểu lời Song Nương: nàng quả không cứu được mấy người này. Chuyện hôm nay, nếu Hỉ Nhi không tìm Tiêu Kinh mà lén tìm nàng, nàng vẫn sẵn lòng cho thêm bạc, cứu một lần hay hai lần, trong lòng vẫn thương cô gái. Nhưng lòng người không đáy, với ân nhân còn chê bai khinh miệt. Kẻ đáng thương ắt có chỗ đáng ghét. Kiều nương lạnh hẳn.
+
+Nàng khom người, ngang tầm Hỉ Nhi quỳ trần nửa thân: "Nàng nói đúng, ta đúng là Tiêu Kinh mua về."
+
+"Kiều nương!" Tiêu Kinh sau lưng không tán thành, dù thật nhưng không muốn nghe nàng tự hạ thấp mình. Lúc đó hắn mua nàng là bất đắc dĩ, chỉ cách đó giải quyết. Đổi hoàn cảnh hắn tuyệt không dùng cách ấy.
+
+"Câm miệng." Kiều nương quay lại, mắt lạnh nhìn Tiêu Kinh.
+
+Tiêu Kinh im bặt. Kiều nương quay lại nhìn Hỉ Nhi, hỏi: "Nàng lấy đâu ra tin Tiêu Kinh cũng sẽ mua nàng?"
+
+"Vì con…"
+
+"Vì vú nàng chưa trưởng thành, vì mặt nàng, vì nàng làm việc giỏi? Hừ." Kiều nương cười khẩy: "Chúng ta cần người làm việc, ta lên trấn mua nha hoàn gã sai vặt, giỏi hơn nàng, trung hơn, còn không mơ lên giường chủ. Còn mặt nàng… nàng có xinh bằng ta không? Dáng có bằng ta không? Vú có bằng ta không?"
+
+Kiều nương chẳng thích chứng minh kiểu ấy, nhưng lúc này lại hợp nhất. Hỉ Nhi hoảng, nhìn gương mặt Kiều nương đẹp quá mức, vết sẹo trán cũng không làm giảm nét.
+
+Da trắng, mắt sáng, môi đỏ… cả thôn không ai thứ hai, mấy anh nàng cũng sau lưng bàn tán nhan sắc Kiều nương.
+
+"Con còn nhỏ, một hai năm nữa không thua chị." Hỉ Nhi hít sâu: "Và… chị không phải Tiêu đại ca, sao biết ngài không mua con."
+
+Kiều nương vẫn điềm đạm, mỉa mai: "Nãy nàng bảo nàng chịu chịch lắm, nhưng ôm đùi Tiêu Kinh lâu thế, thịt căng hắn có dựng không? Dục đàn ông còn không gợi được, nàng có tư cách nói chuyện chịch không chịch."
+
+---
+
+## Chương 131 Nàng còn không bằng ngón tay ta…（4050 trân châu thêm chương）
+
+Từ miệng Kiều nương mà ra lời thô tụ thế, theo giọng lạnh, chẳng vương chút dâm khí. Hỉ Nhi bị Kiều nương dồn lùi, nhưng đây là hạnh phúc cả đời, nàng không dễ buông.
+
+"Con không được, chị có được không?" Nàng cứng miệng hỏi lại.
+
+"Cho nàng xem cũng chẳng sao."
+
+Kiều nương đứng dậy, phủ phẳng vạt váy, ung dung. Nàng quay tới bên Tiêu Kinh, mặt vẫn lạnh, mắt ra hiệu hắn đừng động, đừng lên tiếng, như lệnh lúc nãy.
+
+Tiêu Kinh đứng thẳng, không biết nàng định làm gì. Cho đến khi Kiều nương giơ tay nắm luôn háng hắn.
+
+Ưm… Tiêu Kinh mím môi, trong ngực rên khẽ. Không da chạm da, cũng chẳng mặn nồng, nhưng chỉ nghĩ đó là tay Kiều nương, dục vốn đè nén đã lâu lập tức dậy. Huống chi Kiều nương không chỉ nắm, còn véo mấy cái mới buông.
+
+Hơi Tiêu Kinh nóng, người nóng ran, mắt chỉ còn một mình Kiều nương, quên cả trong nhà còn người quỳ, hay từ đầu hắn chẳng để tâm có người đó.
+
+Kiều nương buông tay, phần háng Tiêu Kinh vốn phẳng từ từ dựng lên, lồng cả lều. Kiều nương nhìn mà hài lòng. Hỉ Nhi thì không tin nổi.
+
+"Thấy chưa? Có cởi trần cũng vậy, cuối cùng nàng còn không bằng ngón tay ta." Kiều nương nhìn xuống, chế giễu.
+
+Hỉ Nhi sững, rồi vẫn nhìn Tiêu Kinh. Nhưng Tiêu Kinh từ đầu đến cuối, đuôi mắt cũng không liếc nàng, mắt chỉ có Kiều nương.
+
+"Hu hu hu…"
+
+Hỉ Nhi tuyệt vọng, vai run, khóc không kìm, dù đất bẩn, dù lạnh nổi da gà, vẫn nằm sấp, không nhúc nhích. Kiều nương nhìn, cuối cùng vẫn mềm lòng.
+
+Nàng nhặt áo đặt vào tay Hỉ Nhi.
+
+"Mặc vào, ra đi, chuyện hôm nay bọn ta không nói với ai. Là ta không nên cho nàng hy vọng hão, về sống cho tử tế."
+
+Cuối cùng Kiều nương tiễn Hỉ Nhi. Nhìn bóng nàng xa, lòng nàng mới thật hiểu "đó là mệnh, là thế đạo". Nàng cũng trong vòng mệnh nổi trôi, đâu còn sức đổi người khác.
+
+Tiêu Kinh suốt đứng trong nhà không bước ra, đến khi thấy Kiều nương lâu không vào mới ra kéo nàng vào.
+
+"Nương tử."
+
+Hắn ôm chặt Kiều nương, háng cọ nhẹ, dục vừa bị Kiều nương gợi không những không tắt còn bùng hơn. Chuyện vừa rồi hắn không quên từng chữ Kiều nương, không quên ánh mắt kiên định. Như thuốc kích dục, cháy trong người. Hắn muốn làm. Muốn thúc thịt căng sâu vào người Kiều nương.
+
+Kiều nương lại khẽ nói trong lòng hắn: "A Kinh, ta hơi mệt, muốn nằm một lát."
+
+Động tác Tiêu Kinh đang phát tình khựng lại, sờ trán Kiều nương, ấm bình thường, mới yên… từ từ buông.
+
+Kiều nương nằm xuống là nhắm mắt, giữa mày còn vương ưu. Tiêu Kinh ngồi mé giường, lo, suy nghĩ rồi nói: "Chuyện Hỉ Nhi đừng để trong lòng. Ta chưa từng có ý đó, trước không, sau cũng không, nương tử chỉ có một là nàng. Còn lại… nàng cũng đừng nặng lòng."
+
+Kiều nương phải tự trải, Tiêu Kinh an ủi được nhưng không thay nàng đau.
+
+"Nàng ngủ đi, ta hâm cơm trong nồi. Dậy rồi ăn."
+
+Giấc Kiều nương không dài, trong lòng nhiều chuyện, ngủ cũng không yên. Tỉnh dậy sắc khá hơn, thần như cũ, làm việc như ngày thường, tối lên giường ngủ. Thổi tắt nến, trong tối như chỉ còn hai người.
+
+Kiều nương sợ lạnh, dựa ngực Tiêu Kinh, tay nắm tay hắn, từng ngón bẻ ra, khẽ hỏi: "A Kinh, lúc ở trấn sao chàng mua ta?"
+
+"Vì mắt nàng."
+
+"Mắt?"
+
+"Ừm. Mắt… rất đẹp." Tiêu Kinh nhớ lại, tưởng mua về con thú nhỏ, không ngờ là mỹ nhân.
+
+Hắn kể con cáo trắng cùng ánh mắt với Kiều nương, vừa nói vừa đặt tay lên ngực Kiều nương, lòng bàn tay sau lâu mới được đỡ đôi vú quen thuộc, mềm trơn khiến thịt căng vốn đã rạo rực cứng thẳng, kẹp giữa hai đùi nàng, cửa quanh cửa quẩn.
+
+Kiều nương không cản, mềm người, để Tiêu Kinh sờ.
+
+"Nói vậy ta còn phải cảm ơn con cáo trắng, không có nó có lẽ ta đã chết trong lồng." Kiều nương cảm khái.
+
+"Sẽ không."
+
+Dù không có con cáo, hắn cũng bị ánh mắt nàng hút. Tiêu Kinh giấu trong lòng không nói, thân cửa xuống, ghé sát má Kiều nương, hôn đầy dục.
+
+Trong lòng hắn không quên lời Lê Viễn. Chỉ chuyện hôm nay khiến hắn không nhịn được. Một lần… chỉ một lần thôi.
+
+Kiều nương hơi ngửa cằm, hé môi, đón nụ hôn. Lưỡi ẩm Tiêu Kinh nhanh chui qua khe môi, móc lưỡi nàng, quấn chặt như cánh tay siết trên người nàng, hai thân dính không kẽ.
+
+"Ưm ưm…" Kiều nương sớm rên, mềm như mật.
+
+Tiêu Kinh nghe mà cứng người, tay siết hơn, một tay véo thịt trong lòng bàn tay, đầu ngón cắm sâu vào tròn đầy, một tay nắm mông, cũng đầy vểnh. Đó là tư thế hắn thích nhất, Kiều nương từ đầu đến chân đều bị hắn chiếm.
+
+"Nương tử… ta không nhịn được." Tiêu Kinh nóng lòng, tay đặt lên quần trong Kiều nương, định kéo xuống.
+
+"A Kinh, khặ khặ" Kiều nương vừa hôn xong đột ngột ho, "khặ khặ, cổ họng ta khó chịu, chàng rót giúp ta chén nước?"
+
+Nàng yếu ớt van, cúi mắt, giấu trong mắt sáng tinh ranh.
+
+—— Tiểu thú nổi điên~ \(≧▽≦)/~
+
+---
+
+## Chương 132 Giận dỗi Kiều nương ①
+
+Tiêu Kinh không để ý, chỉ thấy Kiều nương ho đột ngột, hơi nặng. Hắn không chỉ xuống rót nước mà còn hỏi dồn hôm nay có gió không, có ăn lạnh không, chỗ nào không khỏe đừng giấu. Hay trong lòng còn buồn chuyện Hỉ Nhi.
+
+Kiều nương kéo tay Tiêu Kinh, bảo đừng đứng mé giường, lên giường ngủ, an ủi: "A Kinh, ta thật không sao, đừng lo quá. Ngủ dậy sẽ khỏi, mau lên, trong chăn lạnh. Ta buồn ngủ rồi…"
+
+Cuối cùng nàng còn ngáp.
+
+Tiêu Kinh mới nằm lại, lấy ngực nóng làm lò sưởi, để Kiều nương dựa, nàng mơ màng ngủ. Hắn vuốt lưng nàng từng cái, hơi ấm lòng bàn tay cũng sưởi vào người nàng.
+
+Vòng đi vòng lại, thịt căng Tiêu Kinh vẫn nửa dựng, nhưng không khí ái muội đã tan, hắn chẳng tìm được cớ "làm bậy", huống chi Kiều nương vô phòng nương vào hắn thế, hắn sao nỡ.
+
+"Haizz…"
+
+Hắn thở dài, ôm Kiều nương chặt hơn, xả trống đầu, quăng mấy ý không nên, hơi thở dần đều, buồn ngủ.
+
+Mà người trong lòng lúc này lặng lẽ mở mắt. Kiều nương ngước nhìn mặt thô Tiêu Kinh, quét đi quét lại. Lâu sau mới nhắm, thật ngủ.
+
+Nương tử hắn… có gì khác rồi… Tiêu Kinh không còn săn núi, nhà cũng sửa gần xong, rảnh mà không quen rảnh, ở nhà làm mộc, chuẩn bị đồ mới, như bàn trang điểm cho Kiều nương.
+
+Không gấp nên làm cũng không vội, mà… thỉnh thoảng thất thần, nghĩ đúng chuyện đó. Hắn nghĩ lâu, lại lần lượt nhớ chuyện mấy ngày này.
+
+Cái "khác" của Kiều nương bắt đầu từ ngày Hỉ Nhi. Nương tử hắn vẫn dịu hiền, chu toàn bữa ăn giấc ngủ, còn dâng trà, nhìn hắn bằng mắt ngưỡng mộ. Nghe có vẻ tốt, nhưng vấn đề nằm ở đó.
+
+Mắt Kiều nương mềm như nước, mắt lưu chuyển toàn mị ý, mỗi lần nhìn hắn là tim nóng, dục dậy, muốn đè nàng xuống giường làm bừa. Nhưng hắn vừa lại gần, hoặc vừa định hành động, mắt Kiều nương đổi ngay, cái mặn nồng lúc nãy biến mất, chỉ còn ngơ ngác, như không biết vừa rồi và dục trong hắn là gì.
+
+Tiêu Kinh tự an ủi có lẽ vì thời gian, hắn cũng hứa Kiều nương không ban ngày. Nhịn. Hắn nhịn. Nhịn được. Đến tối Tiêu Kinh mới thoát xiềng ước hẹn, chuẩn bị hành quyền chồng, Kiều nương cũng nằm trong lòng hắn, để hắn sờ trên xoa dưới.
+
+Họ không còn non trong chuyện ấy, chết đi sống lại biết bao lần. Thời điểm địa điểm không khí đều trọn, chỉ còn tách đùi thúc vào. Nhưng đúng lúc đó Kiều nương lại kêu dừng.
+
+Khi thì muốn ra tiểu, khi thì đói, muốn ăn chút gì, uống nước không kể. Lần nhất quá… Tiêu Kinh còn đang véo đầu vú Kiều nương như báu, mà người trong lòng đã ngủ, khò khẽ.
+
+Kiều nương ngủ rồi hắn vẫn có thể sờ đến âm hộ ướt rồi thúc vào, làm một trận đã đời. Nhưng nhìn mặt Kiều nương ngủ không phòng bị, hắn lại không còn tàn như trước, nghiến răng nhịn.
+
+Hắn nhịn khổ, nương tử lại như không hay biết. Chưa kể ánh mắt si mộng, Kiều nương đêm nào cũng ngủ không yên, như trẻ hiếu động, cứ trở mình, mười lần có tám lần đùi đá vào thịt căng hắn. Khi thì đầu gối cọ, khi thì ngón chân cọ ống chân hắn… lửa dục vừa dìm lại lại bùng.
+
+Tiêu Kinh vốn ngủ nhạt, bị đánh thức thế khó tránh, cuối cùng để Kiều nương khỏi cựa, hắn kẹp hai đùi nàng giữa hai đùi mình. Nàng không cựa nữa, nhưng đùi mềm non dính thịt căng, cũng khó chịu không kém.
+
+"Haizz…"
+
+Tiêu Kinh mấy đêm liền không biết thở dài lần thứ mấy. Đêm khuya lại đến giờ ngủ, lại là lúc tra tấn bắt đầu…
+
+---
+
+## Chương 133 Giận dỗi Kiều nương ②（4100 trân châu thêm chương）【Hai đợt cập nhật】
+
+Dưới trời tối xám, Tiêu Kinh một mình đứng trong sân, gió lạnh thổi, nhìn núi tuyết mờ xa. Không phải hắn không muốn vào phòng, mà Kiều nương đang tắm trong bếp, dùng thùng tắm mới hắn làm, sợ có chuyện nên hắn không dám đi xa, đứng ngoài cửa, Kiều nương gọi một tiếng là nghe ngay.
+
+Lúc này hắn không nghe Kiều nương gọi, chỉ nghe rõ tiếng nước, hoa hoa, hoa hoa… Trong đầu Tiêu Kinh toàn cảnh mỹ nhân tắm, tưởng dưới hơi nóng má Kiều nương trắng hồng, cả thân cũng ửng đỏ, tưởng giọt nước long lanh từ cổ vai xương quai xanh… ngực cao, từng tấc trượt xuống.
+
+Còn tưởng Kiều nương ngâm trong nước trong, hai đùi tách, lông trôi, hoa ẩn dưới nước nở tròn. Hắn chưa thấy sen nước phương Nam, lần đầu trong đầu có ảo ảnh đẹp thế. Mà không chỉ ảo, còn là điều hắn tận mắt thấy ở suối nước nóng, đẹp biết bao, lại… chặt, nóng, ướt. Dưới nước thúc vào, còn hơn lúc thường, thêm vài phần không nói được.
+
+Tiêu Kinh hít vào toàn gió lạnh, trong người lại thành luồng nóng dồn xuống háng. Mấy ngày nay hắn chẳng tự xả, chút kích thích cũng làm thịt căng dựng, huống chi tưởng tượng đầy sắc tình thế này.
+
+Tiêu Kinh tiến mấy bước, định ra chỗ gió, thổi cho tắt lửa tà. Chưa kịp bước, sau lưng có tiếng Kiều nương.
+
+"A Kinh, A Kinh, chàng có ngoài đó không?" Vừa mềm vừa ngại.
+
+"Có. Sao vậy?" Tiêu Kinh sát cửa, đáp ngoài, hơi nóng xuyên ván cửa phả vào mặt, người càng nóng.
+
+"Ta quên lấy đồ thay. Để trên chăn, chàng vào giúp ta lấy."
+
+"Ta đi ngay, nàng đừng gấp."
+
+Tiêu Kinh quay vào nhà lấy đồ, việc sau lại khó. Hắn tưởng Kiều nương hé cửa nhận đồ, không ngờ nàng bảo:
+
+"A Kinh, lấy đồ chưa? Sao chưa vào?"
+
+"Đã lấy."
+
+Giọng Tiêu Kinh trầm đặc.
+
+"Ta ngâm trong thùng, không tiện đứng dậy. A Kinh, chàng đưa vào giúp, cửa không khóa, chỉ kê ghế sau."
+
+Cửa… không khóa. Một sợi thần kinh trong đầu Tiêu Kinh như đứt. Hắn do dự ngoài cửa, nhưng Kiều nương giục mãi, cuối cùng đẩy cửa, chậm bước vào.
+
+Hắn không thể quay lưng Kiều nương, bèn nhìn sang phía kia, tuyệt đối không nhìn chỗ hơi nồng. Tìm chỗ sạch gần Kiều nương, đặt đồ xuống, trong lòng gấp muốn ra.
+
+"Phu quân, phiền chàng." Kiều nương cười cảm ơn.
+
+Tiêu Kinh vốn suôn sẻ, nhưng tiếng "phu quân" ngọt mềm ấy làm tim hắn run, mắt mất kiềm, nhìn về phía phát ra tiếng.
+
+Đẹp. … Đẹp lắm. Mọi thứ như hắn tưởng, không, đẹp hơn tưởng. Kiều nương vấn hết tóc, cổ càng dài, da trắng lấp lánh giọt nước, dưới hơi nóng chảy chậm xuống.
+
+Tiêu Kinh họng khô, nuốt nước bọt. Nước thùng vừa ngập nửa ngực Kiều nương, hai tròn nhô một nửa dưới nước một nửa trên, đầu vú đỏ theo mặt nước lên xuống ẩn hiện. Họng Tiêu Kinh ngứa, ngón tay ngứa, muốn kéo đầu vú lên khỏi nước cho nhìn rõ.
+
+Hắn đặt đồ xong mà vẫn đứng chôn chân. Kiều nương ngâm nước nóng, ngửa nhìn, mắt trong hỏi: "A Kinh, chàng chưa ra?"
+
+Giọng hơi lạnh, đâu còn mềm như lúc nãy. Tiêu Kinh sững, lùi mấy bước, vội ra ngoài. Cửa không khóa được từ ngoài, Tiêu Kinh chỉ biết tay giữ một bên, chắn khe cửa, không cho gió lạnh lùa vào, gió lại thổi hết vào mình.
+
+Hắn nóng, ngực phập phồng gần vỡ, đầu nóng rối. Chính lúc dục thiêu hết lý trí, Tiêu Kinh lại tỉnh ra vài phần về mấy ngày lạ lùng. Nương tử hắn giận rồi! Nàng giận không nhẹ. Giận không viết trên mặt, không nói ra, mà vòng vo… toàn giáng lên dục hắn.
+
+—— Song Nương xen vào: quả là kẻ đọc sách khó đoán nhất.
+
+---
+
+## Chương 134 Giận dỗi Kiều nương `1`
+
+Bỗng kẽ kẹt, cánh cửa vừa đóng lại lại mở. Rồi ầm, cửa đóng sập, cài then, khóa chặt. Tiêu Kinh xông vào, không còn nhịn như lúc nãy, từ lúc đẩy cửa đã thẳng bước về phía Kiều nương.
+
+"A Kinh."
+
+Kiều nương vẫn ngâm thùng, mặt hơi sầm, không còn cười như trước, thấy Tiêu Kinh xông vào mới sững, mãi sau mới kịp mở miệng. Tiêu Kinh xuất hiện quá đột ngột, nàng không kịp giấu thật trên mặt, cũng giả cười không được.
+
+"Sao chàng vào nữa."
+
+"Nàng giận?"
+
+Hai người đồng thanh.
+
+Tiêu Kinh tới sát, mắt đối mắt, miệng gần miệng, nhìn thẳng Kiều nương, trên người bốc khí áp như dáng cao lớn, cuốn lấy cả người nàng. Mắt Kiều nương lóe, mím môi, quay mặt đi.
+
+Tiêu Kinh với tay bưng mặt nàng, kéo lại, bốn mắt gặp nhau, lại hỏi: "Nàng giận."
+
+Lần này chắc chắn, không phải hỏi. Vì bị nói trúng, Kiều nương mới lảng. Chỉ Tiêu Kinh vẫn chưa hiểu vì sao nàng giận.
+
+"Vì chuyện Hỉ Nhi?" Tiêu Kinh đoán: "Trước khi nàng vào không có chuyện khác, nàng cũng thấy hết. Ta không nhìn nàng ta thêm một cái, cũng không đụng. Nàng không tin ta có thể thề."
+
+"Ta biết." Kiều nương đáp, giọng căng, môi hé rồi lại mím.
+
+"Vậy nàng còn giận gì?" Tiêu Kinh nhíu mày, không hiểu.
+
+"Chuyện Hỉ Nhi, lỗi không ở chàng."
+
+Kiều nương hít sâu, ngực trắng phập phồng trong nước, đầu vú đỏ như cá nhảy khỏi mặt nước thoáng hiện. Nàng nói tiếp: "Lỗi ở ta. Ta không nên không rõ đầu đuôi, không nghe chàng khuyên, còn cho nàng ta tiền. Chuyện sau là ta gây, không liên quan chàng."
+
+"Không phải chuyện đó thì là gì? Rốt cuộc vì sao nàng giận?"
+
+Mặt Tiêu Kinh vẫn cứng, nhưng mắt không khỏi bị cảnh dưới nước hút… Kiều nương mím môi không nói, hốc mắt hơi đỏ, như chịu oan lớn.
+
+Tiêu Kinh vừa gấp vừa hoảng, muốn bế nàng lên dỗ, sợ bụi trên người làm bẩn da trắng, muốn hỏi căng lại sợ làm nàng khóc. Gấp mà bó tay, nói đúng thế.
+
+Tiêu Kinh đành bưng ngón tay Kiều nương vuốt ve, nịnh mà bất lực hỏi: "Không phải vì Hỉ Nhi thì nàng còn giận gì. Nương tử, ta không đọc sách, biết ít, cũng không thông minh, thật không nghĩ ra."
+
+"Không được tự coi thường mình như vậy." Kiều nương đỏ mắt, trừng Tiêu Kinh.
+
+Tiêu Kinh thấy hy vọng, vội theo: "Vậy nàng nói ta làm sai gì mà nàng giận thế? Đừng nén trong lòng, hại thân."
+
+"Ta là nương tử chàng?"
+
+"Đương nhiên."
+
+"Ta với chàng thân hơn hay Lê Viễn với chàng thân hơn?"
+
+"Đương nhiên là nàng."
+
+Hỏi đáp qua lại, kết luận rõ. "Vậy sao chàng nghe Lê Viễn mà giấu ta. Đến Hỉ Nhi ngoài còn biết, một mình ta không biết!" Kiều nương thật giận, không chỉ mắt ướt, tay dưới nước còn vung mạnh, nước sóng dậy.
+
+Giấu nàng… Tiêu Kinh không nhanh như Kiều nương, sững một chút mới nối hết mọi chuyện. Ngày ấy Hỉ Nhi nhắc một việc, kể cả lời nghe lén giữa hắn và Lê Viễn. Tiêu Kinh không ngờ mấu chốt lại ở đó.
+
+Hắn giải thích: "Nương tử, Lê Viễn là đại phu."
+
+Kiều nương hỏi lại: "Y bảo chàng đừng chịch là chàng không chịch, chàng nghe lời thật đấy."
+
+"Ta lo thân nàng, y bảo nàng xả quá nhiều, cần dưỡng."
+
+"Nếu ta bệnh nan y, sắp chết, chàng cũng định giấu ta, để ta hồ đồ mà chết?"
+
+"Ta sẽ theo nàng."
+
+Kiều nương nói đến sau, mất kiểm soát, biết mình làm nũng vô lý, nhưng nghe từ người ngoài những chuyện ấy, tức điên. Mặt khác cũng biết Tiêu Kinh cưng nàng nên nàng mới dám trút.
+
+Lời hoang đường thế, Tiêu Kinh từ đầu đến cuối đều đáp nghiêm. Kể cả theo nàng chết, không chút do dự.
+
+"Nương tử, đời ta còn dài, năm năm, ta muốn đi với nàng mãi. Nếu thật có ngày nàng phải đi trước, ta cũng không ở lại một mình, đi cùng nàng, không để nàng một mình lên đường."
+
+Mắt Tiêu Kinh cứng, giọng trầm, từng chữ đập vào ngực Kiều nương. Kiều nương trước sững, sau chua xót, rơi lệ, cuối cùng cười.
+
+"Ngốc, chàng mới mấy tuổi mà chết sống gì." Nàng cười mắt còn lệ lấp lánh.
+
+"Đừng khóc. Nàng không muốn nghe ta không nói nữa." Tiêu Kinh vuốt nước mắt nóng trên má nàng, hỏi: "Giờ hết giận chưa?"
+
+Kiều nương lắc đầu, lại mắng nhẹ: "Ngốc, chàng không biết Lê Viễn cố ý lừa chàng sao?"
+
+---
+
+## Chương 135 Tắm chung ①【Một đợt cập nhật】
+
+Nghe vậy Tiêu Kinh sững mặt, không ngờ còn chuyện ấy. Kiều nương biết Tiêu Kinh không ngu mới mắc mưu Lê Viễn, là vì "loạn vì lo", không kịp nghĩ kỹ lời y. Nàng chỉ thở nhẹ, rồi giải thích tỉ mỉ.
+
+"Lê Viễn vẫn giận chàng từng hôn ước với Song Nương, suýt thành hôn. Giờ Song Nương có thai chưa đủ ba tháng, vợ chồng không được làm chuyện đó. Y chỉ nhìn được không ăn được. Nên y kéo chàng xuống nước, cùng cảnh nhìn được không ăn được. Giờ chàng hiểu chưa?"
+
+Nói đến đây Kiều nương vẫn còn giận, lại liếc Tiêu Kinh.
+
+Chuyện này Kiều nương không phải một sớm một chiều hiểu, ban đầu chỉ muốn biết nguyên do, nhưng mắt thần Lê Viễn quá lạ mới để ý. Mấy ngày nàng sang nhà Song Nương dày, một là quan sát Lê Viễn, hai là hỏi Song Nương.
+
+Song Nương thẳng thắn, thân Kiều nương, kể cả chuyện riêng cũng nói. Dần Kiều nương hiểu hết đầu đuôi. Tiêu Kinh ngạc nhiên, rồi từ tỉnh, bị Lê Viễn lừa, giờ nghĩ lại lời y có lẽ ba phần thật bảy phần giả, mà hắn tin hết, đúng là sơ suất. Nhưng quân tử báo thù mười năm chưa muộn, chuyện này không gấp.
+
+Hắn giấu tối trong mắt, vẫn nhìn chằm Kiều nương, hỏi ngược: "Lê Viễn giận ta với Song Nương, còn nàng? Trong lòng nàng có giận không?"
+
+Kiều nương vừa nói trôi chảy lại mím môi. Nàng cắn nhẹ môi, chậm rãi: "Giận vẫn giận…"
+
+Nếu không cùng cảm, sao hiểu mưu Lê Viễn. Nhưng nàng lại nói: "Chàng hứa hôn Song Nương lúc đó ta với chàng chưa quen, cách trời xa đất, không ai trách được, giận chàng cũng chỉ trong chốc lát. Ta biết không nên, nhưng đôi khi không kìm…"
+
+Giọng Kiều nương tắt ở bên môi Tiêu Kinh. Tiêu Kinh cố kìm, môi cọ môi mềm, chưa sâu hôn, nếm qua đã lùi. Hắn sát lắm, môi như còn chạm, khẽ nói: "Lúc đó nếu ta biết sau này còn gặp nàng, tuyệt đối không hứa hôn Song Nương."
+
+Nói xong hắn lại hôn Kiều nương, lưỡi thọc nhanh, lập tức dữ như hổ, chiếm đoạt nhanh để giải nhớ mấy ngày.
+
+Hơi Kiều nương bị cướp, tâm cũng run, đầu không còn thông minh trước đó, chìm trong hơi Tiêu Kinh. Thậm chí… nàng không kịp để ý lời hắn có chỗ lệch: "còn" gặp nàng… Chưa gặp đã nói gì "còn".
+
+Lần đầu gặp chẳng phải mấy tháng trước trên phố, nàng kéo ống quần hắn, hắn quay đầu sao? Môi lưỡi quấn nhau, tia lửa nóng thiêu mấy nghi hoặc lẽ ra phải hỏi rõ, chỉ còn hai thân khát đang quấn lấy nhau.
+
+Quấn… Tiêu Kinh vừa hôn sâu, hút lưỡi Kiều nương vào miệng, chép chép không dứt, một tay xé quần áo mình, không màng, cởi sạch, vứt bừa. Rồi ọc.
+
+"Ưưm…" Miệng bị Tiêu Kinh bịt, Kiều nương giật mình, rên khẽ. Bị Tiêu Kinh bế bổng khỏi nước, bản năng hai tay ôm cổ hắn, hai chân dài tách, vòng eo hắn. Vì hồi hộp còn siết rất chặt.
+
+Âm hộ ngâm nước nóng nở hết, cánh hé, dán sát háng Tiêu Kinh, cọ lông và thịt cứng. Kiều nương lộ ra không khí, lưng lạnh, trước ngực lại nóng rực, nhất là giữa hai đùi như cháy.
+
+Tiêu Kinh một tay ôm lưng, một tay bỡ mông, giữ nàng khỏi rơi, vừa hưởng mềm trong lòng bàn tay, vừa véo vừa cọ, đầu ngón không ngừng.
+
+"Về… về phòng không?" Kiều nương khó thở, môi đỏ, hỏi Tiêu Kinh.
+
+"Không về, ta tắm tiếp."
+
+Tiêu Kinh cười, vượt một bước vào thùng, ôm Kiều nương cùng ngồi xuống. Theo đó là tiếng nước hoa hoa.
+
+Thùng đổ tám phần chỉ vừa một Kiều nương, giờ thêm một người đàn ông lưng hùm vai gấu, nước tràn mất phân nửa. Thùng theo dáng Kiều nương làm, tuy rộng nhưng hai người, nhất là dáng Tiêu Kinh, chật cứng.
+
+Kiều nương không đẩy được, chỉ có dính sát hơn, không kẽ từ chối. Trong lòng còn giận, tay đẩy ngực Tiêu Kinh, nói: "Thân ta còn hư, không được chịch. Chàng ra, đừng dính ta thế…"
+
+---
+
+## Chương 136 Tắm chung ②
+
+"A… a… ra… chàng ra…"
+
+Kiều nương chưa nói hết, giọng đã run, mềm nhũn thở gấp, má đỏ mắt mơ. Tay đặt ngực Tiêu Kinh không phải đẩy, chỉ đặt nhẹ, đầu ngón chạm ngực nóng cứng hắn.
+
+Tiêu Kinh biết Kiều nương miệng cứng thân mềm, lại vì dục đã nhịn đến giới hạn, nên vừa ôm nàng ngồi xuống đã nâng mông nàng, thịt căng thẳng chọc tách hai mép âm hộ, theo dâm thủy trơn, thúc vào tận đường hoa nóng.
+
+"Ưưm…" Lúc chui sâu, Tiêu Kinh cũng không kìm được rên khẽ, thân rắn run nhẹ. Cảm giác này… lâu quá không có. Cũng thèm đến vậy. Vào rồi không ôn tồn, Tiêu Kinh đã đập mạnh.
+
+"Chàng… sao không nghe Lê Viễn… đừng chịch… đừng…" Kiều nương cũng run.
+
+Mấy ngày cấm dục, tuy toàn nàng chủ động trêu thân Tiêu Kinh, nàng cũng không dễ chịu, thân trưởng thành nửa đêm âm thầm ướt dâm, không cho ai biết. Nàng với Tiêu Kinh đều kìm dục dồn, khát cháy. Giờ được lấp đầy, cả xương cũng tê.
+
+"Nương tử, ta sai… sau này ta không giấu nàng việc gì… nương tử, ta muốn chịch nàng, chỉ chịch nàng…" Tiêu Kinh từng cú thúc sâu, nhanh, dữ, như không bị thùng cản, cũng không ngừng xin lỗi.
+
+Thân thể làm, miệng không ngừng. Trong tiếng va, ngoài rên Kiều nương còn tiếng nước hoa hoa, vang quanh.
+
+"A… a… A Kinh… chàng chậm… a… quá to… quá to…" Âm hộ lâu không bị thúc, như lúc mới, chưa dạo đầu mà nhận thịt lớn thế, Kiều nương khó quen.
+
+"Nương tử, nàng được, nuốt hết được." Tiêu Kinh hôn má, giọng trầm dịu, dưới thân vẫn vỗ chan chát, không nghỉ, còn bảo: "Nương tử, gọi phu quân…"
+
+"Phu quân… a a a… hu hu… đừng húc… a… đừng vỗ mông…" Kiều nương nức nở.
+
+Thực ra Tiêu Kinh không vỗ mông, là sóng nước bị háng hắn húc văng, vỗ vào mông sau, như ai đánh. Tay Tiêu Kinh bận bưng hai vú hắn thèm. Đêm nào hắn cũng ngủ véo một bên ngực nàng, mấy ngày nhịn, cả sở thích này cũng bị cắt. Nay được đã thèm, véo nhào, không dừng.
+
+"Nương tử, ta bù cho nàng… mấy ngày không làm, bù hết… bù hết cho nàng…"
+
+Bù từ hai vú trước. Ngón thô lúc nắm cả, lúc ép hai bên vào giữa, thành khe sâu, lúc kéo đầu vú xuống ngâm nước, buông ra xem đầu vú bật lên, như sen nhú.
+
+"A a a… hu hu… phu quân… đừng… đừng nữa…"
+
+Kiều nương chìm ngay trong dục, không có phút làm quen, đầu đã nồng, nóng… ngâm nước mà như sốt, khô họng. Tưởng Tiêu Kinh không nghe, không ngờ hắn thật dừng.
+
+"Nương tử, ta khát."
+
+"A…" Kiều nương chớp mắt, tưởng hắn bảo đi rót trà, mà thân bị kẹp làm sao đi.
+
+"Nương tử, nước chỗ nàng cho ta uống được không?"
+
+Tiêu Kinh nói, hông nhấn lên, đẩy Kiều nương cao hơn, hai tay bưng hai vú trắng, cùng nổi khỏi mặt nước, đưa tới miệng. Hắn há miệng như sói con đói, ngậm chặt, hai má co rút, mút mạnh.
+
+"A… a… hu hu…" Cảm giác từ đầu vú xông thẳng lên đầu Kiều nương như pháo hoa, nàng bất giác nhắm mắt.
+
+Nàng lạnh… nửa thân trên trên mặt nước, gió lạnh quất. Dưới cũng chẳng khá, vật vã lâu, nước tắm đã nguội. Nhưng nàng lại nóng… âm hộ bị thúc nóng, da dính Tiêu Kinh nóng, đầu vú bị mút nóng…
+
+"A… phu quân… đủ rồi… đừng mút… đầu vú sắp rách…"
+
+Tiêu Kinh không chỉ mút, còn nhẹ cắn, miệng cọ đầu vú cứng. Mỗi lần cắn, âm hộ Kiều nương lại co, nuốt thịt chặt hơn, như công tắc cơ thể nàng.
+
+Kiều nương tưởng sẽ chìm trong nóng lạnh này lâu, Tiêu Kinh bỗng buông ngực, bế nàng đứng khỏi thùng.
+
+"A… hu hu hu…"
+
+Nàng lại giật mình, không chỉ vậy, Tiêu Kinh đứng dậy, tay chân nàng không gánh nỏi, trọng lực như dồn hết xuống chỗ thịt đang chống đường hoa. Thân chìm xuống, nuốt thịt sâu chưa từng có.
+
+---
+
+## Chương 137 Tắm chung: hắn lên đỉnh trước…（4250 trân châu thêm chương）【Một đợt cập nhật】
+
+Tiêu Kinh đứng trong nước ôm Kiều nương, toàn thân căng, lại thúc dữ mấy chục cái, rồi cắm sâu không động. Ừm?… Trong khoảnh khắc Kiều nương chưa hiểu, nàng rõ ràng cảm Tiêu Kinh run, tiếp đó trong âm hộ bị tinh bắn từng cổ, thẳng vào sâu hơn.
+
+Tiêu Kinh… lên đỉnh. Trận này Kiều nương cũng sướng, khoái không dứt, nhưng chưa tới đỉnh, ngược lại Tiêu Kinh vốn bền hơn nàng, lần này lên đỉnh trước. Thường chỉ có nàng bị chơi đến chết đi sống lại chờ mãi không thấy hắn bắn.
+
+"A Kinh, chàng…" Kiều nương mơ hồ, chớp mắt.
+
+"Nhịn lâu quá, ta không kìm." Tiêu Kinh dù thấy ngượng, nhưng là vợ, cũng chẳng ngại, má đỏ kể hết.
+
+"Ồ, không… không sao." Kiều nương lần đầu gặp chuyện này, không biết ứng xử thế nào. Huống chi nàng vừa mắng hắn một trận, sợ làm tổn thương tự tôn đàn ông.
+
+Tiêu Kinh siết hàm, mắt vẫn dịu, hôn má: "Nương tử, ta bù cho nàng."
+
+Hắn lấy áo bên cạnh, mặc kệ ướt sũng, quấn Kiều nương, còn mình trần bước ra. Bếp sát phòng, chỉ một quay người. Trời tối không trăng, Tiêu Kinh trần ra ngoài không ai thấy. Nhưng Kiều nương vẫn thót tim, như sắp bị lộ, cứng người, chưa kịp nghĩ "bù" là gì. Nếu biết là kiểu đó, thà không cần.
+
+Trong nhà nến lúc lấy áo vẫn cháy, lò ấm đặt sẵn, bóng lay động, như xuân. Chớp mắt Kiều nương đã nằm giường, Tiêu Kinh xé áo nàng, lộ da trắng mịn.
+
+Nàng lập tức thấy dưới thân khác, mềm hơn ấm hơn, như lông, nghiêng đầu mới thấy dưới mình không phải chăn mà là da hổ.
+
+"A Kinh, sao lại lấy cái này ra?"
+
+"Nàng sợ lạnh, da hổ ấm, sưởi cho nàng. Nằm có ấm không?"
+
+"Ấm thật."
+
+"Vậy là tốt." Tiêu Kinh cười, mắt sâu thẳm.
+
+Lúc Kiều nương nguy kịch cần bạc mua nhân sâm, đồ đáng giá nhất trên người Tiêu Kinh là hổ tiên và da hổ, hắn không nghĩ đã cầm hổ tiên đi bán, giữ da hổ lại. Từ lúc đó trong tiềm thức hắn đã nghĩ thân Kiều nương yếu không chịu nổi đông tuyết, phải giữ da sưởi, còn hổ tiên vô dụng với nàng.
+
+Hắn từ đầu đến cuối chỉ muốn giữ người lại, không buông. Hôm nay da hổ còn thêm công dụng khác.
+
+Tiêu Kinh để Kiều nương nằm trên da hổ, hắn cũng lên giường, khom giữa hai đùi nàng, nắm hai đùi kéo tách ra.
+
+"A… đừng… buông…"
+
+Kiều nương thấy tư thế này xấu hổ muốn chết, hai đùi gần chạm da hổ, lông dài cọ da, gót ngứa ran. Tiêu Kinh cứng người, nhìn chằm cảnh trước mắt.
+
+Âm hộ ngâm nước đỏ, bị hắn thúc một trận, trong ngoài đỏ bừng, hai mép cương phình, giữa lỗ nhỏ trào tinh trắng, tương phản rõ. Tiêu Kinh nuốt nước bọt, không kìm được, hai ngón thọc vào âm hộ nóng dính.
+
+"Nương tử, nàng còn nhớ lúc đầu chỗ này bé xíu, một ngón ta cũng khó nhét, ta kéo dần mới lớn." Tiêu Kinh vừa kể vừa đưa ngón chậm ra vào: "Bị ta chịch nhiều thế, chỗ này vẫn nhỏ, vẫn non, mỗi lần nuốt ta chặt thế."
+
+"Đừng nói… A Kinh… đừng nói…" Kiều nương đỏ cả cổ tai, xấu hổ.
+
+"Nương tử, ta khen nàng, nhất định bù đủ cho nàng…"
+
+Lời dâm Tiêu Kinh tắt dần, không phải hết lời, mà hắn đã sát âm hộ, hơi thở nóng phả lên thịt nhạy.
+
+"Đừng…"
+
+Kiều nương đoán hắn định làm gì, kêu cản, đạp đùi, nhưng không kịp. Tiêu Kinh cúi xuống, hôn hột le.
+
+Trong thùng hột le không bị cố ý chơi, nhưng lúc thịt ra vào, lông mu bụng Tiêu Kinh thỉnh thoảng cọ qua, cộng kích thích trong đường hoa, hột đã cứng nhô.
+
+Ngậm rồi, cuốn lưỡi, dùng vị giác quét từng nhát, đỉnh chọc. Dưới kích thích hột càng sưng.
+
+"A a… hu hu… A Kinh… phu quân… đừng mút… đừng đụng chỗ đó… a a a a…"
+
+Hột le là điểm G lộ ngoài, nhạy gấp mấy lần đầu vú, sao chịu nổi Tiêu Kinh mút liếm thế, huống chi ngón trong âm hộ không ngừng ra vào, móc dâm thủy lẫn tinh ra.
+
+"A a a a…"
+
+Bụng Kiều nương vừa chua vừa tê, còn ướng ướng nóng, bàng quang cũng run…
+
+---
+
+## Chương 138 Ta vừa nãy có phải… tè ra không?
+
+Thần kinh Kiều nương căng hết, phản ứng thân thể khiến nàng lo lắng mơ hồ, muốn gào bảo Tiêu Kinh dừng, đừng sâu nữa. Nhưng nàng há miệng thật to, thở hổn hển, cổ họng không ra tiếng, rên cũng tắt.
+
+Theo Tiêu Kinh liếm hột le, khoái chồng chất, dồn, cháy! Giây sau, linh hồn như bị kéo lên đỉnh cùng…
+
+Trong khoảnh khắc đó thế giới Kiều nương im bặt, nàng biết lò trong nhà đang cháy, than lép bép, biết ngón Tiêu Kinh còn trong người, tiếng nước dính, biết xung quanh còn tiếng thở không kìm của mình. Nhưng tai, hay trong đầu, lại tĩnh không tiếng, mọi thứ chuyển động mà nàng như không nghe.
+
+Như thời gian ngừng. Nàng lơ lửng trên đỉnh dục, đến khi trong âm hộ lại một cổ nước nóng trào, trong đường như nước rửa, mới kéo nàng về thực tại.
+
+Kiều nương như rơi từ trời xuống, nằm trên da hổ êm, thở gấp. Nàng mở mắt nhìn xà nhà, mắt đỏ, tai cổ ngực… đến ngón chân cũng đỏ bừng.
+
+Thấy Kiều nương lên đỉnh, Tiêu Kinh nhẹ buông tay đang siết, thấy nàng đờ người, khẽ hỏi: "Sướng không?"
+
+Hỏi còn hơn không, Kiều nương run bật, vội kẹp đùi, cuộn người, tay mềm kéo chăn trùm kín, từ đầu đến chân chỉ lộ gáy sau.
+
+"Lạnh à?" Tiêu Kinh thấy lạ, cười biến thành lo, hỏi tiếp.
+
+"Hu hu…" Kiều nương vùi trong chăn, lắc đầu, rên khóc nhỏ.
+
+Tiêu Kinh nghe là biết không ổn, tiếng nức nở trong đó. Hắn kéo một góc chăn, dùng lực, bắt nàng lộ mặt.
+
+"Kiều nương, rốt cuộc sao? Ta làm đau nàng?" Tiêu Kinh nhớ lại, chẳng có gì quá đáng. Nhưng chăn hạ xuống, mắt hắn thấy mặt Kiều nương lem nước mắt. Chốc lát mà khóc thế.
+
+Tiêu Kinh gấp, bế Kiều nương vào lòng, khẽ dỗ: "Sao khóc thế? Thật khó chịu? Hay trong lòng không vui? Sau này việc gì ta cũng nói với nàng, nàng cũng đừng giấu ta, nghe chưa."
+
+Dù dỗ, Tiêu Kinh vẫn là Tiêu Kinh, quen thô trực bá đạo. Nhưng cũng hiệu nghiệm. Kiều nương vai run khóc nức nở, nhưng nghe vậy cũng từ tỉnh mắt đỏ, lệ lấp lánh, ấp úng: "Ta vừa nãy… có phải… có phải…"
+
+Nửa sau môi mấy lần hé, má thêm hồng, không sao nói nổi. Tiêu Kinh gấp đến phát điên.
+
+"Đừng sợ, nói từ từ, rốt cuộc sao?" Tiêu Kinh cúi người, thân trần, trán vã mồ hôi vì gấp.
+
+"Ta…" Kiều nương thương hắn gấp, nhắm mắt nghiến răng, nói thật nhanh: "Ta vừa nãy có phải… tè ra không?"
+
+"A?" Tiêu Kinh sững.
+
+Kiều nương không dám nhìn hắn, không dám đối mắt, kéo chăn lại vùi mặt, không biết đối mặt thế nào, xấu hổ với chuyện vừa xảy ra.
+
+Tè… ra… Tiêu Kinh lặp mấy lần trong đầu, bỗng cười to: "Ha ha ha, ha ha ha."
+
+Tiếng cười chọc vào tai Kiều nương, nàng nóng khắp người, cổ tai đỏ, vừa giận vừa ngại, không muốn ra khỏi chăn cản cười.
+
+Tiêu Kinh ho giọng, nén cười, hé góc chăn, thân trần chui vào.
+
+Kiều nương vẫn như tôm co lưng về phía hắn, hắn dựa sát, hai tay ôm eo, ngực sau lưng nàng, khẽ hỏi: "Sao lại thế?"
+
+"Vừa nãy… ta…" Kiều nương ngại không nói hết, ấp úng: "Ta có cảm giác… kiểu… kiểu ấy."
+
+Cảm giác bàng quang chua căng, nước ào ào trào, không phải tè thì còn gì?
+
+---
+
+## Chương 139 Thủ dâm ① Ta giúp chàng ra
+
+Tiêu Kinh sau lưng Kiều nương vén tóc, hôn từng cái cổ đỏ, giọng cười: "Không, không có chuyện đó."
+
+"Không?" Kiều nương ngạc nhiên, hỏi lại, rồi tự phủ: "Không thể, ta… ta có cảm giác… A Kinh, đừng an ủi mà lừa ta."
+
+"Ta không lừa, thật đấy." Tiêu Kinh bỏ hết cười trong giọng, nói lại nghiêm.
+
+Kiều nương vẫn không tin, vùi trong chăn, giọng trầm: "Sao có thể không… chàng nhất định lừa ta."
+
+Thân là của nàng, sao nàng không biết tè hay không. Tiêu Kinh bất đắc dĩ, nghĩ rồi nói: "Nương tử, giờ ta với nàng vẫn nằm chỗ cũ, vẫn tấm da hổ, có chỗ nào ướt như tè không?"
+
+Một câu tỉnh ngộ. Kiều nương sững, dưới thân ngoài dính giữa hai đùi, quả không có cảm giác tè dầm.
+
+Nhưng vẫn không yên. Nàng bật dậy, kéo chăn, nhìn dưới thân hai người, thấy chỗ kín lộn xộn dâm tanh, nhưng… không có nỗi lo nhất.
+
+Tiêu Kinh cũng ngồi dậy, sợ nàng lạnh, kéo chăn quấn lại, ôm nằm xuống, khẽ nói: "Yên tâm chưa, nàng không tè."
+
+Kiều nương vội bịt miệng hắn, mắt đỏ mặt đỏ: "Không được nhắc lại chữ đó với ta."
+
+Tiêu Kinh thấy nước mắt trong mắt nàng, lúc nãy thảm thế, giờ hung dữ như mèo con, khóe miệng dưới đầu ngón nàng cong, chu môi hôn. Đầu ngón Kiều nương nóng ran, mắt lệ nhìn, rụt tay.
+
+Đúng lúc bốn mắt gặp, nghe tiếng lách nhẹ, trong phòng tắt sáng. Nến cháy hết, tiếng nổ nhỏ rồi tắt.
+
+"Nương tử, là nến nổ, điềm lành." Tiêu Kinh ôm chặt, một tay bưng ngực, một tay đặt bụng, vuốt nhẹ.
+
+Kiều nương còn hoảng, không chịu bụng bị sờ, dưới chăn vỗ tay hắn: "Đừng loạn động."
+
+"Vâng, ta không loạn, cứ để thế." Tiêu Kinh miệng vâng, tay lại tìm chỗ tốt hơn trên mông tròn.
+
+Kiều nương bất lực, mặc hắn, vẫn không quên chuyện cũ. Trong tối không nhìn hắn, không bị hắn nhìn, nhỏ giọng hỏi: "Vậy ta vừa nãy… là sao?"
+
+"Nương tử, vừa sướng không?" Tiêu Kinh hỏi ngược.
+
+"… Sướng… sướng." Kiều nương nhớ lại vừa rồi còn rõ, thân còn nhớ, chỉ nhắc thôi thành âm hộ đã co một cái. Khoái lẫn xấu hổ, đỉnh mạnh hơn mọi khi.
+
+"Thân người phức tạp, đại phu cũng chưa hiểu hết, huống chi ta. Đã sướng thì cần gì hỏi là gì."
+
+Kiều nương nghe vậy thấy có lý, nghẹn trong lòng cũng tan. Nhưng…
+
+"Chuyện này không được hỏi Lê Viễn." Kiều nương đặc biệt nhắc.
+
+"Chuyện vợ chồng, ta không nói với ai." Tiêu Kinh hứa.
+
+Gỡ được gánh, cảm giác khác trên thân nhạy hơn, như thịt căng dựng vào đùi, cứng, nóng…
+
+"A Kinh, chàng thế… không sao chứ?"
+
+"Nương tử muốn giúp ta?"
+
+Họ không thấy nhau, nhưng trong tối mắt Tiêu Kinh lấp lánh, đầy mong đợi. Kiều nương mặt nóng, mắt do dự nhưng cũng quyết.
+
+Quyết rồi, dưới chăn Kiều nương động, tay nắm thịt căng thô của Tiêu Kinh.
+
+"Phu quân, ta giúp chàng ra."
+
+Dòng nóng trong người Tiêu Kinh dồn xuống háng, vốn đã thô, lại căng thêm vòng.
+
+Tối nay hắn như khô hạn gặp mưa, lại được một bữa, nhưng để no còn xa. Đúng như Kiều nương nói, Lê Viễn có lừa, nhưng cũng có phần thật, thân nàng không bằng hắn, không chịu nổi đêm nào cũng vui.
+
+Họ có thể vui, nhưng phải có độ. Nên Tiêu Kinh đưa tay cho Kiều nương lên đỉnh xong, dù trong người còn dục, vẫn kìm, không làm tiếp.
+
+Hắn không ngờ… nhịn một chút lại có phúc thế chờ.
+
+---
+
+## Chương 140 Thủ dâm ②（4350 trân châu thêm chương）【Ba đợt cập nhật】
+
+"Nương tử, vậy làm phiền nàng."
+
+Lần này Tiêu Kinh không kiểm soát tay Kiều nương nữa, mà nằm ngửa, dưới một cột chọc trời, giao hết cho nàng.
+
+Sự thông cảm và kìm của Tiêu Kinh, Kiều nương không phải không hiểu, chính vì hiểu mới không nỡ hắn nhịn khổ. Nàng cũng đã nếm lửa dục mà không được.
+
+Khó chịu ấy thật khiến người trằn trọc cả đêm.
+
+Nàng nắm thịt căng, một tay không xoay hết thì hai tay, ngực mềm dựa ngực hắn, hai đùi kề sát, ngón trên dưới vuốt.
+
+Tốc độ không nhanh, nhưng lòng bàn tay mềm mịn là kích thích tốt nhất cho Tiêu Kinh. Huống chi thịt căng còn dính dâm thủy của cả hai, giờ dính cả đầu ngón trắng, nghĩ thôi đã kích động.
+
+Tiêu Kinh thân không động, miệng không rảnh: "Nương tử, phía dưới… dưới nữa cũng sờ."
+
+Kiều nương thò tay xuống, ngoài lông cứng còn sờ hai hòn mềm nóng, khác hẳn cảm giác thịt cứng. Nàng đặt trong lòng lắc nhẹ, lại tò mò véo.
+
+"Ưm…" Tiêu Kinh rên khẽ, ngực cơ phập phồng.
+
+Kiều nương tưởng làm sai, dừng tay đợi hắn nguôi. Với Tiêu Kinh thế mới là tra tấn.
+
+"Đừng dừng, nương tử, đừng dừng." Tiêu Kinh thở gấp: "Không sao, được véo, nhưng nhẹ… từ từ…"
+
+Kiều nương làm theo, chạm nhẹ, véo từng cái, càng thấy phản ứng Tiêu Kinh quen, như lúc nàng bị hắn chơi, trong lòng cũng nghĩ đừng dừng, nhẹ chút, hay chỗ nào mạnh hơn.
+
+Hóa ra nàng cũng có lúc là người cầm lái. Kiều nương càng thỏa, càng mê việc tay, chơi đủ hòn lại lên thân thịt thô dài, không cần hắn bảo, khớp ngón siết, vuốt lên xuống từ gốc đến quy đầu, không quên lòng bàn cọ đỉnh. Toàn là Tiêu Kinh từng dạy, nàng nhớ kỹ.
+
+Tiêu Kinh được hai tay Kiều nương hầu hạ sướng, thủ dâm khác hẳn chịch thật, nhưng ngoài thân thể còn có thứ thỏa: như Kiều nương nắm toàn thân hắn, thiên kim đó, hắn cũng sẵn lòng quỳ dưới váy nàng, làm kỵ sĩ trong lòng bàn tay nàng.
+
+"Nương tử."
+
+"Ừ?"
+
+"Nương tử, khi nào ta với nàng lên suối nước nóng nữa, nàng không đi bộ, ta cõng nàng lên."
+
+"Vâng, chàng muốn khi nào?"
+
+"Đợi tuyết. Ta với nàng ngâm suối, vừa xem tuyết vừa chịch nàng, chắc sướng lắm."
+
+"…" Tay Kiều nương lỡ siết, véo nhẹ nhầm thịt căng.
+
+"Ưm…" Tiêu Kinh rên: "Nương tử, đó là hạnh phúc cả đời sau nàng, mất nó thì không còn chịch nàng nữa…"
+
+"Chàng nhiều lời." Kiều nương giận hờn, lại véo thêm cái nữa.
+
+"A… nương tử véo sướng… đừng dừng…" Tiêu Kinh không đau lắm, lại sướng hơn, còn nói dâm: "Nương tử, ta chưa nói hết. Ngâm suối, nàng có tè thật ta cũng không chê."
+
+"Tiêu Kinh!"
+
+Kiều nương ghét nhất nghe chữ "tè", Tiêu Kinh cố ý, nàng thật giận, buông hai tay, không làm nữa. Vừa buông, thịt chưa kịp, tinh bắn đầy tay nàng.
+
+Từng cổ, văng mu bàn tay. Tay Kiều nương ướt nhớp, không dám động, sợ dính người, đành để trên người Tiêu Kinh.
+
+"Nương tử, giỏi lắm, vuốt cho ta ra rồi."
+
+Trong lời Tiêu Kinh chẳng nghe khen mà nghe khoe. Ồn ào một hồi, dọn dẹp xong, vợ chồng đã quá nửa đêm, giận cũng qua, xấu hổ cũng qua, cuối cùng ôm nhau ngủ.
+
+Sáng dậy Kiều nương còn đang thay đồ, Tiêu Kinh ra ngoài một vòng, vội chạy vào.
+
+Hắn cười toe với nàng: "Kiều nương, tuyết rồi."
+
+"Tuyết cũng không đi." Kiều nương không ngước, giận dỗi.
+
+Tiêu Kinh không giận, với tay chỉnh cổ áo nàng, ghé má: "Tuyết lớn, ta ra xem."
+
+Kiều nương nửa đẩy nửa theo, vừa mở cửa đã sững cảnh ngoài.
+
+Tuyết như lông ngỗng, phủ dày, khắp nơi bạc phau, nhìn xa mịt trắng. Đêm qua còn vài chỗ tuyết tàn, một đêm trời đổi sắc.
+
+Đó là… trời đổi.
 
 ---
 
