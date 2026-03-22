@@ -15,7 +15,7 @@ import java.nio.file.Path;
 import java.time.LocalDateTime;
 import java.time.format.DateTimeFormatter;
 import java.util.ArrayList;
-import java.util.Collections;
+import java.util.Comparator;
 import java.util.LinkedHashMap;
 import java.util.List;
 import java.util.Map;
@@ -348,8 +348,36 @@ public class LayTruyenFromLink {
         }
 
         List<ChapterRef> list = new ArrayList<>(ordered.values());
-        Collections.reverse(list); // Trang web xếp mới nhất trước, đảo lại để đọc từ chương 1
+        // Sắp xếp theo số chương trong tiêu đề (第N章 / N：…) để luôn đúng thứ tự 1→N,
+        // không phụ thuộc site xếp mới→cũ hay cũ→mới trên từng trang.
+        list.sort(Comparator.comparingInt(LayTruyenFromLink::chapterOrderKey));
         return list;
+    }
+
+    /**
+     * Trích số thứ tự chương từ tiêu đề link (xyushuwu4: "207：…", "第12章 …").
+     * Không khớp → Integer.MAX_VALUE (đẩy xuống cuối, giữ thứ tự tương đối không ổn định).
+     */
+    private static int chapterOrderKey(ChapterRef ch) {
+        if (ch == null || ch.title == null) return Integer.MAX_VALUE;
+        String t = ch.title.trim();
+        Matcher m = Pattern.compile("第(\\d+)章").matcher(t);
+        if (m.find()) {
+            try {
+                return Integer.parseInt(m.group(1));
+            } catch (NumberFormatException ignored) {
+                // fall through
+            }
+        }
+        m = Pattern.compile("^(\\d+)[：:]").matcher(t);
+        if (m.find()) {
+            try {
+                return Integer.parseInt(m.group(1));
+            } catch (NumberFormatException ignored) {
+                // fall through
+            }
+        }
+        return Integer.MAX_VALUE;
     }
 
     private static ChapterFetchResult fetchChapterContentDetailed(String chapterUrl) {

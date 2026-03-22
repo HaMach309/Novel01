@@ -4,7 +4,7 @@ Dự án tiểu thuyết / pipeline dịch Trung → Việt (Hán Việt).
 
 ## Cursor
 
-- **Rules**: `.cursor/rules/` (ví dụ đồng bộ `report.md` khi sửa `Book1.md`)
+- **Rules**: `.cursor/rules/` — quy tắc tùy chỉnh theo dự án
 - **Skills**: `.cursor/skills/` và bản sao tại `skills/` — skill dịch tiểu thuyết Trung–Việt
 
 ## Nội dung chính

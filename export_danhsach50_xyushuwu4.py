@@ -126,10 +126,11 @@ def parse_book_html(html: str) -> tuple[str, str, str | None, str | None]:
 
 
 def guess_status(html: str, old: str) -> str:
+    """Trạng thái hiển thị tiếng Việt trong bảng (cột Trạng thái)."""
     if "已完结" in html or "本书已完结" in html or "全文完" in html:
-        return "完本"
+        return "Đã hoàn"
     if "连载" in html and "已完结" not in html:
-        return "连载"
+        return "Đang đăng"
     return old
 
 
@@ -137,9 +138,10 @@ def format_chapter_col(n: int | None, status: str, old: str) -> str:
     if n is None:
         return old.strip()
     st = status.strip()
-    if st == "完本":
+    # Hỗ trợ cả nhãn cũ tiếng Trung nếu file chưa cập nhật
+    if st in ("Đã hoàn", "完本"):
         return str(n)
-    if old.strip().endswith("+") or st in ("连载", "新书"):
+    if old.strip().endswith("+") or st in ("连载", "新书", "Đang đăng", "Mới đăng", "Không rõ"):
         return f"{n}+"
     if old.strip() and old.strip() != "—" and re.match(r"^\d", old.strip()):
         return old.strip()

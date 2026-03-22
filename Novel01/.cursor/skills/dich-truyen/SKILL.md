@@ -10,17 +10,27 @@ description: Translates novels from Simplified Chinese to Vietnamese, preserving
 Hướng dẫn dịch văn bản tiểu thuyết từ **tiếng Trung giản thể** sang **tiếng Việt**, đảm bảo:
 - **Tên nhân vật**: luôn dùng **phiên âm Hán Việt** (không dùng pinyin hay phiên âm Latin khác).
 - **Format**: giữ nguyên cấu trúc văn bản gốc (đoạn văn, xuống dòng, chương, tiêu đề, dialogue).
+- **Toàn văn, không tóm tắt**: mọi ý, câu, chi tiết có trong gốc đều phải có trong bản dịch (xem mục riêng bên dưới).
 - **Đầu ra**: ưu tiên trả về **chỉ bản dịch tiếng Việt** (không kèm phân tích, checklist, hay ghi chú), trừ khi người dùng yêu cầu.
 
 ## Quy ước đầu ra (rất quan trọng)
 
 - **Mặc định**: xuất **toàn bộ nội dung đã dịch sang tiếng Việt**, giữ đúng số đoạn và xuống dòng như bản gốc.
 - **Tuyệt đối không để sót bất kỳ ký tự tiếng Trung nào** (kể cả trong ngoặc, chú thích, tiêu đề, lời thoại, tiếng kêu, onomatopoeia…).
-- **TUYỆT ĐỐI KHÔNG TÓM TẮT**: bản dịch phải là **dịch đầy đủ (full translation)** 1:1 với văn bản gốc. Cấm: tóm tắt, diễn giải rút gọn, "kể lại", lược bỏ chi tiết, gom nhiều câu thành một câu, thay nội dung bằng kết luận, dùng "đại ý là…", "tóm lại…", "nói chung…".
-- **DỊCH ĐỦ VĂN BẢN GỐC**: mỗi câu, mỗi đoạn, mỗi lời thoại trong bản gốc phải có bản dịch tương ứng; độ dài bản dịch phải tương xứng với bản gốc (không được ngắn bất thường).
+
+### Cấm tóm tắt – bắt buộc dịch toàn bộ (không được vi phạm)
+
+- **Định nghĩa “tóm tắt” (cấm)**: rút gọn, bỏ bớt, gộp nhiều câu/đoạn gốc thành ít câu hơn, thay cả đoạn kể bằng một câu “đại ý”, “sau đó…”, “rồi chuyện xảy ra như sau”, hoặc bỏ qua chi tiết vì cho là thừa, lặp, hoặc vì giới hạn độ dài phản hồi.
+- **Bản dịch phải là full translation**: **mỗi** câu, **mỗi** ý kể, **mỗi** mảng tả, **mỗi** lời thoại, **mỗi** độc thoại và suy nghĩ nội tâm nhân vật, **mỗi** dòng phụ (kể cả lời tác giả, cảm ơn độc giả, hướng dẫn vote, chú thích cuối chương) trong phạm vi văn bản gốc được giao — đều phải có **bản tiếng Việt tương ứng**, không được thay bằng tóm lược.
+- **Thứ tự và sự kiện**: giữ đúng trình tự gốc; không nhảy cóc, không gom nhiều sự kiện thành một câu tổng hợp nếu gốc tách riêng.
+- **Số lượng & chi tiết cụ thể**: số tiền, số người, tên đồ vật, so sánh, lặp lại có chủ đích trong gốc — đều phải còn trong bản dịch, không được lược vì “dài”.
+- **Được phép “cô đọng” chỉ ở mức câu tiếng Việt**: gọn hơn về ngữ pháp tiếng Việt **miễn là không làm mất** bất kỳ sự kiện, hình ảnh, cảm xúc, lời nói hay thông tin nào so với gốc. Việt hóa tự nhiên ≠ rút nội dung.
+- **Cấm các kiểu diễn đạt thay thế tóm tắt**: “đại ý là…”, “tóm lại…”, “nói chung…”, “có thể hiểu rằng…”, “phần sau kể về việc…”, “(lược bỏ đoạn…)”, “(bỏ qua chi tiết)”.
+- **Cấm** dùng bản dịch ngắn hơn gốc một cách **bất thường** (ví dụ nửa chương gốc thành vài câu). Nếu nghi ngờ đã rút gọn: **đối chiếu lại từng khối** với bản gốc trước khi xuất bản.
+- **DỊCH ĐỦ VĂN BẢN GỐC** (nhắc lại): mỗi câu, mỗi đoạn, mỗi lời thoại trong bản gốc phải có bản dịch tương ứng; tổng độ dài nội dung dịch phải **tương xứng** với gốc (không được ngắn bất thường).
 - **Không thêm phần "Giải thích/Phân tích/Checklist"** trước hoặc sau bản dịch.
 - **Không lặp lại nguyên văn tiếng Trung** trong phần trả lời, trừ khi người dùng yêu cầu "song ngữ" hoặc cần đối chiếu.
-- Nếu người dùng đưa nhiều chương/đoạn: dịch **đầy đủ theo đúng thứ tự**, không lược bỏ.
+- Nếu người dùng đưa nhiều chương/đoạn: dịch **đầy đủ theo đúng thứ tự**, không lược bỏ — **không** chỉ dịch “đoạn đầu” rồi tóm phần còn lại.
 
 ## Quy tắc chính
 
@@ -42,17 +52,19 @@ Hướng dẫn dịch văn bản tiểu thuyết từ **tiếng Trung giản th�
     - **Ưu tiên**: tách tại chỗ nghỉ tự nhiên (hết câu kể, hết ý nhỏ) để mạch văn không bị gãy.
   - Mục tiêu tổng thể: các đoạn văn có độ dài cân đối, dễ đọc, không có đoạn nào quá dài so với trung bình.
 - **Xuống dòng / ngắt dòng**: giữ đúng vị trí (ví dụ: mỗi lời thoại một dòng thì bản dịch cũng một dòng một thoại).
-- **Lời thoại (dialogue)** – bắt buộc, xuống dòng trước và sau:
-  - **Trước mỗi lời thoại**: luôn xuống dòng (mỗi lời thoại bắt đầu ở một dòng mới).
-  - **Sau mỗi lời thoại**: luôn xuống dòng (hết lời thoại thì xuống dòng rồi mới viết tiếp phần tường thuật/người nói khác).
-  - Không dính lời thoại với đoạn văn kể trước hoặc sau trên cùng một dòng; mỗi lượt trích lời thoại là một dòng riêng, trước và sau đều có ngắt dòng.
+- **Lời thoại (dialogue)** – bắt buộc:
+  - **Dấu ngoặc kép**: toàn bộ nội dung mỗi lượt lời thoại phải được **bao trong dấu ngoặc kép** `"..."` (dấu `"` mở và `"` đóng; có thể dùng kiểu typographic **“...”** nhưng **nhất quán** trong cả bản dịch). Không dùng gạch đầu dòng `—` thay cho ngoặc kép trừ khi người dùng yêu cầu format khác.
+  - **Dòng trống trước và sau mỗi lượt thoại**:
+    - **Trước** lời thoại: luôn có **một dòng trống** (xuống dòng sau phần tường thuật hoặc sau lượt thoại trước đó), rồi mới đến dòng chứa câu thoại trong ngoặc kép.
+    - **Sau** lời thoại: kết thúc bằng dấu đóng ngoặc kép và xuống dòng, rồi **một dòng trống** nữa rồi mới viết tiếp tường thuật hoặc lượt thoại tiếp theo.
+  - Mỗi lượt thoại (một nhân vật nói một lần, hoặc một câu độc thoại) là **một dòng** (hoặc nhiều dòng nếu thoại dài xuống dòng đúng quy định truyện), nhưng vẫn nằm trong cùng một cặp ngoặc kép; không dính lời thoại trên cùng một dòng với lời dẫn trước/sau.
 - **Chương, hồi, quyển**: giữ cấu trúc. Mặc định chuẩn hóa:
   - `第N章` → `Chương N`
   - `第N回` → `Hồi N`
   - `第N卷` → `Quyển N`
   - Chữ số Trung (一, 二, 三…) → số Ả Rập (1, 2, 3…) trừ khi người dùng muốn giữ Hán số.
 - **Tiêu đề chương**: dịch nội dung, giữ style (in đậm, in nghiêng) nếu bản gốc có.
-- **Dấu câu**: dùng quy chuẩn tiếng Việt (dấu câu đặt trong ngoặc kép khi cần); không thay đổi cấu trúc câu một cách không cần thiết.
+- **Dấu câu**: dùng quy chuẩn tiếng Việt; **lời thoại** luôn đặt dấu câu (chấm, hỏi, than…) **bên trong** cặp ngoặc kép thoại; không thay đổi cấu trúc câu một cách không cần thiết.
 
 ### 3. Phong cách dịch
 
@@ -95,12 +107,13 @@ Hướng dẫn dịch văn bản tiểu thuyết từ **tiếng Trung giản th�
 1. **Đọc qua** đoạn/chương gốc để nắm ngữ cảnh và nhân vật.
 2. **Xác định tên riêng** (người, địa danh, tông phái…) và liệt kê phiên âm Hán Việt sẽ dùng; nếu có bảng tên sẵn thì áp dụng.
 3. **Dịch từng đoạn** theo đúng thứ tự và format (đoạn, dòng, chương).
-4. **Kiểm tra “dịch đủ nội dung” ngay sau khi dịch** (bắt buộc, để tránh dịch kiểu tóm tắt):
+4. **Kiểm tra “dịch đủ nội dung — không tóm tắt”** (bắt buộc, làm ngay sau khi dịch xong):
    - **Đối chiếu theo cấu trúc**: mỗi đoạn/khối nội dung trong bản gốc phải có một đoạn/khối tương ứng trong bản dịch (không được thiếu đoạn, thiếu lời thoại, thiếu tiêu đề).
-   - **Rà soát các “điểm hay bị rơi”**: tiêu đề chương/hồi, phụ đề, lời thoại ngắn, câu cảm thán/tiếng kêu, nội dung trong ngoặc, chú thích, ký hiệu phân cách cảnh (`——`, `***`, `……`), thơ/ca từ.
-   - **Dấu hiệu tóm tắt cần sửa ngay**: bản dịch ngắn bất thường so với gốc, nhiều câu gốc gộp thành 1 câu tổng kết, xuất hiện các câu kiểu “đại ý là…/tóm lại…/nói chung…”, hoặc tự thêm suy luận không có trong gốc.
-5. **Tách đoạn nếu quá dài** (bắt buộc): rà soát từng đoạn; nếu đoạn > ~200 từ thì tách tại cuối câu thành nhiều đoạn nhỏ hơn (mục 2).
-6. **Chỉ khi đã đạt kiểm tra trên** mới xuất bản dịch làm đầu ra.
+   - **Đếm/quét theo trục thời gian văn bản**: lướt song song gốc và dịch; mỗi lần gốc có câu mới (kể, thoại, tả) thì bản dịch phải có câu tương ứng — không được “nhảy cóc” một khúc dài.
+   - **Rà soát các “điểm hay bị rơi”**: tiêu đề chương/hồi, phụ đề, lời thoại ngắn, câu cảm thán/tiếng kêu, nội dung trong ngoặc, chú thích, ký hiệu phân cách cảnh (`——`, `***`, `……`), thơ/ca từ, lời tác giả cuối chương.
+   - **Dấu hiệu tóm tắt — bắt buộc sửa trước khi nộp**: bản dịch ngắn bất thường so với gốc; nhiều câu gốc bị gộp thành một câu tổng kết; thiếu hẳn một đoạn hoặc một lượt thoại; xuất hiện “đại ý là…/tóm lại…/nói chung…/sau đó… (mơ hồ thay cho chi tiết gốc)”; tự thêm suy luận hoặc kết luận không có trong gốc.
+5. **Tách đoạn nếu quá dài** (bắt buộc): rà soát từng đoạn; nếu đoạn > ~200 từ thì tách tại cuối câu thành nhiều đoạn nhỏ hơn (mục 2). **Lưu ý**: tách đoạn chỉ để dễ đọc, **không** được dùng như cơ hội bỏ bớt câu gốc.
+6. **Chỉ khi đã đạt kiểm tra trên** (đặc biệt là mục 4) mới xuất bản dịch làm đầu ra.
 
 ### 7. Lưu kết quả – đúng định dạng tiếng Việt (ưu tiên)
 
@@ -122,23 +135,24 @@ Chương 1  Bắt đầu
 
 Lý Minh nhìn ra ngoài cửa sổ, trong lòng nghĩ:
 
-— Hôm nay Trương Vĩ có đến không?
+"Hôm nay Trương Vĩ có đến không?"
+
 ```
 
 **Tránh:**
 - Dùng "Li Ming", "Zhang Wei" (pinyin) hoặc "Wang Xiaoming" thay cho Hán Việt.
 - Gộp hai câu thành một đoạn dài không có xuống dòng như bản gốc.
 - Đổi cấu trúc chương (ví dụ bỏ tiêu đề chương).
-- **Tóm tắt hoặc rút gọn**: bản dịch phải đủ độ dài, không lược bỏ nội dung gốc.
+- **Mọi hình thức tóm tắt hoặc rút gọn nội dung gốc**: bản dịch phải **đủ** so với gốc về số lượng ý/câu/chi tiết; không lược bỏ, không thay bằng câu tổng quát, không “kể lại ngắn”.
 
-## Tóm tắt checklist
+## Checklist kiểm tra (trước khi coi là xong)
 
 - [ ] Mọi tên nhân vật (và địa danh/tông phái nếu áp dụng) đã chuyển sang Hán Việt.
 - [ ] Số đoạn, xuống dòng, chương/hồi giống bản gốc.
 - [ ] Đoạn văn quá dài (>200 từ) đã được tách tại cuối câu thành nhiều đoạn nhỏ hơn.
-- [ ] Mỗi lời thoại xuống dòng trước và sau (một dòng riêng cho mỗi lượt trích lời thoại).
+- [ ] Mỗi lời thoại bọc trong `"..."` (hoặc “...” nhất quán), có **dòng trống** trước và sau mỗi lượt thoại.
 - [ ] Tiêu đề chương đã dịch và giữ style.
-- [ ] Không có dấu hiệu tóm tắt: không lược bỏ, không “đại ý/tóm lại/nói chung”, không gom đoạn làm ngắn nội dung; độ dài bản dịch tương xứng với bản gốc.
+- [ ] **Không tóm tắt**: đã đối chiếu gốc–dịch; không thiếu đoạn/câu/thoại; không gộp nhiều câu gốc thành một câu tổng kết; không có “đại ý/tóm lại/nói chung” thay cho văn gốc; độ dài và mật độ nội dung tương xứng bản gốc.
 - [ ] Đã rà các phần dễ sót (ngoặc, chú thích, tiếng kêu, ký hiệu phân cảnh, thơ/ca từ).
 - [ ] Câu tiếng Việt tự nhiên, đúng thể loại và xưng hô.
 - [ ] File kết quả được lưu **đúng định dạng tiếng Việt** (hiển thị đúng dấu, không méo chữ).
