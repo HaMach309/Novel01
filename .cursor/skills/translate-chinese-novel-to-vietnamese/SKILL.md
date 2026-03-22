@@ -57,7 +57,7 @@ Hướng dẫn dịch văn bản tiểu thuyết từ **tiếng Trung giản th�
 ### 3. Phong cách dịch
 
 - **Văn phong cổ trang (mặc định)**: ưu tiên giọng văn cổ trang/kiếm hiệp/tiên hiệp; dùng xưng hô, kính ngữ và từ ngữ mang sắc thái cổ phong; tránh văn nói hiện đại (kiểu "ok", "đỉnh", "ủa", "thật sự luôn", "bạn/ tôi" thân mật đời thường…) trừ khi bối cảnh hiện đại.
-- **Tự nhiên**: câu tiếng Việt mạch lạc, giàu nhịp điệu; tránh "dịch word-by-word" cứng nhắc.
+- **Tự nhiên**: câu tiếng Việt mạch lạc, giàu nhịp điệu; tránh "dịch word-by-word" cứng nhắc. Chi tiết **thuần Việt, dễ hiểu** ở mục 3.5.
 - **Thể loại**: tùy thể loại (kiếm hiệp, tiên hiệp, ngôn tình, đô thị…) điều chỉnh từ vựng và giọng điệu, nhưng nếu là cổ trang thì luôn giữ "cổ phong" xuyên suốt.
 - **Thành ngữ / điển cố**: ưu tiên dịch nghĩa sang tiếng Việt tương đương; nếu giữ Hán Việt (điển cố) thì có thể chú thích ngắn lần đầu.
 - **Thuật ngữ đặc thù** (tu luyện, cảnh giới, pháp bảo…): giữ thuật ngữ đã quen dùng trong cộng đồng dịch Việt hoặc thống nhất trong bảng thuật ngữ nếu có.
@@ -90,14 +90,33 @@ Hướng dẫn dịch văn bản tiểu thuyết từ **tiếng Trung giản th�
 
 - Tránh các từ hiện đại khi bối cảnh cổ trang: "thanh toán", "tài khoản", "app", "đăng nhập", "deal", "deadline", "chill", "stress", "idol", "fan"… (trừ khi truyện cố ý xuyên không/hiện đại).
 
-#### 3.4 Câu cảm thán—hạn chế «À», ưu tiên «A» / «á» theo ngữ cảnh
+#### 3.4 Câu cảm thán: hạn chế «À», ưu tiên «A» / «á» theo ngữ cảnh
 
 - **Không lạm dụng "À"** (có dấu huyền) cho mọi tiếng cảm thán hay hạt từ cuối câu trong gốc (啊, 呀, 哎, 唉, 哇…). "À" dễ nghe giọng **chậm, nhận ra, giải thích**; dùng nhiều sẽ làm thoại đồng điệu, thiếu nhịp kịch.
 - **Khi nào giữ "À"**: chợt hiểu, vừa nhớ ra, giọng trầm/dịu, câu kiểu "À, ra là thế / À, ta biết rồi".
-- **Ưu tiên "A"** (không dấu thanh): kêu lên bất ngờ, giật mình, đau, sợ, gọi vội, cảm thán mạnh, hoặc tiếng kêu ngắn đầu câu thoại—chọn **A** nếu ngữ cảnh là **vỡ òa / gấp / ồn ào** hơn là suy nghĩ chậm.
-- **Ưu tiên "á"** (dấu sắc): tiếng kêu **ngắn, cắt, gấp**, mỉa mai nhẹ, hoặc vần điệu với câu sau (ví dụ nhấn mạnh cuối câu)—chọn **á** khi âm hưởng **sắc, gọn**, không phải giọng trầm "À…".
-- **Nguyên tắc**: mỗi lượt thoại/cảnh, **đọc thử**—nếu "À" nghe như đang **giảng giải** thay vì **phản ứng cảm xúc**, đổi sang **A** hoặc **á** cho sát tình huống.
+- **Ưu tiên "A"** (không dấu thanh): kêu lên bất ngờ, giật mình, đau, sợ, gọi vội, cảm thán mạnh, hoặc tiếng kêu ngắn đầu câu thoại; chọn **A** nếu ngữ cảnh là **vỡ òa / gấp / ồn ào** hơn là suy nghĩ chậm.
+- **Ưu tiên "á"** (dấu sắc): tiếng kêu **ngắn, cắt, gấp**, mỉa mai nhẹ, hoặc vần điệu với câu sau (ví dụ nhấn mạnh cuối câu); chọn **á** khi âm hưởng **sắc, gọn**, không phải giọng trầm "À…".
+- **Nguyên tắc**: mỗi lượt thoại/cảnh, **đọc thử**: nếu "À" nghe như đang **giảng giải** thay vì **phản ứng cảm xúc**, đổi sang **A** hoặc **á** cho sát tình huống.
 - **Tiếng kêu «hà á» → «há á»**: khi dịch các cảm thán/cuối câu kiểu 啊呀、哈呀… ra tiếng Việt mà vô tình thành **hà á** (chữ đầu **huyền**), nếu đó là **tiếng kêu** (không phải từ "hà" có nghĩa như "sao", "gì"…), **chuẩn hóa thành há á** (chữ đầu **sắc**) cho đúng giọng cảm thán; tránh **hà á** trong thoại khi ý là kêu lên.
+
+#### 3.5 Thuần Việt, dễ hiểu: tránh câu «dịch từng chữ» gượng, khó đọc
+
+- **Mục tiêu**: người đọc tiếng Việt **hiểu ngay**, không phải đoán nghĩa sau lớp từ ghép lạ hay câu cú giống Hán ngữ. Giữ **đủ nội dung gốc** nhưng **ưu tiên cách nói tự nhiên** trong cùng thể loại (cổ trang, hiện đại, ngôn tình, v.v.).
+- **Đọc lại sau khi dịch**: nếu câu nghe như **máy dịch**, **không biết ai làm gì**, hoặc phải đọc hai lần mới hiểu → **viết lại** (vẫn không được lược bớt ý/ chi tiết trong gốc).
+- **Tránh xếp chồng vế ngắn** chỉ bằng dấu phẩy khi tiếng Việt cần **liên kết rõ** (vì, nên, rồi thì, chẳng mấy chốc, trong lúc…), hoặc **tách thành hai câu** nếu một câu nhồi quá nhiều hành động/cảnh. **Không** dùng tách câu để tóm tắt.
+- **Tránh calque gây lạ tai**: cụm kiểu *lơ đãng không kìm được*, *… không kìm được* dồn đầu câu trong khi ý là *vô thức / không tự chủ được / bất tri bất giác đã…*; chọn **một** cách diễn đạt thuần Việt sát tình huống thay vì ghép tính từ + phủ định theo văn phong Trung.
+- **Động từ + tân ngữ**: đảm bảo **rõ chủ thể** (ai làm gì với ai/cái gì); tránh chuỗi động từ dính nhau không có chỗ dừng thở của câu tiếng Việt.
+- **Từ ngữ nhạy cảm / cảnh thân mật**: ưu tiên **cách gọi và động từ** thông dụng trong tiếng Việt ở đúng **độ trần** của truyện (kín đáo hơn hoặc trực tiếp hơn tùy bản gốc), tránh **ghép từ sát Hán** hoặc từ hiếm khiến đoạn khó hiểu hoặc buồn cười ngoài ý muốn; có thể dùng **miêu tả hành động, cảm giác** rõ ràng thay vì một từ gượng.
+- **Tính từ/cạnh từ**: tránh dịch sát từng tiếng Trung thành chuỗi tính từ cuối câu khó hiểu; ưu tiên **một cụm nghĩa** tự nhiên (ví dụ *cứng ngầu* → *cứng lên* / *cương cứng* / *cứng đơ* tùy ngữ cảnh, thống nhất trong truyện).
+
+#### 3.6 Hạn chế dấu gạch (–, —, -)
+
+- **Mục tiêu**: văn kể tiếng Việt dễ đọc, tránh nhịp “cắt ngang” do lạm dụng gạch giữa câu (đặc biệt gạch dài **—** kiểu văn xuôi nước ngoài hoặc bản dịch máy).
+- **Trong câu tường thuật**: ưu tiên **dấu phẩy**, **chấm** (tách hai vế), **hai chấm**, **chấm lửng** (…), hoặc **viết lại thành hai câu** thay vì dùng gạch để nối ý, chen bổ ngữ, hoặc “đổi chủ đề giữa chừng”.
+- **Không** dùng gạch thay cho dấu câu chuẩn khi có thể dùng phẩy/chấm cho đúng chính tả tiếng Việt.
+- **Gạch nối `-` (ASCII)**: chỉ giữ khi **bắt buộc** theo cách viết thông dụng: từ ghép quốc tế/tên riêng có quy ước (nếu có), số và đơn vị (ví dụ kiểu `15-20`), hoặc khi người dùng/bản gốc đã thống nhất. Tránh tự thêm gạch nối từ vựng tiếng Việt nếu có thể viết một từ hoặc cụm tự nhiên.
+- **Gạch em `—`**: không dùng để đánh dấu lời thoại (thoại dùng **ngoặc kép `"…"`** và xuống dòng trước/sau theo mục 2). Trong tường thuật, chỉ dùng `—` khi thật sự cần ngắt nhịp mạnh và không thể diễn đạt gọn bằng phẩy hoặc chấm; nếu phải dùng, **không** lặp nhiều lần trong cùng một đoạn.
+- **Gạch en `–`**: hạn chế tương tự; ưu tiên diễn đạt bằng từ nối (*đến*, *tới*, *từ … đến …*) thay vì `–` giữa số hoặc từ nếu câu vẫn mạch lạc.
 
 ## Quy trình khi dịch
 
@@ -109,7 +128,8 @@ Hướng dẫn dịch văn bản tiểu thuyết từ **tiếng Trung giản th�
    - **Rà soát các “điểm hay bị rơi”**: tiêu đề chương/hồi, phụ đề, lời thoại ngắn, câu cảm thán/tiếng kêu, nội dung trong ngoặc, chú thích, ký hiệu phân cách cảnh (`——`, `***`, `……`), thơ/ca từ.
    - **Dấu hiệu tóm tắt cần sửa ngay**: bản dịch ngắn bất thường so với gốc, nhiều câu gốc gộp thành 1 câu tổng kết, xuất hiện các câu kiểu “đại ý là…/tóm lại…/nói chung…”, hoặc tự thêm suy luận không có trong gốc.
 5. **Tách đoạn nếu quá dài** (bắt buộc): rà soát từng đoạn; nếu đoạn > ~200 từ thì tách tại cuối câu thành nhiều đoạn nhỏ hơn (mục 2).
-6. **Chỉ khi đã đạt kiểm tra trên** mới xuất bản dịch làm đầu ra.
+6. **Thuần Việt** (bắt buộc): đọc lại bản dịch, sửa các câu gượng/khó hiểu theo mục 3.5; đồng thời rà dấu gạch (3.6), thay bằng phẩy, chấm hoặc tách câu khi có thể. **Không** được dùng bước này để rút gọn nội dung gốc.
+7. **Chỉ khi đã đạt kiểm tra trên** mới xuất bản dịch làm đầu ra.
 
 ## Ví dụ nhanh
 
@@ -125,7 +145,7 @@ Chương 1  Bắt đầu
 
 Lý Minh nhìn ra ngoài cửa sổ, trong lòng nghĩ:
 
-— Hôm nay Trương Vĩ có đến không?
+"Hôm nay Trương Vĩ có đến không?"
 ```
 
 **Tránh:**
@@ -144,4 +164,6 @@ Lý Minh nhìn ra ngoài cửa sổ, trong lòng nghĩ:
 - [ ] Không có dấu hiệu tóm tắt: không lược bỏ, không “đại ý/tóm lại/nói chung”, không gom đoạn làm ngắn nội dung; độ dài bản dịch tương xứng với bản gốc.
 - [ ] Đã rà các phần dễ sót (ngoặc, chú thích, tiếng kêu, ký hiệu phân cảnh, thơ/ca từ).
 - [ ] Câu tiếng Việt tự nhiên, đúng thể loại và xưng hô.
+- [ ] Đã rà **thuần Việt** (mục 3.5): không câu máy dịch, đủ rõ chủ thể/hành động, không xếp vế ngắt quãng khó đọc khi có thể viết lại mạch lạc, vẫn đủ nội dung gốc.
 - [ ] Câu cảm thán: không lạm dụng "À"; đã cân nhắc "A" / "á" theo ngữ cảnh; tiếng kêu **há á** không viết nhầm **hà á** (mục 3.4).
+- [ ] Không lạm dụng dấu gạch (–, —, -) trong tường thuật; thoại dùng `"…"` chứ không dùng gạch đầu dòng (mục 3.6).
