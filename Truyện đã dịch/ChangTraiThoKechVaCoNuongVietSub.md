@@ -7044,6 +7044,2132 @@ Hắn ưỡn mạnh, quy đầu từ đùi dời tới cửa âm hộ ẩm nóng
 
 ---
 
+## Chương 101 Miệng âm hộ sáng lấp lánh, khép không lại…
+
+Nhét vào… động tác vừa mạnh vừa chậm.
+
+Cũng không phải âm hộ không thông, tắc nghẽn, dù sao ngón tay Tiêu Kinh móc qua móc lại, âm hộ sớm đã mẫn cảm chảy một trận nước, miệng âm hộ sáng lấp lánh, khép không lại.
+
+Mà là hoa kinh Kiều nương quá hẹp, dù đã bị đâm mở một lần, mấy ngày dưỡng lại, lại căng như gái tân. Thêm nữa thịt căng Tiêu Kinh thật sự quá lớn, thô dài hơn hẳn thường nhân.
+
+Hai người như vậy gặp nhau, dù tình ý đậm đà, dâm thủy róc rách, vẫn không tránh khỏi chút hành hạ.
+
+Đau…
+
+“Ư ư…”
+
+Kiều nương thở gấp, môi đỏ mím chặt, tuy không kêu đau, nhưng chỉ cần đôi mày nhíu bất chợt cũng thấy nàng chịu không nổi.
+
+Khoái cảm tích trong thân mềm va chạm kịch liệt với cơn đau từ âm hộ; nếu không, nàng đã một tay đẩy gã đàn ông này ra.
+
+Sao lại…
+
+Sao lại to đến thế…
+
+Kiều nương đến giờ vẫn không muốn đối diện với thịt căng đồ sộ của Tiêu Kinh.
+
+Chẳng lẽ người cao lớn, liên thịt căng cũng cân xứng thể trạng?
+
+Kiều nương khó chịu, Tiêu Kinh cũng không dễ.
+
+Trán hắn gân xanh nổi, mồ hôi dày lấp lánh, như sắp nhỏ xuống người nàng, sức lực cả thân dồn một chỗ, đè nén xuống thân dưới muốn xông tới.
+
+Kiều nương bỗng thấy ngực ướt — mồ hôi nóng của đàn ông rơi lên ngực trắng nõn, nóng rát.
+
+Mi mắt khẽ động, nàng mơ hồ thấy gương mặt căng cứng của Tiêu Kinh.
+
+“Chàng… chàng sao vậy…”
+
+“Nương tử… xin lỗi, ta thật không nhịn được nữa.” Giọng Tiêu Kinh trầm đặc, từng chữ như nghiến qua kẽ răng.
+
+Lời chưa dứt, Kiều nương còn mở mắt ngơ ngác, phía dưới đột ngột một cú thọc sâu — khoái cảm và đau xé lẫn nhau bắn lên tim.
+
+“A…”
+
+Hoa kinh hẹp bị thịt căng thô chọc bung gần như phẳng hết nếp mềm mại.
+
+Mềm nữ nhân và cứng nam nhân dính khít, không còn khe hở.
+
+Ngay cả dâm thủy vừa chảy, cũng như bị chặn ngược, bị thịt căng Tiêu Kinh lấp kín trong hoa huyệt, tích ở tâm huyệt, đầy gần tràn.
+
+“A… nhẹ thôi…”
+
+Tiếng rên như khóc của Kiều nương vừa mở miệng, đã tới một trận hậu thọc dữ như mưa bão, nhanh đến nỗi nàng gần như không kịp ra tiếng, chỉ nghe dưới thân hai người vang “phách phách phách”.
+
+Đây mới là Tiêu Kinh thật sự mất kiểm soát và áy náy.
+
+Lưng và bụng dưới hắn căng cứng, bắp thịt lần lần đập vào thân mềm Kiều nương; thịt căng cứng như gỗ cũng điên cuồng ra vào âm hộ.
+
+Mềm mại vốn đã đỏ, bị ma sát của thịt căng, đỏ như sắp nhỏ máu.
+
+Thế nhưng chảy ra là dâm dịch bị kéo theo lúc ra vào.
+
+Bám lên mông trắng Kiều nương, cũng bám lên lông đậm Tiêu Kinh, hai người ướt đẫm.
+
+“Nhẹ thôi… A Kinh… a… a… ta… ta…”
+
+Trong va chạm kịch liệt ấy, Kiều nương sớm quên đau trong thân, không biết lúc nào đau tan, chỉ thấy thân nhẹ bẫng như không trọng lượng, dưới va chạm thô bạo của đàn ông, thân cứ lay lay, như sắp bay.
+
+Nàng lay, đôi vú căng trước ngực cũng lay theo, thịt trắng và núm hồng lên xuống, trái phải, sóng liên miên, tròn căng nhô lên, nhìn mềm mại vô cùng.
+
+Tiêu Kinh nhìn, há miệng cắn lên.
+
+“A… hu hu… A Kinh… A Kinh…”
+
+Kiều nương lúc này ý thức rối hơn, không nói thành câu, chỉ như ám ảnh gọi tên Tiêu Kinh.
+
+“Nương tử, ta ở đây.”
+
+Tiêu Kinh nghe tiếng rên mịn màng ấy, lửa dục trong thân càng bùng.
+
+Nhả núm ra, liếm một cái, đầu lưỡi thô cứa qua cứa lại, lại ngậm vào, môi kẹp, miệng mút, lực tăng dần, như trẻ bú sữa.
+
+Mút xong bên trái, đổi sang bên phải.
+
+Lúc này Tiêu Kinh không chỉ hông đâm xuống như thú chưa no, tay còn nâng mông nàng, ấn mạnh vào eo mình.
+
+Thế này không còn giống hắn đâm âm hộ, mà như âm hộ nàng đang bao lấy thịt căng — vị khác hẳn.
+
+Tiêu Kinh tranh thủ nói thêm lời tục: “Nương tử, thịt căng của phu quân trong thân nàng, có sâu không? Tất cả là cho nàng, toàn bộ cho nàng.”
+
+Như để chứng minh, Tiêu Kinh lại ra sức, phách phách đâm vào âm hộ.
+
+“A…”
+
+Phút ấy Kiều nương thật sự tưởng quy đầu thô trên thịt căng sẽ chọc tới tử cung, chiếm trọn cả chỗ đó.
+
+“A… hu hu… quá sâu… A Kinh… Tiêu Kinh… phu quân… quá sâu…”
+
+Kiều nương run rẩy, toàn thân tê, tim cũng lay theo, rên liên hồi.
+
+Những âm thanh ấy, vào tai chính nàng, cũng như một đợt sóng nóng.
+
+Nàng sao lại phát ra tiếng như vậy, dâm đãng… buông thả…
+
+Thế mà Tiêu Kinh lại nói: “Nương tử… nàng gọi hay lắm, gọi thêm, gọi lớn hơn…”
+
+“Đồ… đồ khốn…”
+
+Ban ngày làm chuyện ấy chưa đủ, còn đòi hỏi quá đáng; vừa rồi bảo nhỏ tiếng cũng là hắn —
+
+“A —”
+
+Kiều nương không còn thời gian nghĩ, hơi lơ là một chút, Tiêu Kinh như thợ săn, bắt ngay, lập tức tăng lực, hung hăng đâm âm hộ nàng.
+
+“A… hu hu… A Kinh… chậm thôi…”
+
+“A… phu quân… ta không được… thật… không được…”
+
+“Hu hu… phu quân… đừng chạm chỗ đó… hu hu…”
+
+Một lúc, trong phòng ngoài nắng chiều rực rỡ, chỉ còn tiếng rên phóng đãng của Kiều nương, vừa nũng vừa mị, nghe đến rợn xương.
+
+---
+
+## Chương 102 Run rẩy bị thịt căng thô đâm tới lui… (3100 châu tăng thêm)
+
+Tiêu Kinh đâm lâu không dứt, lúc nhanh lúc chậm, sau khi thuộc hết phản ứng thân Kiều nương, thịt căng như rồng lộn nước, trong âm hộ nóng rực thông suốt.
+
+Kiều nương kêu to, hắn chỉ thúc nhẹ vài cái.
+
+Kiều nương kêu nhỏ, hắn lại đâm mạnh một phát, thậm chí đưa lông gốc thịt căng ép vào miệng âm hộ ướt đẫm của Kiều nương, ma sát dữ.
+
+Môi âm hộ run rẩy ngoài cửa, âm hạch nhô lên, bị ma sát như vậy khổ không tả, run lên từng đợt.
+
+Mỗi lần thế, Kiều nương lại kêu càng mị, giọng ướt ngọt, không ngờ giọng từng không nói được chữ nào.
+
+Tiêu Kinh ăn đôi vú trắng đến ướt đẫm, quanh núm thêm mấy vòng răng, rồi ngồi dậy hôn môi Kiều nương, mút lưỡi nhỏ, quấn, dụ vào miệng mình, đùa nghịch không ngừng.
+
+Thịt căng dưới thân chưa từng nghỉ.
+
+Rút ra, kéo theo mềm dính; đâm vào, quy đầu cong cọ nội thành, lúc ma sát lúc xoay, đâm Kiều nương kêu o o, phần lớn bị Tiêu Kinh nuốt vào miệng.
+
+Kiều nương không biết đã bao lâu, chỉ thấy dưới thân lúc nào cũng nóng rát, ướt nhớp, run rẩy bị thịt căng thô đâm tới lui, trong ngoài âm hộ lầy lội, tiếng nước vang không dứt.
+
+“A Kinh… van chàng… ta thật… thật chịu không nổi…”
+
+“Muốn ta bắn?”
+
+Hai người môi dính môi, thở dốc.
+
+“Ừ… dừng…” Kiều nương rên đến khản, trong rên nặng tiếng khóc, “Bắn… van… bắn ra…”
+
+“Nương tử, nói thêm chút, ta thích giọng nàng, vừa nũng vừa ngọt, phu quân thích nghe, nói thêm đi.”
+
+“Hu hu…” Kiều nương sắp khóc thật, vành mắt đỏ, nhưng để Tiêu Kinh mau bắn, đành đỏ mặt, thở hổn hển: “Phu quân, ta… ta thích… thích chàng…”
+
+Lời không cần dài, chỉ cần đúng chỗ.
+
+Tiêu Kinh đã đâm lâu, cũng sắp bắn; lời Kiều nương như chất xúc tác, đưa hắn lên đỉnh.
+
+Hắn nắm chặt mông nàng, ngón tay như muốn cắm vào lớp thịt trơn trượt.
+
+Thịt căng sung huyết lại đâm mạnh mấy chục cái, cái nào cũng nặng hơn, cuối cùng dừng sâu nhất trong âm hộ.
+
+“Nương tử, ta sắp tới, cùng nhau.”
+
+Giọng Tiêu Kinh khàn đầy dục.
+
+Tiếp theo là tinh dịch bắn vào âm hộ, nóng hổi dội lên thành thịt, khiến thân nàng lại co giật.
+
+Đúng như Tiêu Kinh nói, cùng lên đỉnh.
+
+Lúc ấy nàng gần như không rên nổi, toàn thân căng, thân trắng lay như lá trong gió, may nhờ hai cánh tay đàn ông ôm chặt mới không gục.
+
+Trong đầu nàng không còn gì ngoài khoái cảnh rực rỡ, thịt căng thô, sức đàn ông, nóng hổi… còn tinh dục trong người không ngừng trào.
+
+Tiêu Kinh đã thành cả thế giới của nàng.
+
+Hai người ôm nhau lặng, cảm nhận dư âm.
+
+Kiều nương vẫn thở hổn, mặt đỏ ửng và ẩm, tóc mai ướt mồ hôi dính má, trông mong manh dịu dàng.
+
+Tiêu Kinh cũng không kém, sợ thân nặng đè nàng, ôm nàng nghiêng người, thịt căng mềm cũng trượt ra khỏi âm hộ.
+
+“Nương tử, sướng không?” Hắn dán tai, hôn từng chỗ ẩm nóng.
+
+“Ư…” Kiều nương đỏ mặt tía tai, không muốn đáp câu vô lại ấy, nhắm mắt ừ khẽ như không nghe.
+
+Tiêu Kinh lần này không ép, chỉ lóe trong mắt một tia tinh quái.
+
+Rồi giọng hắn lại vang, khàn và hưng phấn.
+
+“Nương tử, ta muốn làm thêm lần nữa?”
+
+“… Á?” Kiều nương mở mắt đỏ hoe, còn mơ hồ, nhìn mặt Tiêu Kinh đẫm mồ hôi, gần như không tin tai mình.
+
+Chắc là… ảo thính!
+
+Tiêu Kinh cười, há miệng, trong mắt toàn… dục.
+
+Thịt căng dưới thân lại cứng, ép vào hai đùi nàng, ma sát nhẹ.
+
+Kiều nương lập tức cứng người, âm hộ vừa nới lỏng lại co thắt, thành thịt đỏ cử động, ép tinh còn sót ra ngoài.
+
+Chất trắng đục chảy chậm xuống…
+
+Đừng…
+
+Tiếng nghẹn ở cổ, thân phản ứng nhanh hơn — lùi khỏi lòng Tiêu Kinh, muốn lui hẳn chỗ an toàn.
+
+Tốc độ nàng sao bằng Tiêu Kinh.
+
+Mông vừa lùi một tấc, Tiêu Kinh đã ôm eo, kéo tới ba tấc.
+
+Thịt căng cứng bị ép giữa hai đùi, dính âm hộ đẫm tinh, ướt nhớp ma sát.
+
+“Tiêu Kinh, chàng dừng tay —” Kiều nương ra lệnh, nhưng giọng mềm nhũn, chẳng uy hiếp được ai.
+
+Tiêu Kinh lại cười, khàn khàn gọi “nương tử”, tay lại nắm vú nàng, vân vê, vặn núm.
+
+Toàn thân Kiều nương sau cao trào vẫn nhạy cảm.
+
+Chỉ một cái, dưới thân chợt mềm, âm hộ ồ ạt chảy gì đó, như buồn tiểu, thân càng căng.
+
+“A…” Tiếng rên lại nổi.
+
+Huống chi tay Tiêu Kinh vốn nắm mông không biết lúc nào chuyển lên âm hạch, trong lông ướt tìm đúng điểm nhỏ — một tay núm, một tay âm hạch, chơi không chán.
+
+“A Kinh, không được…”
+
+“Nương tử, nàng được mà.” Tiêu Kinh không cho phép nghi ngờ, khí trên người đột nhiên đặc lại.
+
+---
+
+## Chương 103 Lại nuốt ta vào rồi
+
+Kiều nương chưa kịp hiểu hắn định làm gì, thân đã bị bế lên, rồi bị lật — hai tay chống, hai đầu gối gập, quỳ trên giường.
+
+Trước là đầu giường, sau là Tiêu Kinh, eo lõm, mông trắng tròn tự nhiên nhô, bị Tiêu Kinh nắm vân vê.
+
+“A… A Kinh, đừng…”
+
+Kiều nương lập tức thấy không ổn, tư thế này như súc vật quỳ sấp, vừa xấu hổ vừa không thấy Tiêu Kinh, trong lòng trống trải khó chịu.
+
+Vậy thì Tiêu Kinh lấp đầy.
+
+Tiêu Kinh quỳ sau lưng nàng, luồn thịt căng cứng qua đùi đầy đặn, chạm âm hộ lầy lội, xuyên hoa kinh ướt, một nhát đâm thẳng vào.
+
+“Nương tử, nàng chặt quá… ta mới rút một lúc, sao lại chặt thế…” Tiêu Kinh mặt đầy dục, đã không kìm được mà đâm.
+
+“Đừng… đừng nữa… a… a…”
+
+Kiều nương vừa van vừa nức nở, lay người muốn từ chối.
+
+Nàng lay, thân trắng lay trong nắng, vú buông trước ngực cũng lắc trái phải, nhìn như mời gọi.
+
+“Nương tử, nàng tốt lắm… lại nuốt ta vào rồi…”
+
+“Không…” Đâu phải nàng muốn nuốt, rõ ràng hắn ép vào…
+
+“Nương tử, trong âm hộ nàng vừa ướt vừa nóng, thịt căng ta như ngâm suối nước nóng, sướng lắm…”
+
+“Hu hu…” Ngâm cũng toàn tinh chàng bắn, bắn một trận lớn, sao không nóng không ướt…
+
+Tiêu Kinh đâm càng dữ, ý thức Kiều nương vỡ vụn, hai tay gần không gánh nổi thân, còn đâu nghĩ được việc khác, dần mất hồn.
+
+Phía dưới, tinh Tiêu Kinh bắn trước như bị chày giã, một nửa chảy dọc đùi, một nửa bắn tung, tí tách nhỏ xuống chăn.
+
+Nhìn qua, như Kiều nương tè ra.
+
+Kiều nương run, từ ngực đến lưng cong, nổi một lớp hồng, trắng mịn mà mời gọi.
+
+Đặc biệt hai hốc eo trên mông, lõm sâu; Tiêu Kinh thấy thèm, cúi xuống liếm mấy miếng.
+
+Liếm liếm, đầu lưỡi tới tận khe hai bên mông.
+
+“A… A Kinh, đừng!”
+
+Kiều nương cảm giác ướt đó, mặt càng đỏ, xấu hổ, co mông lại.
+
+Mông co, âm hộ cũng co, kẹp thịt căng chặt hơn.
+
+“Nương tử, nàng hút ta chặt quá.” Tiêu Kinh được thú, toàn thân sảng khoái, như tìm ra mánh, ngón tay cứ lưởng lơ giữa hốc eo và khe mông.
+
+Mỗi lần Kiều nương lại run nhẹ, co một cái, âm hộ tự động mút thịt căng Tiêu Kinh, lần nào cũng mạnh hơn.
+
+Tiêu Kinh không tiếc lời khen, một câu nối một câu, miêu tả nàng hút thế nào, hút hắn sướng ra sao.
+
+Kiều nương nghe mặt tai nóng, muốn bịt miệng Tiêu Kinh, hoặc biến hắn thành câm.
+
+“Ngươi… im miệng…” Nàng lắc eo, nghiến răng, thở hổn hển mở miệng khó khăn, “A… hu hu…”
+
+“Ta không nói nữa. Vậy nương tử muốn nghe gì, ta nói nàng muốn nghe.”
+
+Tiêu Kinh cúi đầu, theo đường lõm sau lưng nàng hôn tới gáy, tay nắm vú trước ngực đang lắc, vân vê nhẹ nặng.
+
+“Ngươi… đừng làm loạn… mau… mau xong…” Mau kết thúc…
+
+“Ồ… hóa ra nương tử chê ta chưa đủ nhanh.”
+
+Theo lời ấy, Tiêu Kinh hông đâm mạnh thêm, phách phách, từng cái đập vào mông mềm.
+
+Lớp hồng nhạt cũng bị đập thành đỏ đậm, yêu dã.
+
+“Ngươi… a… A Kinh… phu quân… nhẹ… nhẹ thôi…”
+
+“Thế này? Nương tử thấy sao?”
+
+Thịt căng sâu trong âm hộ, rút một chút, lại đẩy vào một chút, ma sát nhẹ.
+
+Kiều nương lúc đầu thật sự thở được, nhưng chẳng bao lâu, ma sát ấy gợi ngứa từng đợt, khiến nàng không kìm được lay người.
+
+“A… a… a… A Kinh… A Kinh… hu hu… ngươi bắt nạt người…”
+
+Kiều nương òa khóc, nước mắt trong veo chảy má, chôn mặt vào gối, vừa ủy khuất vừa mong manh.
+
+Tiêu Kinh xót, nhưng thấy nàng thế, mắt đỏ ngầu, thịt căng trong người nàng lại căng thêm, lại đâm mạnh, như muốn đâm nàng dẹp xuống giường.
+
+“Nương tử, nàng sẽ thích.”
+
+“Hu hu… ư ư…”
+
+Kiều nương tức không thèm để ý, cúi đầu, ứ ứ như hồi còn không ra tiếng.
+
+Đang hăng say, bỗng có động tĩnh ngoài nhà — tiếng bước chân lại gần.
+
+“A Kinh, có người… a —”
+
+Kiều nương quên giận, căng thẳng nhìn cửa sổ.
+
+---
+
+## Chương 104 Lại muốn nhét vào âm hộ đang ngậm thịt căng
+
+Đó là một tràng bước chân — thực ra ngoài hàng rào, cách nhà một đoạn. Nhưng Kiều nương lúc này tim như treo cổ họng, mọi động tĩnh đều bị phóng đại, như tiếng ngay bên tai, như người ngoài ngay ngoài cửa sổ.
+
+Nếu người đó một tay, là có thể đẩy cửa sổ, thấy…
+
+Trong nhà cảnh loạn lạc ấy.
+
+Nàng quỳ sấp, trần truồng, mông nhô, eo lõm, đôi vú va đập, mày mắt nhuốm dục, má đỏ bừng gần như đối cửa sổ, không cần ngoảnh mắt cũng thấy.
+
+Huống chi sau lưng thịt căng còn trong người, âm hộ đỏ ướt chảy dịch, có dâm thủy nàng, có tinh hắn, xấu hổ không chịu nổi.
+
+A…
+
+“A…”
+
+Đó là tiếng thét trong lòng Kiều nương, cũng là tiếng kinh hô giữa môi, vừa kinh vừa sợ, vừa mị vừa yếu.
+
+“Ư…”
+
+Sau lưng cũng vang tiếng rên trầm đục của Tiêu Kinh.
+
+Tiêu Kinh không dừng đâm, còn sờ âm hạch phía trên âm hộ ướt, vân vê nhẹ: “Nương tử, nàng hút ta chặt quá, thả lỏng chút…”
+
+Âm hộ rất chặt, thịt căng to đi trong hoa kinh lầy khó khăn. Khó, nhưng… cũng sướng.
+
+Từng tấc da thịt trên thịt căng đều bị mút, với thành thịt không khe, mềm mại còn run nhanh hơn thường.
+
+Từng cái, tê dại chạy dọc sống lưng Tiêu Kinh.
+
+Âm ỉ gần bắn, lại lưu luyến không rời.
+
+Mọi khoái cảnh tăng vọt đều vì Kiều nương căng thẳng.
+
+Vừa nghe tiếng, Kiều nương toàn thân cứng, tay bấu chăn, ngón chân co cụm, âm hộ vốn đã bị đâm mềm cũng siết theo; nếu không có thịt căng to chặn, gần như khép lại chỉ còn một khe ngoài cùng.
+
+Thế là căng thẳng trộn với thân quen dục, thành vòng siết khiến Tiêu Kinh da đầu tê.
+
+Bị kích thích thế, Tiêu Kinh không những không dừng, còn hung hơn, thịt căng thô lần lần đâm sâu âm hộ Kiều nương.
+
+“A… hu hu… a a… dừng… đừng… dừng lại… A Kinh…”
+
+Kiều nương không kìm được kêu.
+
+Ngoài vẫn còn tiếng, sau là Tiêu Kinh như thú dữ; nàng kẹt giữa, ý thức lại không khỏi chìm trong dục.
+
+Còn chút tỉnh, nàng chống thân mềm, nghiêng người, đẩy người sau.
+
+Nàng khóc van: “A Kinh… dừng… dừng một chút… đợi… đợi… A Kinh… a a a a… phu quân…”
+
+Dừng hay đợi… với Kiều nương đều là thoát tạm.
+
+Tiêu Kinh đâm đến mồ hôi nhễ nhại, bắp thịt căng, sao dễ bị đẩy.
+
+Kiều nương không được ý, còn bị Tiêu Kinh nắm tay, kéo tới chỗ hai thân giao hợp.
+
+“Nương tử, dâm thủy trong âm hộ nàng càng lúc càng nhiều, hơn lúc nãy. Nàng không muốn dừng… muốn ta đâm mạnh phải không…”
+
+Lời chưa hết, sau lại vang phách phách va thịt, như vỗ tay, mông Kiều nương cũng rát.
+
+“Đừng… a a a… không phải… a a a… dừng… đừng nữa… phu quân… có người… đừng…”
+
+“Suỵ, đừng sợ, người đó không vào.”
+
+“Nhưng… cửa sổ… cửa sổ…”
+
+Giường họ quá gần cửa sổ, Kiều nương lo từ đầu là chuyện này, không ngờ thành thật.
+
+“Suỵ… nương tử, chỉ cần nàng không kêu, không ai phát hiện.”
+
+Tiêu Kinh miệng nói vậy, tay lại nắm ngón Kiều nương, theo âm hạch kéo xuống, chạm miệng âm hộ đã bị bung hết.
+
+Hắn không chỉ bắt ngón nàng sờ qua sờ lại, lại còn muốn nhét ngón vào âm hộ đang ngậm thịt căng, lần nữa bung cửa nhỏ.
+
+“A —”
+
+Kiều nương hiểu ý, đầu ngón toàn dịch ướt và da nóng, toàn thân run, eo nhũn, hai chân run, hết sức, mềm oặt gục xuống chăn.
+
+“A…………”
+
+Lần này kêu cũng không ra, má nóng chôn gối, tiếng ù trong cổ.
+
+Tiêu Kinh cũng theo thân nàng đè xuống, thân hình to lớn phủ kín Kiều nương, che kín mít, chỉ mái tóc đen xõa như thác trên vai hắn.
+
+Đổi tư thế, không ảnh hưởng Tiêu Kinh chiếm hữu và ra vào điên cuồng.
+
+Thịt căng trong âm hộ nóng đâm càng thuận.
+
+Ngoài trời, bước chân càng lớn, càng gần, thật sự đi về phía họ.
+
+“Tiêu Kinh, Tiêu Kinh, Tiêu Kinh, nhà có không?”
+
+---
+
+## Chương 105 Từng tấc mềm đều run
+
+“Đừng gọi nữa, không thấy cửa nhà đóng sao, chắc không có người.”
+
+“Tiêu Kinh nãy mới từ trấn về, mới được bao lâu, không ở nhà thì ở đâu? Nàng mang thai, đừng phơi nắng, ra gốc cây. Ta vào trong nhìn một cái.”
+
+Dám vào sân Tiêu Kinh, cũng chỉ Lê Viễn với Song Nương.
+
+Giọng quen khiến Kiều nương không khỏi hiện lên hai khuôn mặt trong đầu, như thật nhìn thấy mình.
+
+Huống chi Lê Viễn còn nói, vào trong… nhìn một cái…
+
+“Hu hu… A Kinh… a a a… phu quân… làm sao…” Kiều nương rào tâm lý cuối cũng sụp, òa khóc, nước mắt chảy dài.
+
+“Nương tử, sao lại chặt thế? Thật sự sướng vậy sao?” Tiêu Kinh đáp lơ đi, như chẳng màng chuyện sắp xảy ra.
+
+“Ngươi… a a a… đừng… đừng làm… Lê… Lê…”
+
+“Nương tử, trên giường đừng gọi tên đàn ông khác.” Da thịt Tiêu Kinh cứng như đá, đâm không ngừng.
+
+“A… a a…”
+
+Kiều nương triệt để không nói được gì ngoài rên.
+
+“Suỵ, nhẹ thôi, không chừng thật bị người ta nghe thấy.” Tiêu Kinh cúi người, cong lưng, mắt đen lóe thú tính, cũng lóe tinh ranh.
+
+Đúng lúc đó, ngoài kẽo kẹt — cổng hàng rào bị đẩy.
+
+“A… ư ư…”
+
+Kiều nương xấu hổ đến thân đỏ bừng, cắn gối bịt hết rên, chỉ còn hơi thở nặng lên xuống.
+
+Tim nàng treo trên thịt căng đập vào tâm huyệt, cũng treo trên bước chân ngoài kia.
+
+Từng bước, Lê Viễn càng gần.
+
+Hô hô… hô hô… tiếng thở Kiều nương gần như cùng nhịp.
+
+Phách phách… phách phách… khoái cảnh trong âm hộ siết chặt lan tràn, từng tấc mềm đều run.
+
+Càng thế, Kiều nương càng co giật dữ.
+
+Nàng… không được… thật… không được…
+
+Hai mắt lệ lấp lánh, ánh sáng ngũ sắc giao nhau, rồi khoảnh khắc sau hóa trắng xóa.
+
+“Nương tử, cùng nhau…”
+
+Khoảnh khắc cuối nàng không nghe ngoài nữa, không cảm thân, chỉ còn tiếng gọi trầm của Tiêu Kinh vang mãi bên tai.
+
+Trước mắt Tiêu Kinh cũng trắng xóa, hông vẫn căng, lỗ nhỏ trên thịt căng theo co thắt mà nhả, chất dính nóng phun phụt, vẫn bắn sâu nhất trong âm hộ Kiều nương.
+
+Dù lần thứ hai, lượng đàn ông vẫn lớn, từng cục, quá trình bắn kéo dài.
+
+Dài đến mức Kiều nương không biết giữa chừng có gì, đã chuẩn bị mất mặt, lại mơ hồ nghe giọng Lê Viễn.
+
+Hắn lẩm bẩm: “Thôi, cũng không quan trọng lắm, để lần sau nói.”
+
+Rồi quay lại với Song Nương xa xa: “Song Nương, hay về đi, lần sau gặp Tiêu Kinh rồi nói.”
+
+“Đã bảo không nhà đừng tùy tiện vào nhà người, mau đi, cùng một thôn, đầu làng cuối làng, đâu phải thiên đầu tận.”
+
+“Nương tử nói đúng, gặp nhau nhiều, không chừng tối Tiêu Kinh lại tới nhà ta lấy thuốc.” Lê Viễn cười đầy ẩn ý, nhanh chân tới bên Song Nương, dìu tay nàng.
+
+“Sao ngươi không nói hay chút, Tiêu Kinh với Kiều nương đều khỏe, tìm ngươi lấy thuốc làm gì?”
+
+“Nương tử dạy phải, ta nói lỡ. Họ khỏe lắm, đâu cần ta.” Lê Viễn cọ má Song Nương, gần bốn mươi mà như trẻ làm nũng: “Nương tử, ta nói vậy có dễ nghe hơn không.”
+
+Song Nương bị chọc cười: “Được rồi đừng lãng phí thời gian. Nãy ngươi không phải khát, mau về ta pha trà.”
+
+“Nương tử, ta chỉ nói một câu, nàng nhớ mãi…”
+
+Hai người lúc nào cũng tình tứ.
+
+Tiếng xa dần.
+
+Hô hô… hô hô…
+
+Trong nhà cửa đóng kín, chiều thu như hè oi.
+
+Không khí vẫn nóng bỏng, trên giường hai người mồ hôi đầm, nóng đỏ khắp người.
+
+Tiêu Kinh xả hai lần, thảnh thơi, nhẹ nhàng rút thịt căng khỏi người nàng, cùng chảy ra còn tinh vừa bắn, uốn xuống.
+
+Da đỏ, chất trắng, âm hộ đỏ… như bức họa đẹp nhất, khí dâm cũng không che được sự thích của Tiêu Kinh trước cảnh ấy.
+
+Nhưng để dục không bùng lần nữa, sau một hơi thở sâu, hắn thu mắt, nhẹ buông người trong lòng.
+
+Kiều nương lúc cao trào còn chút tỉnh, nghe Lê Viễn đi rồi như gỡ nốt sợi dây cuối, ý mờ, thân mệt, chìm vào bóng tối, ngủ say.
+
+Dù ngủ, má vẫn đỏ ửng, mồ hôi li ti nhấp nháy trán.
+
+Tiêu Kinh xuống giường, vuốt má ướt, hôn nhẹ lên vết sẹo trán nàng.
+
+——
+
+Ngươi khoe có thai, ta cho ngươi nghe tiếng giường. Đồ ngốc tranh nhau.
+
+---
+
+## Chương 106 Bôi thuốc bằng thịt căng…
+
+Kiều nương ngủ mơ màng, lờ mờ vẫn có cảm giác, vô thức dựa vào Tiêu Kinh, miệng vẫn lẩm: “Đừng… dừng… có người…”
+
+Tiêu Kinh nghe, mặt thô mà cười rạng rỡ.
+
+Bớt nặng, bớt trầm, thêm chút khí “thiếu niên” không hợp tuổi.
+
+Nay hắn cũng tuổi trẻ, chỉ từ nhỏ trải qua nhiều, lại lăn lộn doanh trại mười mấy năm, không chỉ “già trước tuổi” là đủ nói.
+
+Đời Tiêu Kinh chưa từng thật sự thả lỏng, cũng chưa từng phóng túng tuổi trẻ.
+
+Chỉ lúc này đối Kiều nương, hắn cởi hết gông, chỉ là một phu quân bình thường.
+
+Kiều nương ngủ tới tối.
+
+Tỉnh dậy, Tiêu Kinh đã chuẩn bị cơm tối, cũng đun nước tắm.
+
+“Hừ.”
+
+Kiều nương tỉnh là mím môi không nói, phù phù thở, không thèm để ý, tuyệt đối không ra một âm, như đang lạnh nhạt.
+
+Tiêu Kinh biết hôm nay làm quá, nhưng để Lê Viễn lại gần là có chắc Lê Viễn không đẩy cửa, không nhìn thấy Kiều nương đầy dục — hắn chỉ muốn phản ứng đáng yêu xấu hổ của nàng.
+
+Trước ngọt rồi, giờ phải chịu chút đắng.
+
+Nói là đánh là yêu, vẻ giận hờn của Kiều với Tiêu Kinh chẳng là gánh nặng, ngược lại như trò nhỏ.
+
+Có lẽ mệt thật, cơm tối Kiều ăn hơn thường một phần ba, lại ngâm nước nóng thư giãn thân mỏi.
+
+Nhờ Tiêu Kinh chu đáo, Kiều cũng xả giận trong lòng.
+
+Khi tắm xong thảnh thơi về phòng, thấy Tiêu Kinh ngồi mé giường đợi.
+
+Trong tay hắn cầm lọ thuốc quen mắt.
+
+Kiều thấy vậy mặt càng đỏ, muốn lùi, sau lưng là đêm đen mịt mù, đành tê da đầu bước tới gần.
+
+Nàng nhìn thẳng, giả như không thấy lọ trong tay hắn.
+
+Tới khi tắt đèn, Kiều hồi hộp cả buổi mà Tiêu Kinh không nhắc.
+
+Kiều nhắm mắt định ngủ, vừa thở phào, chuyện phải đến vẫn đến.
+
+“Nương tử, hôm nay ta đâm nàng lâu thế, âm hộ chắc đỏ sưng rồi, đừng quên bôi thuốc.” Tiêu Kinh nói.
+
+Tối đen nhánh, may che được má đỏ bừng và mắt lấp láy.
+
+Nàng nhắm mắm giả ngủ, không tiếng, như lúc cao trào ngất đi.
+
+“Nương tử?”
+
+“Nương tử?”
+
+“Nương tử, nếu nàng còn không lên tiếng, ta sẽ bôi giúp nàng.”
+
+Mi mắt Kiều giật giật; bôi thuốc đại khái là ngón hắn thọc vài cái, quét một vòng thuốc mát, so với đâm lớn thì ngắn, nhanh, nhẹ, không tốn sức… coi như bỏ qua được.
+
+Cân nhắc một hồi, Kiều tiếp tục giả ngủ.
+
+Dù bị cởi quần trong, tách hai đùi, nàng vẫn không nhúc nhích.
+
+Thế nhưng Kiều vẫn xem thường sự gian xảo đàn ông — nàng đợi không phải ngón thô của Tiêu Kinh, mà thịt căng thô dài, bất chợt ép miệng âm hộ đỏ nóng.
+
+Một nhát đâm thẳng, thô ráp, sâu vào.
+
+“A —” Kiều nương không phòng, rên lên — vừa tê vừa giận, đấm ngực Tiêu Kinh: “Ngươi… ngươi điên à. náo cả buổi chiều chưa đủ sao?”
+
+“Nương tử, ta còn cứng.” Tiêu Kinh không biết ngượng, gã thôn dã mà như kẻ vô sỉ.
+
+Đã chọc vào rồi, Tiêu Kinh đương nhiên không buông, lập tức ra vào.
+
+Chỉ lần này không còn hung hăng, ngược lại chậm, nhẹ… đâm rút.
+
+Chỗ hai người dính nhau ngoài nóng còn có cảm giác lạ mát.
+
+“Đó… là… cái gì?” Kiều nương thở dốc.
+
+“Nương tử, là thuốc mỡ.” Tiêu Kinh giải thích: “Thịt căng ta dài thô thế, trong âm hộ nàng chắc cũng trầy, ngón quá ngắn, không bôi tới tận đáy, nên ta nghĩ cách.”
+
+Tức là phết đầy thuốc lên thịt căng cương, rồi chọc vào âm hộ.
+
+Vừa bôi tận đáy, vừa nhờ thân thịt to lấp kín, không sót góc nào.
+
+Tiêu Kinh mặt đắc ý.
+
+Kiều nương trong lòng bốc giận: “Ngươi… ngươi rõ ràng là cớ… ta… ta… đau…”
+
+Nàng ủy khuất, người vốn cứng đầu, lại chực trào lệ.
+
+“Nương tử, đừng giận. Ta thật chỉ bôi thuốc.”
+
+Tiêu Kinh siết hàm, khó khăn nói câu đó, còn đâm vẫn giữ nhịp chậm, không giống muốn đâm thật.
+
+Âm hộ Kiều nương đau cũng đau — bị đâm mấy canh giờ, chỗ mỏng manh sao chịu nổi. Nhưng sướng cũng sướng.
+
+Khóc lóc mà vẫn sướng, đại khái vậy.
+
+Thân Kiều đang tê, tận hưởng ôn nhu hiếm có, lại thấy thịt căng Tiêu Kinh rút khỏi âm hộ không vào lại, ngoài cửa chỉ còn hơi nóng.
+
+Hắn… chẳng lẽ thật chỉ bôi thuốc, không… không đâm nàng nữa?
+
+---
+
+## Chương 107 Nàng thật sự bị đâm quá nặng…
+
+Trong âm hộ ướt, dù có thuốc mát làm trơn, vẫn không che được cơn rát, siết khô. Một ngày này nàng thật sự bị đâm quá nặng, không chịu nổi đâm siết thế nữa, kẻo rách cả ra máu.
+
+Nhưng không còn thịt căng to nóng, trong âm hộ hay trong thân Kiều nương, lại có thứ lưu luyến khó tả — quen rồi thì không nỡ cắt.
+
+Giờ mất, chỉ còn trống và bực.
+
+Kiều nương nhận ra, trong mắt lại mơ hồ hoảng hốt.
+
+Trong vũng dục này, chìm không ra không chỉ Tiêu Kinh — nàng cũng vậy.
+
+“A Kinh…”
+
+Kiều nương toàn thân nóng, không kìm được gọi, cánh tay mềm ôm cổ Tiêu Kinh, lực mạnh, nhưng kéo hắn về phía ngực mình.
+
+Không còn dính sát thân thể, nếu ôm chặt hơn cũng là an ủi.
+
+Tiêu Kinh nghe tiếng ngẩng lên, mắt đen lấp lánh như sao, nhìn má Kiều nương lại ướt mồ hôi.
+
+Cúi xuống, từng tấc hôn.
+
+Từ nhăn giữa mày, mồ hôi sống mũi, tới môi đỏ hé — mềm, kiềm chế ma sát.
+
+Lưỡi sâu vào, lại vội rút.
+
+Tiêu Kinh không như thường dính mút, chỉ nếm sơ vị ngọt, dán môi Kiều nương, khàn giọng: “Nương tử, thật chỉ bôi thuốc…”
+
+Hắn thở dốc lặp lại.
+
+Lần này không dừng ở “thôi”, còn nửa sau.
+
+“… Ta chỉ cọ ngoài, tuyệt đối không vào.”
+
+Kiều nương trong nóng thân và nụ hôn, ngực cứ đập, tai nghe từng chữ, đầu óc không theo kịp Tiêu Kinh.
+
+Chưa hiểu ý, dưới thân đã có ma sát nhanh.
+
+Tiêu Kinh như lúc đâm, điên cuồng vung hông, thịt căng thô cứ thúc vào người Kiều nương.
+
+Chỉ lần này không phải chọc sâu vào thân, mà dùng thân thịt to ma sát môi âm hộ ngoài.
+
+Tiêu Kinh sớm có chủ ý, biết thịt căng dài, khe nhỏ không đủ cọ từ quy đầu tới gốc, nên từ đầu đã kẹp chặt hai đùi Kiều nương.
+
+Quy đầu cong cọ qua môi, vẫn đâm thẳng xuống, cuối cùng kẹp giữa hai đùi khép.
+
+Toàn thân Kiều nương trắng mịn, háng chưa từng phơi nắng càng mềm.
+
+Không bằng trong âm hộ ướt nóng, nhưng đâm nhiều, dâm thủy kéo ra, tích ở đó cũng ướt.
+
+Còn nóng… nằm trong tay Tiêu Kinh.
+
+Đâm càng nhanh càng nóng.
+
+Kiều nương không chịu nổi mà rên, hắn lại hơi chậm lại.
+
+“A… hu hu… nhẹ… sắp… sắp cháy…”
+
+Dù âm hộ không bị xuyên, sóng dục trong thân cũng không kém, vẫn cuồn cuộn.
+
+Tiêu Kinh đã theo cổ thon hôn xuống ngực, miệng lưỡi nuốt thịt mềm vú, núm cứng cắn giữa răng.
+
+“Nương tử, nàng muốn dưới nhẹ…” Hắn đâm mạnh hai cái hông, lại siết răng cắn núm: “Hay trên nhẹ?”
+
+“A —”
+
+Kiều nương rên mịn, dưới vừa tê vừa nhũn, ngực mềm rụng, núm cứng như sỏi, đủ thứ cảm giác lẫn lộn, không phân được chỗ mềm chỗ cứng.
+
+Tiêu Kinh nhếch môi, không nghe đáp, vẫn ác ý không dừng sờ mó.
+
+“A a a… đều… đều nhẹ… phu quân… hu hu… van chàng…”
+
+Nghe tiếng “phu quân” mịn thế, Tiêu Kinh không những không dừng, mắt càng đỏ.
+
+Hắn nói: “Nương tử, ta mà nhẹ nữa, e cả đêm không bắn được, chỉ còn cách chọc lại vào âm hộ, để bị mút mạnh vài cái.”
+
+“Ư ư… a a…”
+
+Kiều nương rên không dứt, mơ màng thật sự thấy Tiêu Kinh nhếch mông, nâng thịt căng, quy đầu ép hai môi nhỏ đỏ, lại thăm dò vào hoa kinh.
+
+Đúng là định đâm sâu, đâm tới lui.
+
+---
+
+## Chương 108 Sức khỏe đáng sợ… (3300 châu tăng thêm)
+
+“A — đừng —”
+
+Kiều nương biết thân không chịu nổi, lắc đầu yếu ớt, tóc đen bay.
+
+Mắt lấp lệ, cuối cùng bất lực nói:
+
+“Phu quân… tùy chàng đâm… chỉ cần không vào… tùy chàng…”
+
+Nặng nhẹ đều tùy…
+
+Kiều nương nhắm mắt, vừa giận vừa xấu hổ, vừa… nuông chiều, giao hết quyết định cho Tiêu Kinh.
+
+Tiêu Kinh đâu dễ.
+
+Nhìn ung dung, dục đâu phải lý trí kềm hết được — vốn định làm bộ, nhưng quy đầu nhạy bị miệng nhỏ ướt nóng mút chặt, bắp thịt căng cứng, thật sự muốn cúi người đâm một phát.
+
+May trước khi dây thần đứt, Kiều nương đầu hàng trước, hắn cũng rút ra, thở dài nhẹ nhõm.
+
+Thân sau như tên bắn, hai tay nâng mông Kiều nương, thịt căng cứng ma sát môi âm hộ ngoài, lại đâm mạnh vào khe đùi.
+
+Như muốn từ khe đùi chặt mà đâm thủng ra sau tới khe mông.
+
+Trận này mới chỉ mở màn, sau… còn dài.
+
+Không biết qua bao lâu, đêm vẫn đen.
+
+Kiều nương mơ hồ nhớ Tiêu Kinh bắn thêm hai lần, tinh dính không vào trong nhưng đầy trên âm hộ, như quét hồ dán bịt miệng huyệt.
+
+Nàng cũng lên đỉnh hai lần, dâm trào như tiểu, rửa tinh trên âm hộ, tí tách chảy.
+
+Sức Kiều nương bị vắt kiệt… cuối cùng há miệng muốn rên mà cổ khô, không ra tiếng, chỉ thở hơi nóng.
+
+May… giờ… cuối cùng… xong…
+
+Kiều nương mệt đến ngón cũng không nhúc, Tiêu Kinh như không có chuyện gì, dọn chăn, đun nước lau người, gọn gàng.
+
+Người sống núi sâu ba ngày ba đêm, sức đáng sợ.
+
+Kiều nương cắn môi, nhìn lưng hắn, trong lòng hơi hoảng — gã đàn ông như hổ đói, sau này biết thế nào.
+
+Chớp mắt Tiêu Kinh quay lại, bưng ấm nước sôi pha nước lạnh, thêm mật ong, pha một chén mật đưa tới môi Kiều nương.
+
+“Khát rồi, uống chút.”
+
+Kiều nương kêu lâu, lại chảy nước nhiều, cổ và thân đều khô, không làm nũng với Tiêu Kinh, ừng ực uống ba chén mới dịu.
+
+Tiêu Kinh để ấm gần đầu giường cho nửa đêm uống, cởi giày lên giường.
+
+Náo cả ngày, tưởng sắp xong.
+
+Kiều nương lại không ngủ được, nghĩ ngợi, nắm ngón Tiêu Kinh, bỗng hỏi: “Chàng có cố ý không?”
+
+“Cố ý gì?”
+
+“Chàng…”
+
+Kiều nương nhíu mày, không biết nói sao — làm rồi mà nói ra lại khó.
+
+Nghĩ một lúc, giận dỗi: “Hừ, chàng chính là cố ý.”
+
+“Nương tử nói vậy thì vậy.” Tiêu Kinh cười sau lưng nàng, mắt sâu lấp lánh. “Nương tử giận rồi?”
+
+“Hừ.”
+
+“Ngày mai ta mua kẹo hồ lô về tạ tội được không?”
+
+“… Ta muốn ba xiên.”
+
+“Được, ba thì ba.”
+
+Chuyện coi như qua, Tiêu Kinh trong lòng rõ — hắn cố ý.
+
+Chuyện bôi thuốc vốn không cần náo thế.
+
+Nhưng không “bôi bằng thịt căng” trước, Kiều nương sao sau đó lại ngoan “cọ ngoài”.
+
+Nhìn như tiến một bước lùi một bước về điểm cũ — điểm cũ ấy chính là chỗ hắn muốn.
+
+Sáng hôm sau Kiều nương nhịn đau háng mà dậy, liếc thân dưới — không chỉ âm hộ đỏ, hai đùi trong cũng đỏ rực, như bị tát.
+
+Xuống giường, chân mềm gần đứng không vững.
+
+Đi một bước, âm hộ rát, háng sát quần trong cũng đau.
+
+Chuyện này… không phải ba xiên kẹo hồ lô là xong.
+
+Tiêu Kinh về, thấy sắc mặt nàng không ổn, vội lấy kẹo hồ lô đỏ lòm ra tạ tội, cũng không cười được nàng.
+
+Kiều nương để lại một xiên, gói hai xiên, xách thêm ít thịt xông làm trước, bộ dạng chuẩn bị ra ngoài.
+
+Tiêu Kinh vội: “Nương tử, nàng đi đâu?”
+
+---
+
+## Chương 109
+
+Kiều nương lúc này đã ra sân, quay người nhìn Tiêu Kinh đứng dưới mái hiên, không trả lời đi đâu, chỉ trừng đôi mắt hạnh, nói với hắn:
+
+“Không được theo ta, ta đi một lát rồi về.”
+
+Giọng mang vẻ sai khiến kiêu kỳ.
+
+Tiêu Kinh không giận, đứng yên nhìn bóng nàng xa, cười không tiếng.
+
+Trong lòng hắn nghĩ: nếu không gia đạo sa sút, nàng lưu lạc tới thôn nghèo hẻo lánh này, e ra nàng vốn là tiểu thư kiêu ngạo xinh đẹp như vậy.
+
+Việc đã xảy ra không đổi được.
+
+Nhưng giờ còn thấy Kiều nương như thế, là đại hạnh.
+
+Huống chi… nàng không nói, chẳng lẽ hắn không biết nàng đi đâu?
+
+Trong thôn lạ, người Kiều nương quen cũng chỉ có Song Nương — chẳng qua là nhà Lê Viễn đầu làng.
+
+Tiêu Kinh đoán được.
+
+Kiều nương cũng biết Tiêu Kinh đoán được.
+
+Hai người làm ẩn ý như vậy, cũng chỉ là chút thú trong ngày tháng yên tĩnh.
+
+Kiều nương tới nhà Lê Viễn, đúng như Song Nương từng nói: nhà đầu làng, cũng là nhà gạch ngói duy nhất, nổi bật giữa xung quanh.
+
+Song Nương đang phơi thuốc trong sân, không khí thoang thoảng mùi thuốc, không thấy Lê Viễn.
+
+Hai người chào nhau, vào nhà, Kiều nương nhìn quanh, hỏi:
+
+“Tướng công nàng không có nhà?”
+
+Song Nương rót trà cho Kiều nương, đáp:
+
+“Làng bên có lão gia ốm, mời A Viễn khám. Sáng trưa mới đi, chắc tối mới về.”
+
+Nghe Lê Viễn không có nhà, lại không về sớm, Kiều nương thở phào, nhẹ người.
+
+“Đây là chút đồ A Kinh mang từ trấn về. Ta nghe nàng có thai, chắc sẽ thích.”
+
+Kiều nương đưa thịt xông cho Song Nương trước, lại mở giấy dầu bọc kẹo hồ lô.
+
+Đỏ lòm, trong veo, từng quả kẹo hồ lô lộ ra.
+
+Song Nương nhìn, dưới lưỡi ứa nước miếng, nuốt một cái không hay.
+
+Nàng cười:
+
+“Nghe người ta nói có thai hay thích chua, trước không thấy, hôm nay thấy đồ nàng mang, ta mới thật thèm.”
+
+Song Nương không khách sáo, ngồi cạnh Kiều nương ăn kẹo hồ lô.
+
+Kiều nương tỉ mỉ, sớm nghĩ tới việc này nên mới bảo Tiêu Kinh mua dư; nhưng hôm nay tới đưa kẹo, không chỉ vì thế.
+
+“Ta nghe nói… chiều hôm qua các người tới tìm Tiêu Kinh?”
+
+Kiều nương nhìn chằm Song Nương, giọng cố nhẹ mà vẫn căng.
+
+“Ừ. Có qua một chuyện.”
+
+Song Nương ngậm kẹo, hơi líu lưỡi:
+
+“A Viễn có việc muốn nói với Tiêu Kinh, nhưng lúc đó các người không có nhà, bọn ta lại về. Không phải chuyện lớn — giờ ta có thai, A Viễn căng thẳng, sợ ta ở nhà một mình có chuyện. Chuyện bán thuốc ở trấn muốn nhờ Tiêu Kinh.”
+
+Nghe tới đây, nỗi lo trong lòng Kiều nương mới gỡ.
+
+Theo lời Song Nương, họ thật sự tưởng trong nhà không có người, cũng không thấy chuyện nàng với Tiêu Kinh làm.
+
+Thật… may quá…
+
+Kiều nương không khỏi thở dài một hơi.
+
+Song Nương bị chua táo làm nhăn mày, vẫn không nhả, cứ ăn.
+
+Nàng lại nói:
+
+“Kiều nương, mong nàng đừng phiền. Bọn ta không nhờ không trả — sau bán được tiền…”
+
+“Không sao.”
+
+Kiều nương cắt ngang:
+
+“A Kinh mỗi ngày đều vào trấn, chỉ tiện tay, chẳng thêm bao phiền, các người cứ tìm hắn.”
+
+“Có câu này ta yên tâm. Giờ Tiêu Kinh đã có gia đình, việc nhà đều giao cho nàng rồi chứ?”
+
+Song Nương hỏi nhẹ, mắt lại mang ý cười.
+
+“Ừ.”
+
+Kiều nương má hơi đỏ, gật đầu.
+
+“Tiêu Kinh là người tốt, sẽ một lòng một dạ với nàng. Với hắn, nàng khác hẳn người khác.”
+
+Song Nương lại nói, trong mắt có tình cảm đậm, muốn nói thêm rồi thôi.
+
+Chuyện hủy hôn, dù Tiêu Kinh không để trong lòng, Song Nương vẫn mang chút áy náy.
+
+May giờ bên Tiêu Kinh có người con gái tốt như vậy, nàng cũng yên phần nào.
+
+Khi xưa nàng với Tiêu Kinh, là lòng thương của hắn; còn với Kiều nương, là tình cảm.
+
+Song Nương thấy rõ sự khác, càng thấy duyên kỳ.
+
+Kiều nương lại nghĩ trước đó vì chuyện Song Nương mà ghen mấy lần, giờ bị Song Nương nhìn thế, má nóng, ngượng không yên.
+
+Nàng nhìn quanh, thấy sau lưng Song Nương không xa có giỏ, trong có kim chỉ vải.
+
+Song Nương theo mắt nàng, liếm vệt đường bên môi, hiếm khi ngượng:
+
+“Ta định may vài cái yếm cho con trong bụng, nhưng tay ta làm ruộng, vá quần áo được chứ may đồ cho trẻ, thêu thùa tinh xảo, ta không làm nổi.”
+
+---
+
+## Chương 110 (3400 châu tăng thêm)
+
+Kiều nương bước tới nhìn: trong giỏ là lụa đỏ, có vết kim lộn xộn.
+
+“Sang năm tuổi Hổ, ta định thêu một con hổ nhỏ, tiếc thành tứ bất tượng, lại phí vải đẹp.”
+
+Song Nương tiếc nuối nói.
+
+“Để ta thêu giúp nàng.”
+
+Kiều nương đề nghị.
+
+“Nàng… có phiền quá không?”
+
+“A Kinh hay tới lấy thuốc, cũng chưa trả tiền, coi như lòng ta, cũng là lòng cho đứa bé trong bụng nàng. Ở nhà ta cũng chẳng việc gì, làm cho qua ngày cũng tốt.”
+
+Qua lại vài câu, cuối cùng Kiều nương rời nhà Lê Viễn, tay xách giỏ nhỏ, mặt cười nhẹ nhõm.
+
+Tiêu Kinh tới tối trước khi ngủ mới thấy đồ Kiều nương mang về.
+
+Nàng ngồi dưới nến, một tay thêu, một tay kim, hơi cúi, kéo chỉ từng mũi.
+
+Tiêu Kinh sát bên ngồi xuống, nhìn mặt vải, mơ hồ thấy hình thú:
+
+“Nương tử, nàng thêu hổ à?”
+
+“Ừ.”
+
+“Sao lại thêu hổ lên yếm nàng?”
+
+Tiêu Kinh nhíu mày, trong lòng nghĩ đã có hắn “con hổ” ăn vú nàng còn chưa đủ, lại thêm một con — hắn không đồng ý.
+
+“Ai bảo là yếm của ta?”
+
+Kiều nương không vui, kim suýt đâm tay.
+
+“Không phải yếm nàng thì của ai? Chẳng lẽ… của ta…”
+
+“Là yếm con Song Nương…”
+
+Kiều nương kể sơ chuyện chiều.
+
+“Ồ.”
+
+Tiêu Kinh đáp trầm, mặt không lộ, chỉ nhắc đi nhắc lại nến hại mắt, bảo nàng đừng thêu nữa, mau lên giường nghỉ.
+
+Kiều nương đành gác đồ, nhưng trước khi lên giường, mắt sâu nhìn Tiêu Kinh.
+
+Nàng ngồi mé giường, nhíu mày, ngửa mặt, Tiêu Kinh đứng cạnh giường, cúi đầu, giữa mày mơ hồ.
+
+“Tiêu Kinh, có chuyện ta và chàng phải nói cho rõ.”
+
+Giọng Kiều nương vẫn mềm nhưng ánh mắt không kém khí thế Tiêu Kinh.
+
+“Nàng muốn nói gì?”
+
+Tiêu Kinh nghe nàng gọi hết tên, da đầu hơi tê.
+
+Kiều nương hít sâu:
+
+“Ta muốn ước pháp ba chương. Thứ nhất, không được làm ban ngày, ban ngày không được làm chuyện ấy. Thứ hai, không được quá độ, một đêm không được quá nhiều lần. Thứ ba…”
+
+Giọng nàng nghẹn, há miệng lâu không ra lời.
+
+“Thứ ba? Nương tử, ta nghe đây.”
+
+Tiêu Kinh nghe nàng mở đầu còn nhíu mày nặng, nghe tiếp lại bị má Kiều nương đỏ như đào thu hút.
+
+“Thứ ba, không được như lần trước dọa ta.”
+
+Kiều nương tức giận:
+
+“Lần này may Lê Viễn quay đầu đi, không thấy… nếu hắn không đổi ý… chẳng phải…”
+
+Nghĩ lại căng thẳng lúc đó, Kiều nương vừa xấu hổ vừa giận, giơ chân đá nhẹ ống quần Tiêu Kinh.
+
+Tiêu Kinh tức thì mày giãn, cười.
+
+“Còn cười! Chàng có biết ta căng thế nào không!”
+
+Kiều nương trừng mắt.
+
+“Ta biết, âm hộ nàng hút ta chặt thế nào, sao ta không biết.”
+
+Tiêu Kinh chưa lên giường đã nói lời tục thẳng mặt.
+
+Kiều nương càng nóng trong ngực, quay lưng chui vào chăn, không thèm nhìn hắn.
+
+Tiêu Kinh nhìn lưng nàng giận dỗi, vẫn cười, thổi nến, cởi áo, lên giường.
+
+Ôm mấy lần mới ôm được người cứng đầu vào lòng.
+
+Dán mũi vào da sau gáy, hít một hơi hương trên người nàng, mới nói:
+
+“Ước pháp ba chương, ba điều ta đều nhận — nương tử hết giận chưa?”
+
+Kiều nương nhắm mắt, giọng ù trong chăn:
+
+“Nói lại những gì chàng nhận.”
+
+Tiêu Kinh nói “được”.
+
+“Thứ nhất, không làm ban ngày.”
+
+Chỉ cần trời tối, muốn bao lâu cũng được…
+
+“Thứ hai, không quá độ, lực ai nấy giữ.”
+
+Lực của ai — hắn một đêm vẫn sung…
+
+“Thứ ba, không được làm bậy trước mặt người khác.”
+
+Không có trò đó, vẫn còn trò khác…
+
+Kiều nương đâu biết Tiêu Kinh trong lòng tính gì, nghe hắn nói rõ ràng, gật tha thứ chuyện hôm qua.
+
+Đợi Kiều nương hỏi xong, tới lượt Tiêu Kinh hỏi.
+
+“Nương tử chỉ ba chương thôi? Không còn điều kiện nào?”
+
+“… Ừ, hết rồi.”
+
+“Hôm nay bôi thuốc chưa?”
+
+“Bôi rồi, lúc tắm đều thoa.”
+
+“Trong âm hộ cũng thoa vào?”
+
+Tiêu Kinh hỏi tỉ mỉ, giọng đầy tiếc nuối.
+
+“Thoa rồi, trong ngoài đùi đều thoa.”
+
+Kiều nương tuyệt đối không cho hắn cớ.
+
+“Còn đau không?”
+
+“Sáng dậy hơi đau… giờ đã đỡ nhiều, không còn đau lắm…”
+
+“Vậy là tốt.”
+
+Trong tối, mắt Tiêu Kinh động đậy — khả năng hồi phục âm hộ Kiều nương còn hơn hắn nghĩ nhiều!
+
+---
+
+## Chương 111 Ba đêm liền…
+
+Lại… hết…
+
+Kiều nương nhìn mấy đêm liền nến trong đêm tự nhiên cháy cạn, nhíu mày sâu.
+
+Sáp nhỏ xuống, tim nến chỉ còn một đoạn, lửa yếu ớt lay lay, như sắp tắt.
+
+Đằng sau nàng đúng lúc vang giọng Tiêu Kinh:
+
+“Nến sắp hết rồi, nàng lên giường nghỉ đi.”
+
+Người nói đã nằm vào chăn trước, thân to nóng sưởi chăn, đợi nàng.
+
+Kiều nương đành buông thêu, gác khung kim — tay nàng rất khéo, hồi nhỏ mẫu thân mời thợ giỏi nhất kinh thành vào dạy, nàng cũng có tính, ngồi một hai canh không sao.
+
+Công tỉ mỉ, hoa cỏ dưới kim như sống.
+
+Lần này cũng vậy, trên yếm đỏ đã có nửa con hổ.
+
+Khéo thì khéo, chậm cũng chậm, rất tốn thời mắt.
+
+Nàng không còn là tiểu thư nhàn rỗi, ban ngày lo việc nhà, định tối ngồi thêm chút cho kịp tiến độ.
+
+Ai ngờ người này…
+
+Đúng lúc Kiều nương giận quay người, như một cơn gió, thổi tắt luôn tia lửa nhỏ — cả phòng chìm vào tối.
+
+Ánh sáng đổi đột ngột, đồng tử chưa kịp thích nghi, nhất thời không nhìn rõ.
+
+Kiều nương cứng đứng, quên cả giận Tiêu Kinh.
+
+Trong tối, mắt đen Tiêu Kinh sáng rực, một cái bế người lên giường, nhét chặt vào chăn ấm, rồi luồn dưới chăn cởi dây ngoài, ném áo ra ngoài.
+
+Thu sang sâu, trời càng lạnh.
+
+Đây là mùa đông đầu tiên Kiều nương lưu lạc: không có bình nước nóng, không lò than, không có người che gió trước sau, nàng dần quen.
+
+Nhưng thân vẫn sợ lạnh; Tiêu Kinh nhiệt độ cao, mặc ít cũng nóng.
+
+Đặc biệt đêm trời rét, như lò sưởi, nóng mà không bỏng.
+
+Nàng vừa giận hắn ham chuyện ấy, vừa không rời được hơi ấm ấy.
+
+Như lúc này — Kiều nương để Tiêu Kinh cởi đồ, lại bắt đầu “thanh toán”:
+
+“Tiêu Kinh, nói thật, có phải chàng làm không?”
+
+“Ta làm gì?”
+
+Tiêu Kinh không đáp, tay luồn dưới chăn mở dây quần Kiều nương.
+
+“Nến.”
+
+Kiều nương quen ánh sáng, mơ hồ thấy mặt Tiêu Kinh, ngẩng mắt trừng:
+
+“Hôm qua mới thay nến mới, mới dùng hai lần, cộng lại chưa tới một canh, sao hết nhanh thế. Trong nhà chỉ hai ta, không phải chàng thì còn ai?”
+
+“Vậy coi như ta đi.”
+
+Tiêu Kinh mở dây xong không cởi quần ngay, lại luồn sau lưng, nắm thịt mông, mân mê mềm trơn.
+
+“Nào là coi như! Rõ ràng là chàng!”
+
+Kiều nương càng tức, không để ý tay dưới chăn, cứ đòi lý:
+
+“Nến chàng cắt để đâu? Giấu đâu? Nến chẳng lẽ không phải tiền mua? Sao phung phí thế?”
+
+“Nến ta giấu góc bếp, mai đưa nàng xem. Giờ…”
+
+Tiêu Kinh hôn môi Kiều nương một cái:
+
+“Nương tử, trời tối rồi, nến cũng tắt rồi.”
+
+Là lúc làm chuyện kia!
+
+Thân Kiều nương chợt căng — mới để ý tay gã vốn nắm mông không biết lúc nào đã vào âm hộ, ngón còn đang đâm.
+
+“Ngươi… ngươi…”
+
+Kiều nương run giận.
+
+Từ khi ước pháp ba chương, Tiêu Kinh quả không làm chuyện khiến nàng “ngàn cân treo sợi tóc” nữa.
+
+Nhưng ba đêm rồi, hắn liên ba đêm!
+
+Mệt đến kiệt sức!
+
+Từ lúc lên giường, ma sát, quấn lấy, đâm rút… lúc như suối chảy chậm, lúc như sóng lớn — nhưng đều không dứt!
+
+Thậm chí Tiêu Kinh còn bày được mánh: vừa đâm mạnh cho nàng chảy nước không ngừng, vừa thoa thuốc — vừa trơn vừa dưỡng, vừa không làm nàng đau, một công ba việc.
+
+Lọ thuốc nhỏ e đã hết, không biết hắn lấy cớ gì xin Lê Viễn bao nhiêu, giấu kín, lúc nào cũng mang ra.
+
+Kiều nương từng may vì Lê Viễn không thấy cảnh chiều hôm đó, nhưng nghĩ lại — Lê Viễn có cần thấy đâu, chỉ cần thấy thuốc là biết hết.
+
+---
+
+## Chương 112 Mềm không được thì cứng… (3450 châu tăng thêm)
+
+Tiêu Kinh sức dồi dào, có thể từ nửa đêm trước đâm tới nửa đêm sau, chợp mắt một lát lại tinh thần săn núi.
+
+Kiều nương thì bị vắt kiệt — Tiêu Kinh ra ngoài nàng hơi tỉnh rồi lại ngủ, tới khi dậy gần như giờ ăn trưa.
+
+Nàng không biết nhà khác thế nào, nhưng chiều mới ra giặc sông, cứ thấy mấy bà nhìn mình như nhìn đàn bà lười.
+
+Ăn no ngủ kỹ.
+
+Cả Song Nương có thai cũng không như nàng.
+
+Kiều nương nghĩ mãi, quyết không để ngày tháng trôi trụy thế — nàng không chịu nổi, với Tiêu Kinh… e cũng không tốt.
+
+“Phu quân…”
+
+Nàng mở miệng mềm, giọng như tê vào xương.
+
+“Sao?”
+
+Tiêu Kinh thấy lạ, quả nâng mắt khỏi đôi vú tròn trước ngực.
+
+“Ta đau… trong đau…”
+
+Kiều nương nhíu mày, ra vẻ không chịu nổi:
+
+“Ta nghỉ mấy ngày, tối nay đừng làm nữa.”
+
+Nói rồi nàng khép đùi, muốn ép ngón tay Tiêu Kinh ra.
+
+Thế nhưng khép thế, âm hộ lại siết chặt hơn, ướt mà mút, lực còn mạnh hơn — trái ngược lời nói, thân thể như không muốn hắn rời.
+
+“Đau chỗ này?”
+
+Tiêu Kinh hỏi, đầu ngón ấn nhẹ thành.
+
+“A…”
+
+Nghe rên, Tiêu Kinh cười khẽ:
+
+“Nương tử, nếu đau sao nuốt trọn ba ngón ta được.”
+
+Không chỉ nuốt, còn để lại đầy tay dâm thủy, nội thành run từng tấc.
+
+Ba ngón…
+
+Kiều nương không hề nhận ra.
+
+Âm hộ nàng vốn chặt, thường Tiêu Kinh phải mở từng ngón. Sao mới đây đã một lúc ba ngón?
+
+Theo nghi hoặc, bụng phẳng căng, âm hộ cũng siết, như đang đếm ngón.
+
+Thô, căng, quả là… ba ngón!
+
+Nàng lại… không cần dạo đầu dài, nuối một lúc thứ to thế sao?
+
+Kiều nương không hiểu thân mình, vừa sợ vừa kinh.
+
+Tiêu Kinh hài lòng cực, ngón lại đưa sâu, gần hết đốt vẫn chưa chạm đáy hẹp — vẫn cần thịt căng dài hơn để đâm cho thấu.
+
+Dục như nước sôi, sủi bọt.
+
+Nóng, dữ.
+
+Tiêu Kinh hơi động hông, báo hiệu sắp xung trận.
+
+Kiều nương lập tức căng, trong lòng quyết: mềm không được thì cứng.
+
+Nàng nắm cổ tay Tiêu Kinh, không cho ngón đi sâu thêm.
+
+“Không được!”
+
+“Ừ?”
+
+Tiêu Kinh khàn đáp — sức nhỏ của nàng không giữ nổi hắn, nhưng hắn vẫn dừng, ngón ngâm trong ẩm nóng, lặng hưởng.
+
+“Thật không làm nữa. Ta không muốn mỗi ngày tới trưa mới dậy. Mai ta phải dậy sớm.”
+
+“Dậy sớm?”
+
+Tiêu Kinh lặp hai chữ, nhíu mày, mắt tối, vừa không hiểu vừa không vui.
+
+Kiều nương không nói rõ lý, nhưng lần này rất cứng:
+
+“Đúng, dậy sớm. Và ta mệt, muốn ngủ sớm. Chàng… chàng ra ngoài.”
+
+Cứng giằng co; Kiều nương nói dứt khoát, nhưng để tự kéo tay Tiêu Kinh ra, nàng vẫn không làm được.
+
+Hai người im một lát.
+
+Kiều nương gần như nghe tim mình đập.
+
+Tiêu Kinh im lặng rồi… bất ngờ gật.
+
+Hắn rút ngón ướt khỏi âm hộ, nói:
+
+“Nàng mệt thì ngủ sớm. Nhưng thịt căng ta còn cứng — giao cho nàng.”
+
+Kiều nương chưa hiểu “giao thế nào”, đã thấy Tiêu Kinh quẹt dâm trên ngón lên thịt căng cứng, nắm tay nàng đặt lên — mọi chuyện rõ mưỡn.
+
+Là thủ dâm cho hắn.
+
+So với bị đâm thật, đã là nhượng bộ lớn.
+
+“Ta gánh thì ta gánh.”
+
+Kiều nương nén hơi, nhận đổi chác, lòng bàn tay mềm nắm thịt vừa mềm vừa cứng, sục lên sục xuống.
+
+Nàng không phải chưa từng — hồi đầu Tiêu Kinh từng ép tay nàng ấn lên thịt căng, bắt nàng thuận theo, bắt nàng nhìn nhận.
+
+Nhưng giờ…
+
+Đàn ông vẫn gã đàn ông, thịt căng vẫn thịt căng, vẫn to dài — lòng bàn tay vẫn nóng ướt, nhưng đã khác xưa.
+
+---
+
+## Chương 113 (3500 châu tăng thêm)
+
+Kiều nương không còn cần ai ép — tay nàng chủ động nắm thịt căng Tiêu Kinh, còn tách đùi đón lấy ân ái; nàng xấu hổ giận dỗi, nhưng không thật giận.
+
+Đó là lý do mấy ngày nàng nửa đẩy nửa giữ, nuông Tiêu Kinh.
+
+Nàng nghĩ vậy, tay vẫn không dừng.
+
+Lòng bàn tay nắm chặt, từ gốc lông tới quy đầu tròn, từng nếp da đều vuốt kỹ, thậm chí chủ động đưa ngón nhẹ chạm mắt ngọc đang nhả nước.
+
+Ngón cảm thấy chất nhỏ phun ra — lạ lẫm mà thỏa mãn chưa từng có.
+
+Tốc độ sục càng lúc càng nhanh, không dừng được.
+
+Thịt căng giật dưới lòng bàn tay như nắm được tim và cảm giác của đàn ông.
+
+Kiều nương lúc này mới hiểu vì sao Tiêu Kinh đè nàng đâm lại kích động mất kiểm như vậy — đúng là chuyện khiến máu sôi.
+
+Cùng lúc, đổi khác không chỉ một người.
+
+Gã đàn ông từng lạnh lùng ít lời, bá đạo vô lại, từng đánh mông nàng — giờ trên giường lại dính như keo, không còn ép cứng, mà bóp đúng lúc nàng mềm lòng… còn cố tình cắt nến, làm trẻ con.
+
+Không rõ ai vì ai đổi — chỉ biết họ tìm được cách sống hợp nhau.
+
+“A… a…”
+
+Ý thức tan của Kiều nương bị cảm giác trước ngực kéo về.
+
+Tiêu Kinh giao thịt căng cho nàng, tay không rảnh — một tay vân mông đầy đặn, một tay nắm vú tròn, miệng ngậm núm, không chỉ nuốt mà còn chép chép, như muốn hút ra sữa.
+
+“A Kinh…”
+
+Kiều nương tê khắp thân, run nhẹ, khó nhọc ngửa tay vuốt má Tiêu Kinh.
+
+“Đau à?”
+
+Tiêu Kinh nhả núm đỏ, nói, hơi thổi lên núm, vừa nóng vừa ngứa.
+
+“A Kinh, ta với chàng cũng sẽ có con.”
+
+Kiều nương thở dốc nói.
+
+Tiêu Kinh lập tức cứng người, mặt có vẻ không đổi, nhưng máu trong người sôi — thịt căng trong tay nàng, chỉ vuốt nhẹ, mắt ngọc bất chợt bung, tinh nóng phun từng cục.
+
+Kiều nương không kịp trở tay — một phần dính chăn, phần lớn văng lên mu bàn tay nàng.
+
+Nóng, dính, chảy tí tách.
+
+Tiêu Kinh thoáng ngượng — không ngờ nhanh thế, đây là lần đầu.
+
+Nhưng giờ không phải lúc để ý — ngực hắn dồn dập, khó tin hỏi:
+
+“Kiều nương, nàng nói gì? Nói lại.”
+
+Kiều nương lần đầu thấy Tiêu Kinh mất thế như vậy, đôi mắt vốn vững lại như trẻ mong chờ, tim nàng vừa siết vừa mềm.
+
+“A Kinh, chàng không cần ghen Lê Viễn với Song Nương — ta với chàng cũng sẽ có con của riêng mình.”
+
+Kiều nương tỉ mứ, sao không biết Tiêu Kinh khát gia đình — cha mẹ em gái mất sớm, là nỗi đau đời hắn.
+
+Vì Song Nương có vài phần giống em gái, hắn còn giúp không đòi hồi báo.
+
+Hắn cao lớn như không gì làm gục, trong lòng cũng có chỗ mềm nhất.
+
+Giờ không cần Tiêu Kinh mở miệng, Kiều nương đã nói trước.
+
+“Thật… thật sao?”
+
+Tiêu Kinh nghe lần hai vẫn run.
+
+“Đương nhiên thật. Chỉ thân ta… không được khỏe.”
+
+Kiều nương nghĩ tới kinh nguyệt hỗn loạn trước đó:
+
+“Chàng đừng vội, để ta dưỡng kỹ.”
+
+Nghe tới đây Tiêu Kinh kích động vai run, muốn hóa cả tình thành dục cho nàng cảm nhận rõ.
+
+Nhưng… vừa mới giao dịch để nàng dậy sớm.
+
+Dậy sớm… dậy sớm… ái!
+
+Tiêu Kinh hối hận, thở dốc cúi vào hõm cổ Kiều nương, nhìn như chỉ vì thế.
+
+Nhưng hắn biết — còn để che đáy mắt đỏ và nước mắt sắp trào.
+
+Nhỏ đã không bảo vệ được cha mẹ em — giờ tuyệt đối không để ai làm tổn thương nương tử thêm một phần.
+
+Hai cánh tay siết chặt, ôm người trong lòng chặt hơn nữa.
+
+Kiều nương bị ôm đau cũng không kêu, chỉ mỉm cười nhạt.
+
+Nàng cảm được hắn cho mình trăm phần tốt — nàng cũng muốn trả trăm phần như vậy.
+
+---
+
+## Chương 114 Đây là suối nước nóng…
+
+Hôm ấy Kiều nương quả thật dậy sớm — sớm đến trời còn tối đen, chưa một tia sáng.
+
+Nàng ngủ ngon, nghe Tiêu Kinh dậy, mơ mơ tưởng hắn lại ra ngoài, cố mở mắt, ý còn lờ đờ nhưng lời dặn không thiếu:
+
+“Chàng cẩn thận, sớm đi sớm về, đừng bị thương.”
+
+Câu ấy nàng lần nào cũng nói.
+
+Người nói không chán, người nghe càng không chán.
+
+Chỉ lần này Tiêu Kinh dậy một mình không đi ngay, mà ôm cả Kiều nương ra khỏi chăn.
+
+“Chàng làm gì vậy?”
+
+Kiều nương ngáp hỏi.
+
+Nàng còn buồn ngủ, để Tiêu Kinh sắp đặt, để hắn mặc lại quần áo tối qua chính hắn cởi.
+
+“Hôm nay nàng đi với ta.”
+
+Tiêu Kinh chỉnh dây áo cẩn thận, mặc Kiều nương tề chỉnh.
+
+“Đi săn?”
+
+Kiều nương nghe, lúc đầu còn mơ, rồi mắt bừng sáng, lấp lánh vui.
+
+Trước nàng là tiểu thư, xa nhất chỉ tới chùa ngoại ô kinh thành, ra cửa toàn xe ngựa, cưỡi ngựa thế nào cũng không biết.
+
+Giờ theo Tiêu Kinh, ngày thường chỉ quanh thôn, ngoài một lần vào trấn chưa đi đâu thêm.
+
+Đề nghị của Tiêu Kinh khiến nàng như trẻ được đi chơi cùng cha mẹ.
+
+“Vào núi, nhưng không săn.”
+
+Tiêu Kinh mặc xong cho nàng, mở tủ lấy áo ngoài dày hơn, bọc kỹ.
+
+“Vậy đi làm gì?”
+
+“Tới nơi nàng sẽ biết.”
+
+Tiêu Kinh giữ mánh.
+
+Kiều nương định búi tóc, Tiêu Kinh nhận dây, buộc sơ, nói thế là được.
+
+“Thế sao được, gặp người thì sao.”
+
+Kiều nương thấy tóc xõa, thật không nghiêm.
+
+“Yên tâm, chỗ đó không có ai.”
+
+Tiêu Kinh đáp, nụ cười có chút ẩn ý.
+
+Chẳng lâu hai người sắp xong ra cửa, men đường núi sau nhà.
+
+Đường dài, dốc, chưa lên đã phải trèo, không đèn, chỉ nhờ ánh trăng mờ.
+
+Kiều nương thở hổn, mặc lớp lớp áo, nóng mồ hôi khắp người.
+
+“A Kinh, rốt cuộc đi đâu?”
+
+“Đừng vội, tới nơi sẽ biết.”
+
+Tiêu Kinh vẫn câu cũ, thấy nàng thở gấp, đi trước, quay lưng cúi xuống.
+
+“Lên đi, ta cõng nàng.”
+
+Kiều nương không chần chừ, vội bò lên, giao hết trọng lượng cho hắn.
+
+Lúc mới ra cửa chắc nàng không chịu cõng, nhưng quãng đường này nàng biết sức mình, còn kéo chân Tiêu Kinh.
+
+Chi bằng giao cho hắn — sức hắn dùng không hết.
+
+Tiêu Kinh cõng nàng, tốc độ nhanh hẳn, chẳng lâu tới nửa sườn núi, trời hơi hửng sáng.
+
+Kiều nương nhìn cảnh quanh, lá vàng rụng nhiều, phong cảnh càng hoang lạnh, trên cành và lá còn sương giá — hơi thở đã thành làn trắng, trời càng lạnh, mới hiểu sao nãy Tiêu Kinh bọc nàng kỹ.
+
+Tiêu Kinh vẫn leo.
+
+Kiều nương nhìn tứ phía, dù rừng hoang nàng cũng thấy mới.
+
+Vì lạ nên mong.
+
+Bỗng xa xa trên cành thấy một lớp trắng.
+
+Đó là… tuyết.
+
+“A Kinh, tuyết! Chỗ này lại có tuyết!”
+
+Kiều nương hớn hở, vỗ vai Tiêu Kinh.
+
+“Nàng thích không?”
+
+Tiêu Kinh nghe tiếng vui vẫn muốn nghe nàng nói thêm.
+
+“Thích. Ta lần đầu mùa này thấy tuyết.”
+
+Kiều nương đọc câu “nhân gian tứ nguyệt phương phi tận, núi chùa đào hoa thủy thịnh khai”, chưa từng thấy tận mắt.
+
+Giờ không phải mùa đào, nhưng dưới chân núi là thu sâu, trên núi đã phủ tuyết trắng, quả lạ mắt.
+
+Tiêu Kinh nói: “Hai hôm trước ta tới đã bắt đầu rơi.”
+
+“Vậy chàng mặc thu phục mãi, không lạnh sao?”
+
+“Ta không lạnh.”
+
+“Vải bông đặt mấy hôm nữa là xong, chàng hay hỏi thăm, biết đâu lấy sớm — ta nên may áo đông cho chàng. Đã tuyết rồi, sao không lạnh.”
+
+Kiều nương chợt thấy mình sơ suất, nhíu mày buồn.
+
+“Được, ta sẽ hỏi thường.”
+
+Hai người vừa đi vừa nói, chẳng mấy tới đỉnh — tuyết không chỉ trên cành mà cả đất cũng phủ dày.
+
+Trắng tinh, mới cứng, chưa một dấu chân.
+
+Bước chân Tiêu Kinh lên tuyết kẽo kẹt.
+
+Kiều nương cõng trên vai, ngoảnh lại.
+
+Sau lưng hai người chỉ một hàng dấu chân, nàng khẽ cười.
+
+“Nương tử, tới rồi.”
+
+Tiêu Kinh dừng trước một tảng đá lớn.
+
+Kiều nương tò mò nhìn — trên đá không phủ tuyết, giữa có một vũng nước.
+
+Mặt nước không đóng băng, còn khói trắng lượn lên.
+
+Đây là… suối nước nóng.
+
+---
+
+## Chương 115 Suối nước nóng… (3550 châu tăng thêm)
+
+“A Kinh, đây… suối nước nóng?”
+
+Kiều nương tận mắt thấy vẫn không tin, giọng run.
+
+“Đúng, suối nước nóng. Xuống đi.”
+
+“Xuống? Xuống gì?”
+
+“Nàng không muốn ngâm người sao?”
+
+Tiêu Kinh đặt Kiều nương chỗ không có tuyết, vừa nói vừa cởi dây áo nàng.
+
+Ngâm suối?!
+
+Kiều nương nhìn vũng nước sôi khói, vừa mơ ước vừa do dự, lẩm bẩm:
+
+“Ta chỉ thấy trong sách miêu tả suối, chưa thấy thật, chưa thử.”
+
+“Vậy hôm nay thử cho đã.”
+
+Tiêu Kinh đã quyết thay nàng, cởi áo ngoài trong, chỉ còn một lớp, hỏi: “Lạnh không?”
+
+“A? … Không, không lạnh.”
+
+Kiều nương còn mải suối mới.
+
+“Không lạnh là tốt.”
+
+Tiêu Kinh yên tâm buông tay, rồi ba hai cởi sạch, trần truồi trong gió, bước về phía suối.
+
+Mắt Kiều nương dính theo bước hắn — thân hình rắn chắc chìm dần trong nước.
+
+Nước trong nhưng hơi che tầm nhìn.
+
+Tiêu Kinh tìm chỗ trong suối, tựa lưng ngồi, vẫy Kiều nương:
+
+“Xuống nhớ cởi hết — ướt áo thì chỉ còn áo ngoài mà về.”
+
+Nước nóng quyến rũ thật.
+
+Nhưng lời Tiêu Kinh khiến Kiều nương do dự…
+
+Nàng nhìn suối, nhìn hắn, thấy ngay trong mắt hắn vẻ chờ sẵn.
+
+Hắn có thể cởi sạch nàng bỏ xuống — áo đã cởi nửa — nhưng không làm.
+
+Gã đàn ông này đang đợi nàng tự cởi, tự bước tới.
+
+Kiều nương má hơi đỏ, mím môi, do dự mãi, cuối cùng không thắng ham muốn ngâm suối, bỗng quay lưng.
+
+Rồi từng lớp cởi áo trong.
+
+Tiêu Kinh ngâm trong nước, mắt đen sáng, nhìn chằm bóng mảnh mai xa — từng màn gợi tình.
+
+Cổ áo lỏng, trượt theo vai cánh tay…
+
+Lưng trắng lộ, hai bên cong mềm, eo thon, giữa một đường lõm từ xương bướm xuống mông…
+
+Dây yếm đỏ gỡ sau lưng, bên hông lờ mờ thấy đầy đặn…
+
+Quần trong tuột tiếp, vì cúi người, mông càng nhô tròn như bánh bao hấp, mềm mập…
+
+Dưới là đùi thon dài, ngón chân nhỏ, đạp giày vớ…
+
+Kiều nương vòng tay sau, buộc tóc gọn, coi như xong.
+
+Ánh mắt nóng tham phía sau chưa từng tắt, còn càng đậm.
+
+Nàng đều cảm được — vì vậy càng không dám quay đầu.
+
+Nhưng cuối cùng… không thể lùi mà đi.
+
+Ngón chân trần cọ giày vớ, cuối cùng Kiều nương hít sâu, quay người —
+
+Nàng định một tay che ngực một tay che háng, che được phần nào hay phần đó, nhưng vừa quay, thấy mắt Tiêu Kinh, lại bỏ ý đó, trần truồi từng bước tới.
+
+Một, họ là vợ chồng, thân mật nhất đời — chỗ nào hắn chưa sờ chưa chạm, còn giấu làm gì.
+
+Hai, ánh mắt điên cuồng trong mắt đen hắn, chẳng phải tự hào của nàng sao?
+
+Tiêu Kinh lần đầu gặp nàng là lúc nàng thảm nhất bẩn nhất, hắn vẫn ôm chặt — hắn không phải kẻ chỉ ham sắc.
+
+Tới giờ hắn vẫn hôn vết sẹo trán nàng.
+
+Đủ để Kiều nương bớt ngại, thật lòng trần trụi trước gã.
+
+Theo bước chân, lông đen háng lay động, âm hộ hồng nổi giữa trắng.
+
+Tiêu Kinh mắt đỏ, nhìn từ trên xuống.
+
+Cuối cùng dừng ở mặt nước — ngón chân trắng, mắt cá chân, bắp chân… chìm dần, tới khi ngực và âm hộ khuất trong hơi nước, như hoa nở trong sương.
+
+Nóng… rất nóng…
+
+Nước nóng hơn Kiều nương tưởng — lúc đầu da đỏ vì nhiệt, nhưng quen dần, cả xương đều thả lỏng.
+
+Đáy suối gồ ghề, nàng bước cẩn thận, đá trơn, vẫn loạng choạng.
+
+“A — A Kinh!”
+
+Kiều nương kêu cứu.
+
+Dù trong nước Tiêu Kinh vẫn nhanh — sóng nước vang, hắn đã ôm Kiều nương vào lòng nóng, không để nàng ngã.
+
+---
+
+## Chương 116 Vào được rồi… (3600 châu tăng thêm)
+
+Kiều nương đã quen lòng Tiêu Kinh, tay tự ôm cổ hắn.
+
+Chỉ hôm nay ôm còn nóng hơn, còn quấn hơn, như nước và hơi, trong có ta ngoài có ngươi.
+
+Hai người dính sát, bốn mắt gặp nhau, không rời.
+
+Chuyện sau đó đến tự nhiên.
+
+Kiều nương cũng hiểu sao tối qua Tiêu Kinh dễ buông nàng — hắn đã có kế.
+
+Nàng không vạch trần.
+
+Cũng không nhắc ước pháp “ban ngày không được”.
+
+Trong ánh sáng ban mai mờ, Kiều nương tách đùi ngồi trên người Tiêu Kinh, vai trở xuống ngâm trong suối, vai trở lên tựa hắn, cổ quấn quýt, để hơi nóng lượn quanh.
+
+Dưới nước không yên.
+
+Ngón Tiêu Kinh trong âm hộ ra vào, cùng ra vào còn có nước suối nóng ùa vào.
+
+“Được rồi… A Kinh, được rồi… vào đi.”
+
+Kiều nương không hiểu sao lời vốn khó nói, giữa hoang sơn lại thốt ra dễ thế, chủ động van Tiêu Kinh vào, xả cơn trống từ tối qua.
+
+Tiêu Kinh nắm mông nàng, thịt căng nóng cứng đâm sâu âm hộ.
+
+Cùng thịt căng vào còn có nước suối nóng.
+
+Như lưới không khe, không chỉ quanh thân, tận sâu hoa kinh cũng không sót.
+
+“A… căng quá… A Kinh… đầy quá… nhiều quá…”
+
+Tiêu Kinh đâm mạnh, nước ùa vào thân, còn hơn cả tinh chàng bắn đầy — chưa từng căng thế.
+
+Thân va vào nhau, sóng nước, sương mù…
+
+Và mặt trời đỏ lừ lừ xa xa như trước mắt.
+
+Tiếng nước vang lâu mới tắt.
+
+—— Lời tác giả (gốc): Ban đầu đặt suối nước nóng là để viết đủ trò; nhưng đọc lại mấy chương gần đây toàn ân ái, từ ngữ hơi cạn, “thận” cũng mềm, nên đoạn giữa lướt qua. Ai muốn xem thêm có thể để lời sau khi truyện hoàn.
+
+Sau cùng Kiều nương mơ màng như ngất — nằm bên đá quanh suối, đầu nặng, quanh thân nước nóng, trong người thịt căng vẫn đâm.
+
+Nàng mềm đến không nhúc tay, khó mở mắt, nhìn xa tuyết trắng, ao ước sờ được cho tỉnh.
+
+Rời suối, Kiều nương nằm trên lưng Tiêu Kinh được cõng về.
+
+Về nhà nằm giường êm, mắt chưa mở đã ngủ say.
+
+Giấc này suýt thành trò cười — chiều ấy Tiêu Kinh thấy nàng mệt, không gọi, hiếm rảnh, cởi áo lên giường ngủ trưa cùng.
+
+Ngủ say, nhà có khách — người không biết đường nhờ dân trong thôn dẫn tới, gõ cửa nhà Tiêu Kinh.
+
+Hai vợ chồng đang ngủ không chỉ khách biết, cả dân làng cũng biết — chưa tới ngày mai cả thôn đồn ầm.
+
+Tiêu Kinh mặc áo ra tiếp — là chủ quán tiệm nghênh tân lần trước, chắp tay chào, gọi “huynh đệ Tiêu”, lịch sự.
+
+Người có vị thế, bên còn tiểu đồng, chào một thôn dã như vậy, dân làng trố mắt.
+
+Tiêu Kinh thấy chủ quán không lạ, như đã biết sẽ tới.
+
+Hắn nói:
+
+“Chủ quán chờ chút, việc cần nói, nương tử ta bàn với ông.”
+
+“Phiền phu nhân Tiêu.”
+
+Chủ quán tinh ý, lần gặp trước đã thấy trong nhà Tiêu Kinh là Kiều nương làm chủ.
+
+Tiêu Kinh vào gọi Kiều nương dậy.
+
+Kiều nương lúc dậy vẫn mơ, để Tiêu Kinh bế tay giơ chân, huống chi hôm nay còn bị đâm mệt, phản ứng chậm.
+
+Mất một lúc mặc xong, Tiêu Kinh mới nói:
+
+“Chủ quán tiệm nghênh tân tới.”
+
+“Ừ…”
+
+Kiều nương kéo dài một tiếng, chưa kịp hiểu, chợt giật mình mở mắt:
+
+“Cái gì? Chủ quán tới? Người đâu?”
+
+“Ngoài nhà đợi.”
+
+“… Sao giờ mới bảo!”
+
+Kiều nương vội xuống giường, không cần Tiêu Kinh, tự mang giày.
+
+Vừa chạm đất, đùi mềm đau, lại ngồi bật xuống giường.
+
+“Đừng vội, đợi lâu rồi cũng không thêm chút nào.”
+
+Tiêu Kinh nói ngông, nhưng… cũng có lý.
+
+Kiều nương sốt ruột, cuối cùng vẫn ngồi yên để Tiêu Kinh squat mang giày giúp.
+
+Đợi sắp xong ra ngoài, đã lâu sau.
+
+---
+
+## Chương 117 Lần đầu chủ động…
+
+Chuyện chủ quán tìm tới phải kể từ ngày Kiều nương với Tiêu Kinh vào trấn.
+
+Hôm về, Kiều nương dặm Tiêu Kinh: thú săn vẫn bán như cũ, nhưng thú lạ hiếm, riêng không bán cho tiệm nghênh tân — gà rừng thường vẫn bán.
+
+Người giàu trong trấn ăn thú rừng cần lạ, tiệm không có tự khách sang chỗ khác.
+
+Việc nhỏ, không cắt khách lớn, nhưng quán mở cửa vừa cần khách vừa cần danh — kẻ giàu đi hết, danh tiệm cũng đi theo.
+
+Chủ quán thông minh, chưa đầy mười ngày đã ngửi ra mùi, nghe bếp nói, liền tìm tới giải quyết.
+
+Trong nhà chưa dọn, Kiều nương không mời vào nhà.
+
+Trong sân kê bàn nhỏ, pha hai chén trà, mời chủ quán ngồi, xin lỗi liên tục, vẫn chu đáo.
+
+“Phu nhân Tiêu, mình người hiểu chuyện. Ta tới vì gì, chắc phu nhân rõ.”
+
+Chủ quán thẳng thừng.
+
+“Chủ quán vẫn muốn thú lạ?”
+
+“Đương nhiên. Còn như trước được không?”
+
+“Chủ quán muốn, nhà ta cũng muốn làm ăn lâu với quý tiệm. Không chỉ như trước — thú lạ hiếm có thể độc quyền cho tiệm.”
+
+“Thật?”
+
+Chủ quán sờ râu: “Không biết phu nhân muốn gì?”
+
+“Muốn độc quyền, tự nhiên phải trả phí độc quyền. Một trăm lượng một năm, ông thấy sao.”
+
+Kiều nương vẫn cười, giọng dịu, môi khẽ mở, nói một trăm lượng, cả Tiêu Kinh đứng sau cũng động mắt, nàng vẫn không đổi sắc, nhìn chủ quán ngồi ghế nhỏ khó chịu — thật tự tin.
+
+“Ha ha ha ha.”
+
+Chủ quán vỗ đùi cười:
+
+“Phu nhân quả nhanh trí. Một trăm lượng một năm, xong.”
+
+Không do dự, không bỏ đi, không trả giá — giao dịch xong.
+
+Tiêu Kinh không tin nổi — nếu không trông suốt còn tưởng nương tử hạ mê dược — sao chưa thấy hàng đã lấy trước một trăm lượng.
+
+Mà chủ quán như sợ Kiều nương đổi ý, từ tay áo lấy ngân phiếu một trăm lượng đưa tay Kiều nương.
+
+“Phu nhân, vậy là chốt, sau này thú lạ hiếm của huynh đệ Tiêu tiệm bọn ta gói hết.”
+
+“Phu nhân có cần giấy bút lập khế? Nhà không có nghiên mực, để hôm khác tướng công ta mang tới quán.”
+
+Kiều nương nhận bạc không mềm tay.
+
+“Phiền phu nhân và huynh đệ Tiêu.”
+
+Đưa khách xong, Tiêu Kinh vẫn thấy không thật — nếu không ngân phiếu trong tay, tưởng mơ.
+
+Sau hắn hỏi Kiều nương:
+
+“Nương tử, sao nàng dám mở miệng số lớn — chủ quán không gật thì sao?”
+
+“Ông ấy không ngại đường tới tận đây, tất phải làm xong mới về. Mà một trăm lượng… cũng không lớn.”
+
+Kiều nương cười, mặt thanh tú, mắt lại khác xưa.
+
+Tiêu Kinh bên cạnh nhìn đến ngây.
+
+Kiều nương cất ngân phiếu vào ngăn bí mật, quay lại đụng phải mắt Tiêu Kinh sâu hun hút.
+
+“Sao chàng nhìn ta —”
+
+Chưa hết câu, giọng đã nuốt vào môi Tiêu Kinh.
+
+Không mật ngọt dài, không trần truồi kích dục, nhưng Tiêu Kinh cứng người, máu sôi — nụ hôn như sói đói, hung hăng, như thiếu ăn lâu ngày.
+
+Rõ ràng sáng nay còn đâm nàng đến khản giọng.
+
+Lưỡi ướt bá đạo chui vào miệng nàng, quen đường quấn lưỡi nhỏ.
+
+Một vòng một vòng, mút mạnh, như đâm âm hộ — lúc sâu lúc nông, tiếng nước dính không dứt.
+
+Không phải Tiêu Kinh cố — là thú tính trong người, theo bản năng.
+
+Kiều nương bị hôn thở không ra hơi, tay bám vai, dần quấn cổ hắn.
+
+Cũng dần dần, mút lưỡi Tiêu Kinh.
+
+Nhẹ, nhỏ, cho môi mềm dính thêm.
+
+Tiêu Kinh lúc đầu không để ý, đến khi nhận ra đó là “lần đầu chủ động” của Kiều nương — đầu óc nổ ong, cứng đờ.
+
+---
+
+## Chương 118 Hôn sâu… (3650 châu tăng thêm)
+
+Người cao lớn thế, ngàn quân vạn mã cũng không sợ, lúc này da đầu tê, không chỉ cứng người, lưỡi trong miệng Kiều nương cũng dừng.
+
+Kiều nương cong môi trộm cười, nhưng không kết thúc nụ hôn.
+
+Nàng cẩn thận tiến, hôn môi Tiêu Kinh, đầu lưỡi nhỏ liếm môi, như mèo, từng chút.
+
+Môi dưới Tiêu Kinh hơi dày, như tính hắn vững.
+
+Đàn ông, đến môi cũng không mềm như nữ, mùa thu khô, môi nứt nhẹ.
+
+Vết nhỏ thường không thấy — nhưng lưỡi mềm liếm kỹ, mỗi nứt đều rõ.
+
+Liếm hết môi trên dưới, Kiều nương học cách Tiêu Kinh hôn nàng, tiến sâu, mở khe môi, luồn vào miệng.
+
+Huống chi Tiêu Kinh chào đón nàng cực nồng — chẳng tốn sức đã chìm trong ẩm nóng.
+
+Tiêu Kinh lập tức tỉnh, như núi lửa phun — bắp thịt căng, hơi nóng ngập người Kiều nương.
+
+Hắn giật lại chủ động, giữ lưỡi nhỏ không cho rút, ôm người mấy bước lớn, đè lên giường bừa.
+
+Thân trên ép chặt, thân dưới còn đứng bên mé giường.
+
+Kiều nương không uốn eo được, chân theo ngã mà giơ, cuối cùng để tiện lực, gác lên eo Tiêu Kinh.
+
+Hô hô… hô hô…
+
+Một lúc phòng chỉ còn tiếng thở hai người.
+
+Tiêu Kinh hôn còn hung còn dính hơn, mút chặt, lưỡi nhỏ, nước bọt, cả hơi thở đều chiếm.
+
+Kiều nương thở không thông, nhờ khe hở Tiêu Kinh thổi hơi mới thở được.
+
+Hôn sâu thế, với cả hai đều lạ — rung động mạnh, tê tới đầu ngón chân trong giày.
+
+Một khoảng thở, Kiều nương gom sức đẩy ngực Tiêu Kinh, mới nói được:
+
+“Hôn thì hôn… nhưng… không được làm…”
+
+“Nàng trêu trước.”
+
+Tiêu Kinh khàn, mắt sóng dục muốn nuốt người.
+
+“Cũng không được!”
+
+Kiều nương hừ: “Chàng không giữ… sau này ta không… không chủ động nữa…”
+
+Kiều nương cuối cũng không nghe Tiêu Kinh hứa.
+
+Vì gã lại cúi xuống, hôn lên vết sẹo trán nàng — nàng run nhẹ.
+
+Rồi hôn nóng theo má đỏ, ma sát da mịn.
+
+Má, vành tai, hàm, cằm… tới môi hé thở, lại mút sâu.
+
+Không phải thịt căng với âm hộ, nhưng hôn sâu thế còn thân mật hơn ân ái, như chạm tới hồn.
+
+Mắt Kiều nương trắng xóa trong sương — như thấy một cô bé một cậu bé ôm nhau, như tiểu Kiều tiểu Tiêu trong lòng nhau.
+
+Hôm đó Tiêu Kinh giữ lời — không “ban ngày làm bậy”.
+
+Kiều nương vì một câu “chủ động” mà sau này gánh “họa” không hết.
+
+Đêm khuya qua sương giáng, không còn tiếng sâu bọ — chỉ gió tây bắc rít.
+
+Ngoài vạn vật im lặng.
+
+Trong phòng lại xuân ấm.
+
+Tiêu Kinh bày Kiều nương ngồi trên bụng mình, sau lưng là đùi hắn gập, tựa như ghế thịt nóng — vốn không tốn sức.
+
+Nhưng nàng tách đùi, âm hộ cắm thịt căng cứng, thỉnh thoảng cử động.
+
+Đêm nay Tiêu Kinh đã bắn một lần, không còn vội như đầu.
+
+Thịt căng chỉ ma sát từng chút, gốc sát miệng âm hộ, bịt kín, giữ tinh trong.
+
+Bụng nhỏ Kiều nương hơi nhô vì đầy.
+
+Nhưng còn chưa đáng sợ bằng…
+
+“Ngươi… vô sỉ quá…”
+
+Kiều nương mặt đỏ tới cổ, trong tối trừng Tiêu Kinh, mắt như sóng.
+
+---
+
+## Chương 119 Cưỡi…
+
+Bị mắng, Tiêu Kinh không đau không ngứa, khóe môi càng nhếch.
+
+“Nương tử, nàng tự nói nguyện chủ động. Ta giữ lời — nàng không được nuôi miệng.”
+
+“Ngươi… ngươi… ngươi vô lại!”
+
+Kiều nương bị nghẹn, cuối cùng chỉ thốt mấy chữ “văn nhã”.
+
+“Nương tử, mệt không?”
+
+“Ừ… mệt lắm.”
+
+“Mệt thì nàng mau một chút, ta cũng mau, xong còn ngủ.”
+
+Kiều nương không còn sức phân tích, mơ hồ thấy hắn nói có lý.
+
+Nàng… gật.
+
+Trời lạnh, Kiều nương còn một lớp áo trong, cổ mở rộng, lộ da trắng, yếm đỏ lỏng trên cổ.
+
+Nàng giơ tay nắm vú trước ngực lay.
+
+“Nương tử, thế không được, còn cách yếm.”
+
+Tiêu Kinh nhắc ác.
+
+Kiều nương mím môi, cuối cùng liều, kéo yếm, cắn tà yếm giữ miệng, hai tay nắm vú, bắt đầu vân nhẹ.
+
+Đó là “chủ động” Tiêu Kinh muốn — chủ động vân vú.
+
+“Hu hu…”
+
+Kiều nương không nói được, chỉ ứ ứ với Tiêu Kinh — được chưa.
+
+“Nương tử, đâu gọi là vân vú — chỉ là đỡ thôi, ta dạy nàng.”
+
+Tiêu Kinh mắt nóng, thấy tay nàng quá nhẹ, trực tiếp đặt tay mình lên mu bàn tay nàng.
+
+Lòng bàn tay lớn nắm cả tay nàng và thịt vú ngoài.
+
+Rồi theo ngón hắn, siết nhả, bóp vú đàn hồi thành đủ hình.
+
+“Nương tử, học chưa?”
+
+“Học… học rồi… buông…”
+
+Kiều nương cắn yếm, líu lưỡi nói.
+
+Tiêu Kinh không làm khó, buông tay.
+
+Kiều nương tưởng đuổi được tay hắn là thở phào — không ngờ mất sức hắn, chỉ còn mình nàng vân vú, càng xấu hổ.
+
+Theo ý nghĩ, thân phản ứng — âm hộ siết, thành thịt thu, quấn chặt thịt căng Tiêu Kinh.
+
+Tiêu Kinh được mút sướng, bụng dưới căng, cứ thế nằm đâm lên, thẳng đâm vào trong.
+
+“Hu hu… ư ư…”
+
+Kiều nương bị đâm run, vô thức siết tay mạnh hơn, không cần Tiêu Kinh nhắc đã theo bản năng vân vú.
+
+“Nương tử, đừng quên núm — bóp thử.”
+
+“Ừ…”
+
+Nhượng bộ thành quen — Kiều nương chậm rời tay xuống đỉnh vú, ngón nhỏ kẹp núm cứng giữa đầu ngón.
+
+Đây là lần đầu nàng tự chạm núm cương — cảm lạ.
+
+“A —”
+
+Hiếu kỳ nhẹ vặn một cái — rên không ngớt, run khắp thân, yếm cắn miệng cũng rơi.
+
+Vải đỏ rơi, che vú trắng run và cảnh xuân.
+
+Như… màn đỏ cài đầu.
+
+Tiêu Kinh nhìn chằm, bỗng đâm mạnh hơn, thịt căng dài đập thẳng tâm huyệt.
+
+“Hu hu…”
+
+Thân Kiều nương lay lay sắp gục giường.
+
+Tiêu Kinh nhanh tay đỡ, một tay chống eo, một tay luồn yếm nắm vú đầy.
+
+Rồi một trận gió mưa đâm rút.
+
+Dù nằm, không cần sức Kiều nương, Tiêu Kinh vẫn sung mãn, không giảm chút nào.
+
+Ngược lại Kiều nương vốn còn nằm được, giờ bị đâm bật bật, lưng không tựa, mông cứ lên xuống.
+
+Như vừa bay vừa rơi, chỉ nghe phách phách chạm đất.
+
+Vì tư thế này, thịt căng Tiêu Kinh mỗi nhát chạm tận đáy.
+
+Tinh và dâm trong âm hộ như đá rơi nước bắn tung — mà chỗ bắn vẫn là thành thịt nhạy nóng của nàng.
+
+Mỗi nhát sâu, kích hai thứ khoái khác nhau.
+
+Quấn vào, dồn lên ngực.
+
+“A… a… hu hu… phu quân… nhẹ…”
+
+“A Kinh… phu quân… ta không được… hu hu…”
+
+Trong phòng đầy mùi tanh ẩm, rên không dứt, dâm chảy, tinh theo thịt cứng chảy xuống, chỗ dính nhau ướt nhớp hỗn loạn.
+
+---
+
+## Chương 120 Không phải một giấc mơ xuân…
+
+“A…”
+
+Trong tiếng rên dài, Kiều nương lên đỉnh, thân mềm run không ngừng, âm hộ ướt co thắt, siết chặt thịt căng Tiêu Kinh.
+
+Trong đầu trắng xóa, không biết mình ở đâu, trên người Tiêu Kinh ngồi không vững, loạng choạng gục xuống giường.
+
+Tiêu Kinh một tay đỡ, đặt Kiều nương nhẹ xuống, rồi đè lên người nàng, hông động, đâm thật.
+
+Vừa rồi chỉ là món khai vị.
+
+Thân Kiều nương sau mấy lần ân ái càng nhạy, Tiêu Kinh dai hơn qua trận — dù âm hộ mút chặt cũng chưa bắn.
+
+“A… a… hu hu… đừng… đừng nữa…”
+
+Kiều nương còn trong dư ân, sóng dục chưa tan, lại bị đâm liên tiếp lên đỉnh lần nữa.
+
+Sướng, điên, và sợ.
+
+Kiều nương mềm nhũn, ý mờ — lúc này không còn sức ôm Tiêu Kinh, chỉ tách đùi để hắn đâm, ngoài rên và dâm chảy không còn gì.
+
+“A…”
+
+Thời gian ngắn lại lên đỉnh, Kiều nương ngất đi — ký ức cuối chỉ còn thịt căng Tiêu Kinh vẫn ra vào âm hộ, từng nhát, rất mạnh.
+
+Nàng không biết hắn lúc nào bắn, cũng không biết cảnh cuối kết thế nào.
+
+Tỉnh lại, đau mỏi trong thân nhắc nàng — không phải giấc mơ xuân, mà là thật.
+
+Ngày tháng trôi, trời càng lạnh.
+
+Tuyết trên núi dày thêm, nhìn xa trắng phau — Tiêu Kinh săn cũng ít đi.
+
+Ở nhà rảnh, hắn không nằm: vá mái nhà tranh chống gió, chống tuyết đông sắp tới.
+
+Hắn muốn làm như nhà Lê Viễn — gạch ngói bền ấm — nhưng Kiều nương không gật.
+
+Từ ngày chủ quán tới, trong thôn đồn nhiều về Tiêu Kinh và nàng, bốn phương mắt dõi, chuyện tiền bạc chưa biết họ bàn ra sao.
+
+Nếu chủ quán vừa đi đã sửa nhà lớn, lại dấy sóng.
+
+Việc không to không nhỏ, nhưng sống lâu trong thôn, lời người đáng sợ — Kiều nương lo.
+
+Cuối cùng chỉ bảo Tiêu Kinh vá đơn giản, chống qua đông là được.
+
+Việc khác đợi xuân sang.
+
+Tiêu Kinh thường ra ngoài, nghe thấy nhiều hơn Kiều nương, hiểu lý. Nhưng tính hắn cứng, không chịu vì người ngoài mà uất mình, huống chi uất Kiều nương.
+
+Nhưng Kiều nương quyết, hắn cũng gật.
+
+Khi vá nhà hắn vẫn giở mánh: ngoài vẫn tranh, trong gỗ dùng tốt cứng — sang năm đổi gạch cũng tiện.
+
+Kiều nương không rành, giao tiền cho Tiêu Kinh, để hắn lo.
+
+Mấy ngày vá nhà, Kiều nương cũng bận — vải bông đặt lấy về, nàng không biết cắt, nhờ Song Nương, Song Nương cũng không rành, lại nhờ mấy bà trong thôn — qua lại, hai người học may.
+
+Kiều nương cũng gác yếm hổ dở, làm áo bông cho Tiêu Kinh trước.
+
+Từ đó nến nhà không còn bị cắt ngắn — còn thêm một chút đèn dầu, tối cũng sáng thêm lúc.
+
+Đợi Tiêu Kinh không nhịn được, kéo nàng lên giường, ngày đó mới thật kết.
+
+Ngày nhìn êm ả, nhưng ngày tuyết đầu mùa, biến cố bất ngờ.
+
+Đó là trận tuyết đầu năm, hạt rơi lả tả — Kiều nương bên cửa sổ thấy, gác kim, tò mò thò đầu.
+
+“Không ra xem?”
+
+Tiêu Kinh ngoài sân thấy nàng như mèo thò đầu, lên tiếng.
+
+Kiều nương kéo áo ngoài, bước nhanh ra.
+
+Tuyết không to nhưng dày, chưa phủ đất nhưng trời mờ trắng.
+
+Nàng không phải lần đầu thấy tuyết, vẫn vui lạ.
+
+Đứng trong sân, ngửa mặt trời — tuyết rơi tóc, rơi cả mày mắt Tiêu Kinh, phủ một lớp trắng mờ, như đầu bạc già bên nhau.
+
+Hai người nhìn nhau cười, đứng im, như nghe được tiếng tuyết rơi.
+
+Với Kiều nương hai tháng trước, nàng tuyệt không nghĩ sau biến cố nhà cửa, vẫn có chỗ nương thân, sống yên như vậy.
+
+Nhìn mãi, nàng cúi mắt — người vốn khỏe bỗng loạng choạng, mặt tái.
+
+“Sao vậy? Lạnh quá? Vào nhà.”
+
+Tiêu Kinh bế Kiều nương vào nhà, cởi giày nhét giường, đắp chăn dày, còn nhóm than đã chuẩn bị.
+
+“Đỡ chưa?”
+
+Làm xong Tiêu Kinh ngồi mé giường canh.
+
+“Đỡ… đỡ rồi… đừng lo…”
+
+Miệng Kiều nương vậy, thân vẫn co quắp, tay ấn bụng, giữa mày nhíu, mặt vẫn trắng.
+
+“Nàng ốm rồi, ta đi gọi Lê Viễn.”
+
+“Đừng đi.”
+
+Kiều nương giữ hắn, không cho đi vội, nghiến răng:
+
+“Không phải bệnh… là… là kinh nguyệt tới, bụng hơi đau thôi. Chàng lấy cho ta bình nước nóng… ôm bụng sẽ đỡ.”
+
+Tiêu Kinh nghe vậy lập tức chuẩn bị bình nước, nhét vào chăn cho nàng ôm tay ôm bụng.
+
+---
+
 *Tác giả: Nguồn gốc văn bản lưu trong phần gốc.*
 
 ---
